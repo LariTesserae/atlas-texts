@@ -1,0 +1,37 @@
+Most of what lives here has already been counted. By number and by weight the city belongs to the swiftlets, the bats, and the beetles in the drifts, and it would be reasonable to stop there. But the census thins toward the top in a particular way. There is one owl and one fox. Animals of that size hold a position here, the granary window or the east ramp. When one dies, another eventually turns up and uses the same window or ramp, because those are the places the city has for an owl and a fox.
+
+It has a place for one more thing of about that size, and the place shows.
+
+In the root halls, some of the thin grey trunks stop at knee height. They end in a slanted cut, sealed with a lip of callus. Around each stub are others, cut lower and sealed longer, and some were cut at the paving and have grown over so completely that they look like knuckles in the floor. A root that goes down to water will bleed from a fresh stump for a few nights, perhaps a cupful between dusk and dawn. Then it closes and has to be cut again a finger's width lower. The oldest stubs were used up centuries ago. The newest was cut yesterday, with a flake of the dark flint that turns up in the limestone in nodules, the only thing in the city that still has an edge. Some stubs have a scratch in the callus that leads the drip onto a sill, and the sill has a hollow in it. That settles what the hollows are for now, at least.
+
+Every animal here drinks somewhere else. One doesn't.
+
+For a while that is all there is to go on, a mouth making the rounds of the taps. The route says more. It runs through the root halls and back along the second gallery, and takes most of the hours between changeovers to walk, with a swallow at each stub. It passes the lit ledges within arm's reach of the pigeons' eggs. It passes under the largest grove, where the figs come twice a year and dry on the dust where they fall. It passes walls where crickets can be taken by the handful. Through full dark it goes from pillar to pillar, and those pillars have a polish at the waist that the others lack. The draught did most of that wearing, and a hand did the rest.
+
+It was more than one hand, because the stubs go back too far. Whoever walks the route now either learned it from someone or found it worn into the place, the way the fox found the ramp. In her case it was both.
+
+She is about sixty, though she counts in fig crops and has lost a few. She is small and floured the colour of the streets, hair and lashes included. What she wears is root. The dead upper lengths of what she cuts hang until they dry, and the fine beard pulls off in hanks that can be twisted and knotted. When she stands still in a root hall she is one more grey trunk. Her teeth are ground flat by the limestone in everything she eats, and she has a cough she has never heard. She has no fire and has not seen one since she was a child.
+
+She came down the east ramp at eight or nine. What she keeps of the time before is slight. She remembers days of walking on flat rock, away from people she can no longer picture. Then, one evening, she saw a pillar of smoke standing out of level ground where there was nothing to burn. She walked to it, and it was the bats.
+
+There was an old woman already in the city. She found the girl on the ramp and put the wet end of a root in her mouth.
+
+That was the introduction, and nothing more exact was ever possible. For eleven years the two of them lived within reach of each other and neither heard the other once. The old woman talked. In the grey light under the holes her mouth could be seen going steadily all day. The girl talked back, and none of it arrived. What arrived was hands. A hand moved her hand to the waist of a pillar, or closed her fingers on the flint at the right angle. Two taps on the collarbone meant "you, come here," and it is the only name she has had down here. Sitting back to back at night she could feel the old woman's talk as a buzz between the shoulder blades. She never found out what language it was in. It may have been her own.
+
+When the old woman died she moved her to a corner where the dust is knee-deep, and the hide beetles finished in a season. All the corners along the route are knee-deep. She has not dug in the others.
+
+That was about eighty fig crops ago. She has known four foxes since then, or five.
+
+She still talks, and this is the part the route does not account for. A fox or an owl in the same position would be much like any other, but she talks all day. She talks to the stubs while she cuts them, to the snakes in the root curtains, and to the fox, which steals her figs. She tells the pigeons what she is taking and why. Now and then she puts two fingers to her throat to check that it is still happening. She has had nothing to correct it against for fifty years, and it has gone the way of the stairs. The edges are off the words, and some have worn down to a shape the mouth makes and nothing more. Whether anyone could now understand her is a question that does not come up.
+
+She knows the plateau by taste. Each root carries a little of whatever stands at the top of it. One is resinous, one bitter enough to numb the tongue, and one in the fourth hall is faintly sweet. She has given them names and could not match any of them to a plant.
+
+She sleeps in a room off the second gallery, thirty paces from a grove, where the green gives out. The door is an oval. The bed is fig leaves, which she has never had to replace and only adds to.
+
+The route goes around the largest plaza and never over it. As a girl she was steered past it with a firm hand on her shoulder and was never given the reason, since there was no way to give one. She has her own idea. There are no nests above that floor and no walls near it. If the roar stands off a little anywhere in the city, so that a clap might be heard by the person clapping, it would be out in the middle of that acre.
+
+She has not gone to find out. If she is right, the first voice she hears in fifty years will be her own, and when she last heard it, it was a child's. If she is wrong, there is something further to consider. When she presses her fingers into her ears, the roar does not change. She puts this down to its coming in through the chest and the teeth anyway, which is a fair explanation. The other explanation is that the birds finished with her hearing long ago, and what she hears now is gravel down a chute that she makes herself. In that case it would go with her up the ramp and be just as loud under the open sky. From the edge of the plaza she cannot tell which it is.
+
+There is no guano on that floor, so there are no beetles to work it, and the dust keeps whatever is pressed into it. Along the margin there are footprints. Hers go out thirty-one paces and come back. Beside them is a line she takes for the old woman's, which goes out twelve. Further along, softened under a finger's width of newer dust, another goes out about forty and returns. Beyond that there are only shallow dimples. None of them reaches the middle.
+
+She stops there on most rounds. She stands at the edge with her toes at the first of her own prints and talks out across the floor for a while. The noise crosses it and she does not. Then she goes on to the next root.

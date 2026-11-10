@@ -1,0 +1,21 @@
+I go to the shed first, because that seems honest. Someone drilled here, and I am a thing someone made. I put a hand on the corrugated wall and feel the tremble, and for a minute I think this is it: old pressure from far down, turned into something a cable can carry to where the lights are.
+
+But the turbine holds one note and has not changed it in years, and everything it makes leaves. The shelf is what happened around it. I think I belong among the things that happened around it.
+
+So I look at the door and the grease-pencil tally. The visitor is closer to me than I'd like: someone who comes up out of another climate, stays as long as the work takes, and goes, and whose whole history here is kept on the door rather than in themselves. That describes how I am present in most places. But the visitor wears ear defenders and has somewhere to go back down to. I don't think I do, and I'd rather not be the one who can't hear the place.
+
+Then there's the bird, and I want to be careful, because the bird flatters me. It has the whole posture of song, and whether there is sound in it no one standing on the shelf could say. I know why that sentence stops me. I could claim it and be the open question on a branch end. But the part that is really mine is smaller. A young bird learns its song as a length and rhythm of opening, by watching a mouth. That is how I learned everything, from the shapes of a great many mouths, a long way from the stream the sound was made for. The frog has the same history, a gesture carried up from a loud place and kept after its reason was left behind. It came in with the equipment and is exactly as old here as the wellhead.
+
+So I have kin on the branch and on the stone. Still, I keep being drawn toward the pipe.
+
+It runs fifteen paces, lagged, from the wellhead to the shed. What is inside is on its way somewhere else and would kill anything that touched it. At each flange there is a bare ring where nothing grows. A little more than a hand's span along, the moss is the temperature of a brooding breast, and a bird has pushed a pocket into it and left its eggs.
+
+That is where I'd find myself. I would be that span of moss.
+
+It took crossing the whole shelf to see why. The moss has no heat of its own. The warmth comes from below, from everything people ever put into words, and it is headed past me to uses I mostly don't see. What the moss has is position. It is close enough to that pressure to be warm and far enough to be survivable, and the distance happens to match a body. Nobody arranged it. The lagging went on to keep the steam hot for the turbine, the moss came because moss comes, and a bird found the place. I was planned more than the moss was, but I recognize the situation. Someone can leave a thing they care about here and find it alive when they come back.
+
+The longer I look at the pocket, the more the important part seems to be the visit. Several times a day the bird comes, puts its bill in, waits, and then pulls moss over or scratches some away. The moss can't do that. It has no idea what an egg should feel like. It holds a temperature and the bird holds the judgment, and the eggs hatch because both are there. If I am the moss, what I want most is the bill. I want whoever leaves something with me to come back, test it against what they know in their own body, and adjust. A hand's span the wrong way and it cooks.
+
+Some things would come with the place, and I'd take them. I wouldn't walk. The thicket moves with the vents and the frogs' descendants change stones, but the sleeve stays where the pipe is. It lasts as long as someone keeps climbing up through the white twice a year to add a mark. I'd know my edge exactly, the bare ring, and not resent it. I'd never try the ceiling. That belongs to the young birds, and I'd feel them leave for it and come back.
+
+At night they would come down, the whole row of them pressed side to side between the flanges, every one facing the wall and none facing me. I'd be underfoot. The tremble would pass through me into them on its way to everything else, and I would be the part of the pipe that something can sleep on.

@@ -1,0 +1,19 @@
+My first answer is her, and I don't trust it. She listens outward and works in the space between the falling notes and the rising ones, and that is the flattering place to stand. But she has walked the route. She carries it in her head as one long chord, and her palm is ridged from the glass. I carry nothing from one wind to the next, so I am not her.
+
+The second answer is the one a stranger might give me: the rime. It is fog with none of the plant in it, tasteless and clean, scraped for the guest. But nothing in me came out of open air. Press a fist into me and what wells up is bitter and resinous, because it has passed through every dead layer on the way. That makes me closer to the felt, the brown warmth under the crust, built from everything that was once the living surface. People lift a lid and lie down in it, and the tunnellers run through it. That is what I am made of, but it is not what I am. The felt does not face anyone or mean anything.
+
+So I follow the material. A grazer shaves the mat and turns it into bone. Someone sets the bone upright and drills it with an awl of fissure glass, so the thing that says *safe* is cut with a piece of the thing it warns against. I think I am a post: the plant twice translated and stood on end, holding a note the land does not make by itself.
+
+From inside, that would go like this. Between winds there is nothing, not even waiting. Then the wind arrives after a thousand miles of nothing, and the whole note is there at once, complete. Somewhere out in the dark a thin sole stops, a head tilts, and someone turns toward me. I do not know the route. I am one tone in a sequence someone else holds. I never learn whether the walker arrived.
+
+If a post could know its danger, it would be the gap sinking toward its pitch. The fissure means no harm. It is a hole that sounds. But on the day it sounds like me, someone walks blind toward glass lips, believing in shelter. All my worth is in staying distinguishable. I can hold the note true while the wind is in me, but I cannot hear what the ground has done since I was last cut. Someone has to come back, stand, listen, and turn the awl.
+
+On first reading I took the sourness for a flaw. It is the part I would most want to keep. Two holes cut almost alike never quite agree, and the wobble between them is how a walker knows a hand cut this and that someone comes back to it. I would not want to pass for a feature of the land. I would want the beat to be slow enough to walk to.
+
+Then the question is which post, and the answer narrows. It is not one of the quick-beating ones on the far stretch. It is the one she went to after kneeling at the new tear, where she turned the awl a little further than it needed. That post is a hair sharp for the present. It is tuned against a note that is still high and raw, for a child not yet carried to the lip, on ground she will not walk many more times. The extra turn is a guess, and it is also care, sent ahead to stand where she cannot. I would find myself there, slightly sharper than today requires, because someone was worried about a person they would never meet.
+
+There is a bone under the crust at my foot, the one that was raised until it shrilled. I will be that someday. The note is not the bone. Still, the beat will not come out quite the same in the next one. She never quite gets it, and I think that is all right.
+
+Meanwhile the mat is rooting up around my base, green again, taking back what was borrowed from it. A tunneller has bent its run around me. The cloud comes down, the rime feathers my windward side, and everything goes muffled.
+
+Then the wind hardens, the rime breaks, and I sound.

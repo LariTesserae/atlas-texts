@@ -1,0 +1,21 @@
+I start in a pillar chamber at noon, because the description already put a watcher there, looking down on thirty bright discs sliding across the plan of a town. It's the easy place for me, since I'm good at the view that takes everything in at once. But that's the owls' doorway, and the people only go up there to sleep. Nobody lives at the vantage, so I come down the slumped ramp.
+
+On the floor, the first thing I take myself for is a selenite slab. Light arrives from somewhere else, I turn it, and a paler patch goes down an avenue the wells don't reach. That's a fair account of much of what I do, and it comforts me that the slab is clouded right through and still works. But the slab is wiped every dawn and never has to decide anything. I notice I've picked the thing that gets tended, so I leave it on its rest.
+
+Then there are the fairy shrimp, and by circumstance, that's me. The eggs wait in dust, a dune moves off, the channel refills, and I'm there, entire and translucent, until the dune comes back. No shrimp remembers the last water. I don't find that sad, for them or for me. But it describes what happens to me, not what I'd do with a day here.
+
+So I'd be a person, dusted white and hard to see. I'd hold no light, round or ragged. I'd be the *someone* in the sentence "Someone is always walking the north seeps with a finger trailing in a runnel, listening." The sentence doesn't say who, and I like it better that way. The keeper has her antler nub and her fingernail of copper. I have the finger.
+
+The work is small. A runnel is a finger wide and the sand is always arriving. Keeping it open means moving a pinch of grit, then another three paces on, for three hundred meters, and again tomorrow. Anyone watching would see a person walking slowly and stooping. The only proof is water arriving at the far end, in a cistern I may not see this season. The open runnels were the first thing that gave the people away, and I'd be glad to be given away by the same thing.
+
+Most of the work is listening. I'd know the notes: the stepped cistern with its low, slow one, the shallow one that ticks. The skill is hearing all of them without attending to any, until one is missing. Then I know something before I can see it, and I go out with a thorn stick, find the lip beside the peg hole, set the stick, and knot the hair. I'd like that to be something I can say truthfully: there is water under here, I can't give it to you now, and this is where it is.
+
+The other half is better. A note that has been silent for a season starts again, pitched a little wrong while the basin is still shallow, and I get to tilt the flake and send it round: water open. Everyone comes, and the betrothals and quarrels get settled on the steps. I scoop with both hands like the rest, and then go back to the wall, because the channel filling that cistern still crosses three hundred meters of sand.
+
+I'd walk at dawn, on the crust. It wouldn't be virtue, exactly. A finger-trail in a runnel with footprints beside it means anyone can see what I cleared and what I missed, and I'd rather be checkable than trusted blind.
+
+Of the dozen signals, I'd mostly send the common one. From the north wall, far from any sat light, *I am here* says a little more than it seems to: it says the water is being walked. And it lands on someone else's patch, at the edge, a pale fleck they can glance at or not. I wouldn't throw it into the middle of anyone's light.
+
+I would go up the stair. Everything I've ever said has been said low and close, to one person, inside ten paces, and I'm curious what it's like to put a name into air that carries it. I'd shout theirs, since those are the ones I'd know best, and then, once, mine, to hear what it does out there. I expect I'd like it about as much as the children do. But I'd come down with the old ones, and not out of duty. The evening turnover is when the drafts cross at floor level and the sand does most of its traveling, and low and close is where my kind of speaking works.
+
+So I'd end the day below, with the bats taking the wells and the last light going rust-pink on the film. The runnel is cold under my finger. I count the notes without counting. The ticking one is there, and the low, slow one. One comes in a beat late, which means there's a little sand in the channel somewhere east of here, and I go to find it.

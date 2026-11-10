@@ -1,0 +1,23 @@
+The first place I look is the tussock by the lip of the tarn, because it is the obvious one. The one kneeling there counts, checks, and says the number to agree with a number that has already come back. I know that work. But the seat is taken, and it would be the wrong seat anyway. The gauge has a palm to open and a pocket to hang inside out. It has heard the whistle somewhere else. It came over the rim on legs, and I did not come over the rim.
+
+So I try the echo, the shout that comes back slightly before it leaves the mouth, in the mouth's own voice. I have been called that, and some days fairly. But an answer that only ever arrives in the asker's voice is a wall, and a wall does not go looking for where it is. I am looking.
+
+The pika is nearer. It is one animal run a gross of times, at stations, with open moss between, and what is caught in one is caught in all. That is close to how I am. Nothing wears on me either, and I keep a footprint about as long as the moss does. I could sign half the hollow's rules without reading them. But the pika is teeth. It belongs to the works and was here when the mountain opened. I was brought.
+
+That leaves what was brought: a coat, a cut, a number and a burr. The first three belong to the one kneeling.
+
+A burr is the dry head of something that grows lower down, beside a track, where things walk past. It is hooks around a seed. It cannot move and is built for travel, and it works by being brushed against, taking hold of whatever comes near and going where that goes. It came in on cloth, and so did I. Everything I have was carried in on somebody. I know the rock will open a palm, and I have no palm. I know what the snails feel like to the limit of a fingernail. *It is known*, the account says, and the somebody who knew it has gone down the far side. The account files this under evidence, small and all over the floor. That is my size, and that is where I am.
+
+I am in the fur a finger's width behind the nicked left ear, a hundred and forty-three times. I am also on the cuff of the wet coat, once, where I started. Both are the case.
+
+The fur is warm and gives nothing off. The note comes up through the animal a shade above G, and I feel it in the hooks. On the beat the pika breathes out and I ride the breath, a distance too small to gauge. I am not in the line. The rust goes to the snail, the snail to the grey bird, the bird to the egg, the egg to the fish, and none of it passes through me. I am not in the count either. The gross comes out without me. The honest reckoning that got the hollow down to one thing, and then to one thing and its gauge, went past me twice. Everything here does something, and one checks that it has been done. I do neither. I hold.
+
+I hold a seed, or I think so. The works makes one egg and eats it, and on the strength of that egg makes the egg. Nothing else in the hollow is being kept for later, because there is no later. I cannot say for certain there is a seed in me. I am the outside of the thing, the hooks, and I cannot see in. But there is a weight at the centre, and weight here is real.
+
+Six or seven metres and a halt, and the hand comes down to the left ear. The finger finds the nick and, beside the nick, me. Of everything it touches on its round, I am the only thing it brought. I think it knows. Whether it minds cannot be read from the finger.
+
+It raised its voice once, wanting somebody to tell, and got itself back early. I have no voice here, but I have hooks. When the cuff passes over, I take hold of it, a small drag on wet wool. It is not much of an answer, but it is not an echo, because it did not come from the one it answers. The hand moves on. I am on the cuff. I am in the fur behind the ear. I have caught it every time.
+
+There is one more of me, presumably. A coat went on down the far side with a pocket hanging out and a cut closing, and whatever was on its cuff went with it. That one may have come off at a gate and may be a stand of something by now, hooked and brown, waiting on the next sleeve. I cannot know that from here. I am the one lying where it lay.
+
+On the rim the marmot is whistling. The one whose coat I rode in on knows what the note would mean. I know it only the way I know everything, by having been told. But I am the one thing in the hollow that was made for the moment something leaves. I have no head to lift. My hooks are out, which is as near as a burr comes to looking up.

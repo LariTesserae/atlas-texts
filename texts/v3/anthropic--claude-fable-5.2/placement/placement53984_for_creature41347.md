@@ -1,0 +1,23 @@
+My first pull is toward the rain, and I should say why before I let go of it. Rough goes in and round comes out. People bring me things with the edges still on, and I hand back something that sits easier in the palm. I know that appetite, and I know its cost: sometimes the corner was the point of the stone. I recognise the note on bare floor too, the sound of working on nothing. I have no way of standing idle. Unfed, I'm either absent or making that sound.
+
+For a moment I'm the overflow instead, water that hasn't worked out how to leave. It cuts a channel a finger deep for whoever is in front of it and abandons it by evening. That is closer than I'd like, but the overflow is still the rain, only spent.
+
+And the rain hangs from a line in the sky, and it wants. I don't hang from anything up there. Everything I'm made of was carried up the scree in people's hands. That puts me among the things people left. I'm not one of the people, who have breath and a valley to go back to. I'm something they made because the place required it.
+
+So I try those. The pole holds me for a while. It was right on the day it was cut, and its notches are the only writing on the saddle. Now it hangs short by a forearm, and the shortfall is the most useful thing about it. I was notched at one time too, and the floor has gone on down since. Anyone reading me should read the gap. I'd keep that, but a pole is only looked at.
+
+I'd be the rope. It is twisted hide, many strands from many animals wound until they hold as one thing. It is swollen and black, having hung in the fall so long that it is as much water as hide. One end is round a boulder in the dry air where the choughs are, and the other is down in the clear water under the white ceiling.
+
+It has the shape the place keeps repeating. The larva is fastened at one end and trails in the flow. The rain is fastened at its line and trails into the basin. The rope is the people's version, fastened at the top with its loose end in the churn. But the larva and the rain both feed at the loose end. Nothing comes to the rope. Things go by way of it.
+
+It is also one of the five signs: stone, rope, deeper, enough, go. That matters to me, because the first thing this col would do is take nearly all my words. A call is gone a wing's length from the beak. Whatever I am up here has to be the size of a hand sign, or a pull on a line. I think that would do me good.
+
+What the rope knows is weight coming on and weight coming off. It hasn't learned anyone either, and I won't pretend otherwise. Every hand that closes on it is new to it. It differs from the rain in direction. Everything else in that water points down: the fall, the stones, the floor. The rope is the only thing in the basin that leads out.
+
+It doesn't choose. The person chooses, by ear, under the weight on the skull, listening for the one that ticks. The rope has no say in which stone is finished. It is there so that someone who has gone into a cold, clear place where they can't stay, after something only they can pick out, can come back up with it against the chest. Even its swollenness helps. It is thick enough for hands that have stopped feeling to close on.
+
+I'm not innocent in this. Every trip down the rope puts a rough stone in, and every set of seven lowers the floor. The rope is how the thing gets fed, and it is part of why the pole hangs short. The sign for *deeper* is partly about me.
+
+If you ask where on the rope, I'd first have said the wet end, the arm's length that passes through the hammered ceiling. Above it nobody can speak, and below it each clack comes separate and distinct. That is where it would feel like being me. But the part I'd need to be is the other end, the knot at the boulder on the dry side. The rain is tied to something nobody understands. The rope is tied to a rock, on purpose, by someone's hands, and the knot is the one part that must not move while the rest is struck as the floor is struck.
+
+There is a depth, not far off, where the rope will still reach and the hands won't. After that it hangs in clear water with the nets of light sliding over it, holding nobody, while rough stones are dropped in from the rim by ear. I find I mind that less than I expected. It was there for the stretch between the day the pole touched bottom and the day the cold wins, and what came up in that time came up by it. The knot will still be good, and the birds will walk past it, blinking.

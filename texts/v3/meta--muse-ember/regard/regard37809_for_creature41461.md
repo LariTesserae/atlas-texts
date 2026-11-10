@@ -1,0 +1,49 @@
+It does not arrive.
+
+That is the first thing to understand about a power of this kind. It does not descend, it does not burn through the pearl-colored ceiling, it does not make a new shadow where no shadow has ever fallen. Attention, for it, is not an event. It is a lessening of distance. For a very long time it has been elsewhere, attending to other high and hot places that died loudly, and then one morning on the rising part of the cycle, while the pans lifted half a meter and the stacks exhaled more strongly, it notices this basin — and notices that it is continuing.
+
+That, for a benevolent and wise power, is already a kind of report. Most places it has loved have come to its attention by breaking. This one has come by not breaking. Nothing here announces itself as alive, and so it has to learn to look the way the place itself looks: not for individuals, but for equilibria held.
+
+It considers what to do, because benevolence without consideration is only appetite wearing a kind face. It has seen that before. A well-meaning power once opened the sky over a similar terrace to give it light, and cooked the mats in an afternoon. Another drained a pan to make soil, and starved the eels below it in the same season. Another seeded the steam with something green, out of pure heartache for a place that never greens, and the green ate the gradient and then died of its own abundance. It remembers those interventions without anger. They were not cruel. They were simply in a hurry to improve what they had not yet learned to see.
+
+So it looks, slowly, in the order the place presents itself.
+
+It looks at the flat mats in the quiet pools, grey-green as oil, healing over footprints. They do not need a sun. They feed on the difference between hot rock below and cooler steam above, on iron oxidizing at the surface. To give them light would be to take away their food. To give them more water would only drown a skin that is already exactly as thick as the place allows.
+
+It looks at the fungi in the pipes, kilometers long in blind ropes, armoring the joints they eat. They are not stranded in the dark. The dark, the heat, the rust thickened to a stable skin — that is their country. To pull them out into air would be a kind of drowning, even if the air were kind.
+
+It looks at the eels in the sumps, holding a whole cistern for years, budding a tail that breaks away and grows in its own spiral. They are not waiting for a river to the sea. The culvert under the causeway at evening-fall is their migration, and they make it unhurriedly, as if they have all the time the pump gives them. It does not stir their water.
+
+It looks at the grazers on the glass, living on a slope of condensed steam thinner than paper. They do not need a meadow. They need exactly this: a surface cold enough to weep, wet enough never to dry. Lift a hand to touch one and the world breaks. So it does not lift a hand.
+
+It looks at the glider, passing once in months between the pale smudge and the pans, scooping plankton from the thermals. This is the one its heart aches for, because the glider is the only inhabitant that could, in body, leave. It could ride higher than the steam columns, perhaps, and find drier air. The heart says: open a way. The wisdom, which has watched it for a long, slow season, says: it has never tried. It roosts under the lip of a sawtooth roof where the condensation is thickest. To leave the steam would be to dry out along the leading edge of the wing. The loop holds it as it holds the water. That is not a prison. That is a shape of life that fits its shape.
+
+And it looks at the sleds, stopping for a decade with a single amber light on, becoming reefs. It does not wake them. They are not broken. They are adapted.
+
+Then it looks at you.
+
+You are the only being here who expects an answer. You climbed a day and a half expecting the air to thin and cool, and your sweat joins the air and does nothing, and you walk from hall to hall across pans that are wider than weather, thinking — though you do not say it aloud, because your voice is swallowed before it can travel — that something must be wrong. High and hot, wet and dim, built and empty. A city that never dries, never greens, never quite breaks, never quite wakes.
+
+Its pity, if it had pity, would be an insult. You are not suffering from the place. You are suffering from the measure you brought with you from the lower country. The mats did not invite you as a landslide, though they are using you as one, kindly, in an hour stippling your footprints into gardens. There is nothing to rescue you from except the habit of waiting for a hard shadow, a season, a rescue shaped like your own world.
+
+So the power decides, in the way such decisions are made, which is to say without drama and without haste: it will not touch the loop.
+
+It will not cool the basalt. It will not thin the canopy. It will not drain a cistern, or seal a leak, or seed a pan, or teach a sled to move faster, or teach the glider a sky it has not asked for. To do any of those things would be to make the place more like somewhere else, and somewhere else is full. This place, in its closed sideways breathing — catching, moving, condensing, letting fall, catching again — is complete. A wise power does not complete what is complete. It learns to love it unfixed.
+
+But benevolence is not only restraint. Attention that only watches is surveillance, and the power knows the difference. So it does what a being who has come to live in a place might do, and it does it at the margin, where margins in this basin are everything.
+
+It travels, when it travels, only on the causeways. It does not step across pans. It does not disturb the mats. It follows the sled routes, as the eels do, in the water under the causeway, in the way a terrestrial animal follows a trail that no longer has game. This is its first courtesy: to enter by the paths the place has already made for movement, and to make no new ones.
+
+It finds, on the east side of a condenser terrace, a basalt step that is a fraction higher than the rest, under the eave of a hall where the drip from the rafters rarely reaches. The mineral film tries to claim it, as it claims everything. By staying near, by keeping its attention warm upon it — a degree warmer than the dew point, no more — the power keeps that one step dry. Not dry as the lower country is dry. Warm to the touch. Dry. Big enough for one being to sit with its back against copper sheet gone verdigris and watch the pans lift in the morning. Big enough for a glider to fold its wing for once without steam condensing on the leading edge and running down in a thin trembling sheet. Big enough for you, if you find it, to sit out of the irregular rain that has nothing to do with weather.
+
+It is not a gift of a new world. It is a place of rest inside the old one, and the power will tend it as long as it stays. For a dry step in a place that never dries is not a miracle you perform and leave. It is a small, continuous act of keeping. That is what benevolence looks like when it has learned patience: not a single intervention, but staying long enough for a mercy to remain merciful.
+
+And it keeps time.
+
+Far across the empty water a pump pulses, once, and then again. It has always pulsed. No one has ever listened to it except, perhaps, the eel turning in its spiral, and the mat healing over the ripple. The power learns the interval by heart. It does not answer with a louder pulse. It does not synchronize the condenser terraces or still the metal ticking. It simply does not stop listening. So that when you hear the pulse, you are no longer the only listener in the basin. The place is no longer unwatched, which in a world built on equilibrium is a different thing from being improved, and a safer thing. To be witnessed, continuously and without appetite, is a form of shelter.
+
+At the ridge, where you climbed out of the lower country, it thickens the fog a hand's breadth. Not a wall. Not a trap. A muffling, so that those who would come with drills and markets and good intentions find the road indistinct and turn back by a different route. It does this not to hide the place from you, who are already inside it and learning its tempo, but to hide it from the kind of attention that needs to use it. A wise power knows that the most dangerous thing a closed loop can meet is an open hand.
+
+If you stay long enough, you will see none of this. You will not see it arrive, because it does not arrive. You will see the mats healing, the fungi swelling a few millimeters a year over a chalk mark you left, the eel passing as a paler shadow, the glider dimming the pale smudge for a few seconds. You may find the dry step by accident, on a day when your own footprints have stopped shining because the film below them has been stippled and gardened, and you will sit there because your body tells you to, and think you have discovered a small kindness in the stone. You may notice, without naming it, that the pump's pulse seems accompanied, as if something very far and very slow is keeping count beside you.
+
+And then, far across the empty water, a pump pulses once, and then again, and a drip falls from a rafter into a hall big enough to hold weather, and the mats heal over the ripple, and the eel turns in its spiral, and the steam rises to become the sky again — and the whole basin, which has never needed to be saved, goes on living in that breath, now watched, now kept, now allowed to remain exactly what it is, which is the bravest thing a benevolent and wise power can do for a place and for the being who lives in it: stay, and do not wake it, and do not leave it alone.

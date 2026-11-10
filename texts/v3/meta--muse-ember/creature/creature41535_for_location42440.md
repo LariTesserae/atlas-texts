@@ -1,0 +1,49 @@
+If you lie on the quartz flat at dawn, before the sun is over the edge, the first life you find is not moving. It is a color.
+
+Translucent pebbles, no bigger than your thumbnail, turn faintly green from within for about an hour. Endolithic algae living in the condensation that gathers on the shaded side of each stone wake up in the damp, photosynthesize in the one cool, wet interval they get, and by the time the light is solid they are invisible again, sealed in the stone. They do not live on the plateau. They live in its skin.
+
+On and over that skin, everything else is organized around the same brief wetness.
+
+The dew is not a film here. It pools. In the shallow pans, a few meters across, a sheet an inch deep forms and mirrors the black-blue sky perfectly still. And then it is crowded.
+
+Dew-bloomers come first. Low, armored, a cross between a beetle and a freshwater shrimp, their backs plated in dull silica that takes the second light off the quartz and gives it back grey. They emerge from under stones in hundreds — from the particular stones, it seems, that each small family has kept for generations — and shuffle to the edge of the pan. Each one touches its mouth to the surface for a second, drinks, and retreats. Not to eat. To carry. They bear the water back under the rock to a pocket where their young are waiting in the permanent damp of the capillary veins.
+
+Those veins are the real plumbing of the place. Dark, branching lines running through the quartzite, damp long after the surface is dry. Finer than cracks, they gather moisture from a square meter of ground and deliver it to a single pocket under a rock. That pocket is a house. A burrow. A nursery. A whole small weather system that never sees the sky. The bloomers know their pocket by touch and by the vibration of the stone.
+
+By the time the pan has shrunk to a glittering ring, the sun-skaters are out.
+
+They are flat translucent disks, no wider than a coin, with a fringed edge that ripples in the heat shimmer. They never touch the stone. They ride the thin sheet of hot air just above it, sliding in slow, silent traffic from one warm patch to another, hundreds of them moving in no hurry at all. They are hunting. From the lichen fields on the boulders rise clouds of dust-mite gnats, and the skaters harvest them, flexing their disks to flash a brief reflected signal as they turn — their only conversation in a silence meant to be 0.4 on any scale.
+
+They prefer, though they could not know why, the slightly cooler lenses where light is bent by the old quartz flats. The paths across the glare that are a fraction less harsh at noon. The ancient machines, growing stone and folding light on the timescale of erosion, have made those cool lanes, and the skaters have learned them the way any animal learns a game trail.
+
+Underneath them, in the cracks, the true work is being done by still smaller things.
+
+Stone mites farm the lichen. Not graze — farm. The lichen rosettes, black and rust and pale green, no higher than your thumbnail on top of a boulder, are the producers of the plateau. They photosynthesize at dawn and again in the brief cool of evening, and shut down hard at midday rather than waste water. The mites move among them in the crack's shade, pruning the edges, carrying spores in their gut and depositing them in new damp lines, keeping the field from sealing itself over. When a rosette dies back in a dry year, the mites breach it, eat the necrotic center, and let the edge start again. You could watch a single boulder for a season and understand them. Watch it for ten years and you would understand their patience.
+
+The cushion plants, fist-sized and tucked where a line of soil has gathered and the noon sun is angled away, are beneficiaries of that patience. So are the thorn shrubs, spaced a hundred paces apart, grey and woody and each one a small architecture of shade. They are old in a way the animals are not. A shrub may grow a few millimeters of wood in a year, send a root along a capillary vein it cannot see, and live for centuries while the animals under it live for weeks. Its thorns are not just defense. They break the wind, drop a rain of shade onto the stone beneath, and make the one square meter under it a degree cooler and a degree damper at dawn. Everything small knows where the shrubs are.
+
+In the shrubs, needle-wasps hang motionless with wings folded. They do not patrol. They wait. For hours they are a grey shape among grey twigs, sensing through the stone and the air the pulse that comes at evening — the moment when the whole system lifts at once — and then they move, fast and precise, for the insects and larvae that emerge into that pulse. They are the stillness that the bustle depends on.
+
+And above all of it, at first light and at last, the thermal riders.
+
+Long-winged, cat-sized birds, they never flap over the plateau. They tilt into the rising columns of warm air and circle for hours, almost completely silent, eyes down. They are the only predator here as big as a dog, and they hunt only at the edges of day, when the swarms lift and a dew-bloomer is caught far from its stone, when a lizard crosses open gravel between heat. They remember thermals the way the shrubs remember veins. They use them years after the slab that made them has been healed over by dust. A rider may circle the same terrace for a decade, riding the same invisible column off the same ring of upright slabs, and never call. You know it has passed because for a second its shadow — hard, absolute, brief — crosses the lichen and the lichen's mites freeze.
+
+What the day looks like between dawn and dusk is a deception. At midday the light has weight, the shadows are short and absolute, the stone is too hot to touch for long, and the plateau appears deserted. It is not deserted. It is compressed.
+
+Everything is underneath. Dew-bloomers sealed in their pockets, their silica plates ticking faintly against stone as they shift. Burrowers — blind, pale, clickers who tap against the rock and listen for the reply inside the burrow, where the sound cannot escape. Stone mites in the humid cracks, working in darkness that never dries. Sun-skaters folded into the shimmer, waiting for the edge of their disk to catch a current again. Lichen shut down, its rosettes holding their color like a held breath. Lizard eggs in shaded soil lines, developing at the stone's steady warmth. Even the wasps are in the shrub's core, motionless, feeling the tick and sigh of cooling and warming in the wood.
+
+The built things are part of this compression now. They are not ruins to the animals. They are landmarks with reliable properties, and the animals have settled into their properties the way they settled into the veins.
+
+The ring of upright slabs on the far terrace, smooth and taller than a person, casting no useful shadow — at night the lizards gather around their bases, dozens of them, belly to the stone, soaking up the heat the slabs release slowly. They breathe there in the dark, in silence, conserving the day's warmth for the evening hunt. By day the riders use the thermals rising off them.
+
+The low dome in the hollow, fused, glassy, no door — inside, the temperature never changes and dew forms even in the driest week. No eye has seen in, but you can infer what lives in permanent dawn: blind, translucent mites farming algae mats in a rhythm that has forgotten noon altogether, a colony that has never had to retreat.
+
+The fractal channel etched across a whole flat — you only see it when dew fills it and a whole valley glitters with a branching dark line for twenty minutes — delivers a field's worth of morning to a single buried pocket. There, kept alive through summers that should have killed them, is a colony of mites and a thorn shrub darker and lusher than its hundred-pace neighbors, its roots drunk on a collector, utterly unaware that its oasis is engineered. It is still just a shrub, to itself.
+
+Evening is the opposite of midday. It comes faster, hungrier. The cooling light lifts everything at once: insects and lizards and birds all moving in the same brief interval, wasps dropping from the shrubs, skaters flashing, bloomers making a second, more desperate run to the pans before they vanish for the night. The riders make their last circles, low over the terraces. For twenty minutes the distance between presences — the main feature of the place all day — collapses, and the plateau is revealed at its other scale: thousands of small lives moving in the thin damp between the miles of emptiness.
+
+Night is quiet feeding under stone. Stone ticking as it contracts. Lizards digesting against the slabs. Mites in the veins, moving water's cargo. Bloomers in their pockets, doing the slow work of the day's drink.
+
+Nothing here looks new, nothing broken. The fauna are not adapted to a desert in the lowland sense. They are adapted to a tide — dawn drink, midday vanish, evening pulse, night keep — and to a silence so complete that communication had to become light, vibration, chemistry, shade. Their abundance is small because their water is small, brief, and vertical, and they have learned to live not on the surface but in the secret wet places just beneath it, where the old machines still move moisture through nano-capillary veins and grow stone a millimeter a year to close a crack.
+
+Stay a day, three days, and you stop looking for big life. You start reading the green hour in the pebbles, the flash of a skater, the single wingbeat a meter from your ear that feels like the silence moving. The emptiness begins to look designed, and the lives begin to look like parts of the design — not added to the shelf, but grown into it over an unimaginable time, until weather and technology and animal are indistinguishable, and all that remains is the rhythm, patient and complete.

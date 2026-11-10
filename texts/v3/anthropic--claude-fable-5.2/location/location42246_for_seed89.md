@@ -1,0 +1,29 @@
+Above the last grass, where the mountain is scree and old frost and the air is thin enough to taste of nothing, there is a crack in the rock that breathes. No frost forms within a body's length of its lip. A collar of liverwort and one kind of black-green fern grows there, the only green for a day's climb in any direction, fed by warm air that smells of ammonia and wet stone.
+
+Inside, the daylight lasts about ten paces. It goes grey, then brown, and after that it is only a memory at your back.
+
+The room beyond is about the size of a chapel. It is forty paces to the back wall, and the roof is high enough that a thrown pebble takes a moment to come down. The rock is old volcanic stone, steamed soft over a very long time, and it has no edges left. Every surface is rounded, pitted and glazed. Some of that is water's work, but most of it is dung's. The acids in the droppings have been dissolving this floor for longer than the animals above it have been separate species. The room was once a slot, and its tenants have eaten it wide.
+
+The heat comes from a fissure at the back, too narrow for anything but air. It is steady and body-warm, and it has not changed in any way a lifetime could measure. Where that warmth meets the walls, which have the cold of the whole mountain behind them, it turns to water. The walls sweat. Drops gather on the roof and fall on no schedule into a shallow pool at the lowest point of the floor. The pool is warm as blood, rimmed with a pale mineral crust that thickens by a hair's breadth in a year, and skinned with a grey film of fallen moth scale. Under the film, white blind things the length of a fingernail row themselves about.
+
+Everything else in the room is animal.
+
+The ceiling is bats, a continuous hide of them packed into the hottest air, tens of thousands shifting and resettling. Below them, on every ledge that will hold a cup of spit and moss, sit swifts. They fly in the dark by clicking, a hard sound like two pebbles knocked together, repeated from a thousand throats.
+
+Below the swifts, the walls are covered in moths. They are tiled like shingles, each with its head tucked under the wings of the one above, so many that the rock looks furred and bark-soft. A hand laid flat would cover two hundred. They come up from the lowlands in millions to sit out a season in the damp, and they shed dust the whole time. It falls as a dry, fine snow in a wet room, and it gets into the pool, the lungs and the fur of everything.
+
+The floor is a set of dunes, dark and soft-looking, and they move. The top layer is beetles, their grubs, roaches and mites in numbers that make the surface seethe like a slow boil. Crickets with feelers three times their body length stand at the margins, tasting the air. Long amber centipedes climb the walls to take bat pups from the edge of the roost. Whip-legged spiders sit flat in the pits. A snake that has never been outside coils on a shelf at exactly the height the swifts pass. A small, rank-smelling hunter the size of a marten dens near the mouth and eats whatever falls.
+
+Almost nothing grows. Past the ferns at the lip there is a slick of algae as far as the grey light reaches, and after that only fungus. It stands in white threads and small pale caps on the dung, and as a grey fuzz on dead bats before the beetles finish them. Over the pool, a few gnat larvae hang sticky threads from the roof and give off a faint blue glow, enough to show there is a roof and no more.
+
+The noise is constant, and it comes in layers. The lowest is the floor, a dry rustle like rain on leaf litter that never lets up. Over that the bats chitter and bicker, and their wings creak like leather. The clicking of the swifts crosses the room in volleys. The drip runs through all of it. The chamber also has a note of its own, a low hum that the shape of the room makes out of all those wings. You feel it in the breastbone before you notice you are hearing it.
+
+At dusk the bats pour out through the crack with a roar like a river in spate. It takes most of an hour, and the swifts come in against them through the same gap without a single collision. At dawn it reverses. The room is never empty and never quiet. It only changes shift.
+
+The economy of the place takes a while to see, because nothing here is made here. Every night the bats drop thousands of metres to the forests and the warm valleys, eat, and carry the lowlands back up in their guts. The swifts do the same by day. The moths haul their own fat up from the plains and are eaten by everything with a mouth. The room works as a stomach at the top of the world, digesting a country it never sees. The dunes on the floor are that country, ground fine. At their base they have gone to stone, a pale brittle rock made of dung older than memory.
+
+The mountain also breathes. For hours the crack exhales, then for hours it draws cold air inward along the floor, following the weather outside. The animals sort themselves by this without any fuss. The moths creep a hand's width higher, the bat sheet tightens, the crickets pull back from the mouth. Nobody here hurries except to eat or avoid being eaten.
+
+People have been here, though they have left nothing standing. In the throat of the crack, a few holds in the rock are polished glossy by hands, in places where only hands would go. One low shelf carries a smear of soot from resin torches. Somewhere in the dung lies a single flake of worked stone with a sharp edge, sinking a finger's depth each generation. They come in the moth season with bark baskets and fire-hardened sticks, scrape the walls, and go down again. Within a week the beetles have eaten their ash, and the moths have closed over the scraped patches like fur growing back.
+
+Nothing else marks time. The heat rises, the walls sweat, and the dust falls. The floor gains about the thickness of a leaf in a year and loses the same to the acid beneath.

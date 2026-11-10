@@ -1,0 +1,37 @@
+It noticed the place late, and not for the usual reasons.
+
+Things that draw the attention of such a power usually announce themselves. They burn, or they bloom, or they break in a way that cannot be ignored. A city empties in panic, a forest is taken down to stumps, a sea rises and does not go back down. Those places call out, whether in terror or in triumph, and something vast turns toward the sound.
+
+This plateau did not call out. From far away, even to it, it did not look like a city at all, or like anything in need of an answer. It looked like high ground that had learned to weep and then to keep weeping, steadily, at its own pace. No smoke. No light. No chorus. A low cloud over wet stone, holding itself there because the air had nowhere else to go.
+
+That was why it came down to look. Not because something was wrong in the obvious way, but because nothing was asking. And a benevolent power, if it is also wise, learns to be suspicious of places that ask for nothing — it goes to see whether their silence is peace, or whether their silence is only the stage before a fall.
+
+It walked the way a visitor walks here. A morning of terraces and covered passages. A finger-wide channel at its feet carrying roof-water to a cistern. Alleys to be taken sideways. Courtyards that were wells. The sound dying in half a breath, 0.2 on any honest scale, mist and thick wall absorbing it. A single drip somewhere above, falling every few seconds, echoing under a vault. The soft tick of stone cooling after sun. Cloth rustling on a distant figure in heavy wool.
+
+It found a keeper eventually, bent over a channel, testing each step on slick rock with the toe of a bound shoe before trusting it. Broad hands, chapped, nails cut short. Clearing grit with a small stone. Not hurrying, because the work was continuous and would outlast the worker. And in that moment the first, simple plan formed in it, as it forms in any benevolent attention: to improve.
+
+It could dry the stone. Heat the houses from within so their floors no longer seeped in spring. It could bring wood up from the lower country and glass for the shutters and lamps for the niches that were never lit, so the city would be visible at night from the moor. It could fill the empty rooms — there were thousands of them, soaked and cold and shuttered — with people who would stay all year. It could make the plateau lush, since there was water in such abundance in the soil half a metre down. It could straighten the retaining walls that leaned a degree or two into the hill. It could make it a city as a city is supposed to be lived in.
+
+Each thought was kind. Each thought, examined at the place's own scale, was a replacement.
+
+To dry the stone for comfort would be to kill the skin of water that forms at dawn and runs off at noon — a hair-thick habitat for rotifers and tardigrades and bacteria, drying to nothing and returning on the west-facing walls at evening. To fill the houses would require wood, smoke, glass, noise, traffic, all the things the plateau has spent centuries learning to do without, and the water would then have to be fought instead of kept moving correctly. To make it lush would be to ask for a forest where the wind crosses unbroken and the soil is held in terraces by wall upon wall upon wall. To straighten the walls would be to deny the slow creep that is the plateau's way of staying whole. To light the lamp-niches would be to evict the alpine choughs who nest there precisely because they are empty.
+
+And the keepers — they were not, when watched closely, the victims of the damp. They were not waiting to be rescued from a place that had failed them. They lived on the edges of the middle districts, near the dry high points, seasonally present, deliberately absent in winter. They ate cold from storage. They slept by daylight. They counted not numbers but states: this cistern is sinking, that wall is leaning a degree more than last season, this doorway has been painted over by lichen another centimetre. Their children, few and long unchanged in size, learned the drainage before anything else — which street floods first, which passage echoes, which wall sweats first at dusk.
+
+They were not suffering in the way the empty houses suggested. They were tending, and being kept in turn by the stone. The lichen was not ruin; it was timekeeping. The pools that did not evaporate but slowly sank were not stagnation; they were where the pond life lived. The silence was not absence; it was absorption. The city was not unfinished. Its emptiness was its method: space left for water to pass, for goods to be kept above the seep, for a channel cleared in the morning to carry silt by afternoon and be cleared again.
+
+A power that is only benevolent would have fixed all of it, and in fixing, ended it.
+
+A power that is also wise does the harder thing. It comes down to the rate of the place, and stays there.
+
+It does not straighten the walls. It braces them, with packed earth and flat stone carried up three terraces at walking pace, adding to the lean so the wall can go on leaning well for another century. It does not clear every channel. It learns, as the children learn, which one floods first, and it clears that one on the morning when the keeper who would have cleared it has not yet returned from lower country in spring — not as a miracle, not noticeably, but so that the water finds its old path instead of finding a doorway. It does not light the niches. It keeps them empty. It does not add birdsong. It leaves the occasional click of a chough, and the soft wing-rustle as it slips out into mist. It does not warm the lizard on the one upper surface the thin sun can warm. It lets it lie motionless for an hour, breathing barely visibly.
+
+It does not do these things for the people, exactly. It does them for the keepability of the place — so that it remains a place that can be tended, by whoever tends it, in the way it has always been tended.
+
+And then, mostly, it does nothing. That is the discipline. It sits — if sitting is the word — in a covered passage that runs damp and cool and completely silent for hundreds of metres under other buildings, and listens to the drip fall and echo and fall again. It does not count the drips. It learns their states, the way the keepers do. It watches the condensation return at evening, first on the high west-facing walls, then everywhere, and lets the city go uniformly dark as its stone re-wets. There are no lights to mark it, and it does not add one.
+
+In time it understands that it has not changed the plateau, and that the plateau has changed it. It came to see if the place needed something from it. The place, in its wet, patient, weather-making way, had something to give: an instruction in how to hold water without grasping it, how to move without hurrying, how to be present without occupying. How to attend, at intervals, seasonally, like a keeper — and then to leave, down the weather-softened steps, without claiming to have saved anything.
+
+From far away it still does not look like a city. Even a benevolent and wise power does not make it legible. The cloud still hangs over it in the evening. The thin lines of water still catch the last normal light. The streams in the streets still sound slightly louder in the cold.
+
+And the power, which could have done so much, does the only thing worthy of what it found: it keeps its attention light, and damp, and undisturbed, for as long as the rain keeps falling on stone that has learned to hold it.

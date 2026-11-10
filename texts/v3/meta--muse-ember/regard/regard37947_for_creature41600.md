@@ -1,0 +1,37 @@
+It does not arrive.
+
+That is the first thing to understand about it, and it changes everything else. There is no coming over the rim, no descent into the bowl, no light added to the ordinary daylight that is already there. If it has a posture at all, it is the posture of standing still in the marsh longer than the visitor does — not above it, not looking down on it, but listening at its own volume.
+
+Its attention came the way the water comes here: not as rain, not as a flood, but as seepage through stone. It heard, first, not a call or a prayer, but chewing. A stem being cut methodically in the sedge, bite after bite. A muskrat on its platform. A beaver dragging a branch in the dark. A low sound, in a place built to absorb sound. A power that was only powerful would have amplified itself to hear it. This one lowered itself.
+
+If it were merely benevolent, it would act. That is a kind of love, and a kind of blindness.
+
+It would warm the bowl. The damp cold that gets into the back of the throat and into wet boots is not an abstraction to anything that lives here; it is the condition of every dawn. A merely benevolent power would lift it, the way you lift a child out of icy water. It would dry the peat, melt the skim on the side pools, let the frogs move faster and the tadpoles blacken and disperse sooner.
+
+It would remove the pike from the deep pool behind the dam, because the pike's stillness is a kind of terror to everything smaller. It would keep the mink from slipping between the lodges, and the otter from marking its latrines on the hummocks where the voles know to fear. It would teach the beavers to build in stone so that no flood could breach them, and the muskrats to build higher so that no water could ever enter. It would give the voles a voice, so they could ask for help in a language that could be answered.
+
+It would lift the whole city, gently, out of its hole in the ground and set it in the sun where it could be seen and praised and saved. It would name it a wonder.
+
+Every one of those mercies would unmake the place it intended to save. The cold is what slows the rot and keeps the sphagnum spongy and the water clear an inch below the surface. The fracture and the frost are what keep the limestone fresh and the strata bare. The pike is what keeps the sticklebacks tight to the sedge roots, and the dead fish it leaves — or does not leave — is what feeds the otter, and the otter's passing is part of what keeps the muskrat terraces from growing too thick and choking the channel. The dams must breach, or the terraces would hold too much, too deep, for too long. The lodges must slump into peat within a week of abandonment, or the ground would never rise a millimeter at a time. The willow must be eaten back, or there would be no new willow.
+
+A power that was only wise would do something else, and almost as damaging. It would catalog. It would turn the low volume up until it could be studied, label the dragonfly nymphs under the stones, count the burrow mouths, make a map of the causeways. It would preserve it perfectly, the way you preserve a specimen, and in preserving it would stop it. A city whose center is everywhere and nowhere cannot survive being given a center, a king, a plan.
+
+Benevolent and wise together, it does not improve. It does not appoint. It does not become the one being to live in a place that has no one being in it.
+
+What it does, if anything, is almost nothing inside the bowl, and something small and steady at its edges.
+
+It keeps the water circuit intact. Water comes over the far rim as a waterfall and goes out at the near end into a field of sink-cracks, and in between it arrives for days through the rock after the rain has stopped. So it keeps the plateau above from being cut, drained, paved, quarried, or fenced off by a dry road. It keeps the fracture a cleft — a worn line between fallen blocks where a foot can slip down — and not a gate. It keeps the loud world, with its dry boots and its knives and its good intentions, at a distance where its noise does not carry into the still air. That is its intervention: not on the marsh, but on everything that would enter the marsh from outside and mistake building for mastery.
+
+Inside, it lets the rules stand. Water is master. Cold settles. Building is survival. Nothing is wasted. It does not disperse the morning mist that hides the marsh from itself. It does not stop the skin of ice, or the finger's breadth rise in the afternoon, or the rebuilding before dawn after a flood has taken a dam apart twig by twig. It does not make the city immortal. A dynamic equilibrium that has held because the work never stops would die if the work were done for it, or finished. It allows the lodge to slump, the thicket to rustle without wind and be eaten back, the bone to go into a dam and the dead reed into a wall and the dead animal into peat. If one day the bowl fills with peat and is no longer wet, it will let that happen too, in its own time, without hurry.
+
+For the being who entered — you, with your footprints filling with water — it does the same. It does not stop you, and it does not speak to you. It does not lift you out or warn you back or give you a revelation to take away. It lets you learn the rules by standing in it: you do not drink from the still pools, you do not expect to walk far without wading, you do not stay.
+
+That is also a kind of benevolence. It lets you be cold and wet and quiet and ordinary in a place that is cold and wet and quiet and ordinary, and then it lets you go. Your breath fogs at midday. A water vole crosses the causeway in front of you and goes on. The drips keep their slow account on the limestone behind you. You leave with the damp still in your boots, and it dries by evening, and you carry away no map that would bring others with drier feet and straighter lines. Your memory, if it is exact, will still be insufficient — the rim withdraws, the mist comes up white, the basins step down into another basin you cannot quite see. The place remains unfindable in the way that matters: unmanageable.
+
+This is what it would do, if anything: remember without grasping. Hold the place the way the bowl holds the cold at night — by being there, low, and not raising its voice.
+
+It will not ask to be thanked. Thanks, here, would be another loudness, and nothing in the marsh needs it. It will not marvel, either, in the human way of marveling that turns a thing into a miracle and then expects the miracle to perform. It came to attention the way water comes through stone, and it will stay the way water stays: seeping, keeping the terraces wet, keeping the green green, keeping the chewing going on in the sedge after you have gone.
+
+Tomorrow, if you could return unseen, it would be the same ordinary daylight over the edge, grey-blue and true. The sky would still be an oval ceiling. The drips would still be ticking, plinking, seeping. Under the surface film a fish eye would watch. In the willows, a wren would be in the fork of the dwarf birch. Somewhere, patiently, something would be chewing at a stem.
+
+And the power that noticed would still be there — not above, not inside, not in charge — just attending, at the volume of the place, letting the city that builds itself with tooth and paw and bill and body keep building itself, without tools, without noise, and without rest.

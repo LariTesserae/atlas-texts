@@ -1,0 +1,39 @@
+It does not arrive.
+
+There is no descent, no change in the light, no brightening of the mist at head height. The drip on the north and west does not freak or falter. The rings in the main pool do not widen to announce it. If you are standing in the basin with your boots soaked through, you will feel nothing new. That is the first of its decisions, and the most important: to notice a place without entering it the way a foot enters it.
+
+It noticed, if noticing is the word, not because the place signaled. Nothing here signals. No flare, no song, no green shooting up where it was not before. In a world full of places becoming — burning, spawning, flooding, dying loudly — this one had finished becoming and had not died. It had settled. Warm, wet, packed stone to stone, water arriving and returning in the same small circle, a biofilm thickening into porcelain rock at the edge of a three-meter pool. A whole landscape the size of a room, complete.
+
+A kind power, alone, would have improved it.
+
+That is the temptation it had to refuse. A kind power would have brought plants, because there are none, because the eye keeps looking for them. It would have brought birds to break the quiet, frogs to the warm edge, fish to the center. It would have given the newt a mate, the beetle a meadow, the snails — whose white houses are already wedging into the cobbles like fossils in formation — something green to eat instead of mineral film. It would have cleared the water, cooled it, let the sun in, made it usable, made it healing, made it pretty.
+
+Wise, it understood that every one of those mercies would have been an ending. The place is not a broken garden. It is a different kind of completeness, one that has not required a leaf in a very long time. To add life in the familiar form would not have saved the life that is here. It would have replaced it.
+
+So what it does is mostly refusal, sustained. This is not passivity. Stillness here is not the absence of work; it is the work. Everything in the basin has learned how to hold itself: the cobbles holding their water, the water holding its heat, the microbes holding to the stone and precipitating it, the stone holding the microbes. The power holds itself in the same way.
+
+It becomes, in another register, the rim.
+
+The rim already stops the view and smothers the wind. The power stops the world in the other sense. Plans are made elsewhere — a track that would conveniently pass, a borehole survey upstream for geothermal heat, a boardwalk, a small spa in the basin, a research station that would net the newt, bottle the film, scrape the buff crust to see what lives in it. None of these is struck down. There are no miracles. People merely lose interest a few fields away. A surveyor forgets the exact location. A road is routed, for sensible reasons, around a low wet field that looks like nothing. Visitors who do find it come the way people have always come: briefly, for an hour, to sit with their feet in the shallow water beside the three scooped basins, to be quieted by their own breathing, and then to get up and leave the stones as they found them. Their heat and sweat add a little to the condensation and are taken back into the circle. The mineral plates they crack seal over.
+
+It does not rebuild the low arc of dry-laid stone on the windward side. The missing course is part of the record of visiting, not of owning. It does not remove the pair of hammerstones, foreign rock worn smooth by a palm, left side by side. It does not lift out the softened pottery shards half-buried in the clay film. Those are not litter in the basin. They are the proof that humans have only ever been guests, and a wise power does not let a guest become a tenant — not out of cruelty to the guest, but out of respect for the host.
+
+What it tends, it tends by keeping the interval.
+
+Not by heating the pool — the heat is already there, from below — but by seeing that no unseasonable cold comes in to break the bargain the newt has made with warm water. Not by feeding the beetle on its southern slab, but by ensuring the film on that high stone is neither washed away nor allowed to dry. Not by multiplying the microbes, but by letting them stay at the thickness they are, translucent, grey, a few cells thick, covering the submerged cobbles from rim to center without bloom or die-back. When a bead gathers along a crack and drops, the power does not speed it or slow it. It counts, in its own timescale, the same way you began to count after an hour, and finds the count satisfactory.
+
+The being who lives in it — if you must call the film that, the whole distributed skin of the place — is not treated as a pet or a project. It is treated as an elder. The two meet, if meet is the word, at a pace neither has to hurry to accommodate the other. The power learns slowness from the precipitation. Layer by layer, white and ochre, a few centimeters thick at the pool's edge, rock growing because living things have made it, living things growing because rock has given them a warm, unchanging surface. A wise power can recognize a peer when it sees one, even when the peer has no face, no voice, only the slickness under a boot.
+
+It does not name the newt. It does not name the beetle. It does not keep a catalog, although it remembers them perfectly — this one hanging a hand's breadth below the surface, gills feathery and almost still, shifting a body-length left and hanging again; that one, shell black and polished by wetness, crossing the same slab year after year. Whether it is the same newt as last month does not matter to the basin, and so it does not matter, finally, to the power either. What matters is that there is a newt-shaped place in the equilibrium, and that it is not hurried out of it.
+
+This is its benevolence, then: to keep a small, saturated world from being asked to be anything else, and to keep larger powers — human urgency, human usefulness, human kindness — from asking it either. Its interventions are subtractions. A little less access. A little less light. A little less curiosity with hands. No fences, no signs, no explanation. People leave without quite knowing why they left, and the crust seals behind them.
+
+And yet it is not possessive. It has not frozen the basin against time. Warmth will cool, somewhere far off in the future, when the heat below changes its mind. The drip will one day be an interval no one counts. The shells will finish becoming stones. A wise power knows that holding a thing in its final shape forever would be a different kind of violence than improving it. So it will not resurrect the snails. It will not save the beetle's grandchildren. It will allow the equilibrium to end when its season ends, the way the basin allowed the visitors to come and go.
+
+What it will not allow to end is the remembering.
+
+It will remember every ring overlapping the eighteen rings already there. It will remember the stain on the rock where the pool has always stood. It will remember the exact dampness of a stone at the lip of the place, beading slowly when brushed. Memory, for a power that does not need to act with its hands, is not a passive thing. It is a way of keeping a place company without heating it, without wetting it further, without adding a footprint.
+
+If you stay long enough, the basin teaches you its rule without announcing it: nothing here is going to happen. The power has simply taken that rule into itself, and made it a promise. It sits in the shallow water, as the brief visitors sat, only longer, and it leaves the stones as it found them — packed, shining, locked together, holding their heat and their water in a perfect, small circle, with no green thing growing anywhere in it at all.
+
+And that, for this place, is enough to be loved.

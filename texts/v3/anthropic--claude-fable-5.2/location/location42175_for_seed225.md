@@ -1,0 +1,23 @@
+The land above is flat scrub, and the hollow gives no warning. A patch of ground is simply brighter than the rest, and then there is an edge. Below the edge the earth opens into a bell-shaped chamber of white gypsum. The mouth is perhaps twenty paces across, the floor twice that, and the floor lies about the height of six people down. The roof fell in long ago. Its rubble sits in the middle as a low cone, every broken face long since healed under a crust of regrown crystal, so that it looks poured rather than fallen.
+
+The first rule of the place is the light. Sun comes through the mouth, strikes the pale floor, and is thrown onto walls that curve inward overhead and throw it back. By mid-morning the chamber is brighter than the sky that feeds it. By noon it has no shadows. A hand held over the floor darkens nothing. The walls lose their curve and distance, and from the rim the whole hollow flattens into a white disc with a few marks floating on it.
+
+Almost nothing fills the space. There is the cone, a floor of fine gypsum flour, and then air, warm and still and faintly mineral, like the smell of a wet plate. Everything alive keeps to the walls.
+
+A great deal is alive there. Under the overhang, where the bell narrows, swifts have glued their nests in the thousands, a grey band like a tide line. Pale geckos the colour of the rock hold the walls head-down, one to every arm's length or so. They are visible only when they move, and they seldom do. White moths rest with their wings pressed flat. Small snails graze a film of algae and leave polished trails that catch the light. Bees keep a crevice on the east side, and the stone beneath it is stained amber.
+
+None of these animals crosses the middle. The swifts come in over the lip and go down along the wall in a spiral, always turning the same way, and they leave by the same route in reverse. Perhaps nothing can judge distance in the open centre. Perhaps there is another reason. Either way, the flour on the floor between the cone and the walls carries no tracks at all.
+
+It is quiet, though not silent. The walls are soft with a powdery efflorescence, and they swallow sound: a clap gives nothing back. The swifts, which scream over the scrub above, stop calling as they cross the rim. Inside there is only the hiss of their wings going round, the bees' low hum, and a drip.
+
+The drip is on the north wall, where a seam weeps. It has built a smooth mound beneath itself and worn a basin into the top of it, about as wide as a shield and a finger deep. This is the only standing water. Tiny frogs, nearly translucent, sit round its edge like a ring of wet pebbles.
+
+Green begins here and does not get far. A black-green stain fans out below the seam. There are a few tufts of maidenhair and a cushion of moss. A single fig grows on the rim above, and it has sent three roots down the full height of the wall to drink. They hang taut as cords and are barked white with dust. On the cone, where droppings and seeds fall from the sky, a few thin grasses stand without leaning in any direction.
+
+The rest of the moisture arrives as breath. Cool air sinks into the chamber at night, and at dawn the walls sweat and darken a shade, then dry from the top down as the sun climbs. Rain is rare. When it comes it falls as a single column onto the cone and is gone into the flour within the hour.
+
+People have been here, but they built nothing. A line of holds descends the south wall, each one worn glossy by palms and heels. At about shoulder height a band of ochre strokes runs round the whole chamber, short vertical dashes a hand apart, faded to the pink of a healed scar. They are there for seeing by. In the shadowless hours the dashes are the only thing that says where the wall is, and whoever made them needed to know. By the basin there is a rounded hammerstone and a shallow dish ground into a slab, with white paste dried in its bottom. They came for the flour, or the nests, or the water. Whatever they took, they did not stay.
+
+Change here is slow. The oval of direct sun walks across the floor each day and shifts its path a little with the season. The drip mound gains about the thickness of a fingernail in a lifetime. The ochre fades.
+
+At dusk the hollow keeps its light longer than it should. The scrub above goes dark while the walls below still hold a dim, even paleness for most of an hour. It is in that light that the geckos finally begin to move.

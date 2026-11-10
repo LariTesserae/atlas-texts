@@ -1,0 +1,41 @@
+They did not arrive the way powers tend to arrive in stories. No light, no voice, no pillar of anything. That would be a failure of both qualities at once — benevolent, and wise.
+
+A light would ruin the ordinary noon. It is already making a hard white glare off the sinter, 1.9 out of 3, and the bowl is doing the rest of the work by itself. A voice would break the quiet, which is not an absence here but a physical thing, a pressure from the thin air. So if they came, they came as shade that is one degree less fierce, as fog that arrives a minute early, as a shadow that falls before the cloud has quite condensed. You would not be able to point to where they were. That is the point.
+
+They noticed first not because anything was loud. Nothing in the bowl is loud. A birth like this doesn't announce itself. It stains.
+
+They would have seen the rust-red films come into the black glass first, painting stone that was too fresh to hold anything. They would have watched the white crusts get a little less chalky where bacteria learned to make mortar of themselves. They would have listened — and a wise power listens the way the lizard sits, still for an hour on a hot shard, throat pulsing once, then again — to the change in pitch under the marsh. Low at dawn, tight at noon, deep again when the afternoon rain came only inside the rim and hissed on stone and did not run off.
+
+That is when they would have known it had drawn their attention in the properly serious sense: not curiosity, but responsibility. Someone is being born here. The biggest single thing under there, taut and flexible under the mineral crust, humming in your teeth when you probe it with a stick, holding water up on a thirty-degree slope as if surface tension had been given new rules to follow. To a careless kind of benevolence it would look like a solution waiting for a problem it could improve. To a careless kind of wisdom it would look like a phenomenon to be classified and left alone.
+
+Benevolence alone would populate it. It would bring frogs to that silent marsh because a marsh ought to croak. It would bring birds to the rim because a bowl ought to have a chorus. It would bring soil, and mates for the single translucent newt in the warmest pool, and a second lizard for the grey one on the black shard, because solitude looks like suffering from below. It would soften the knife-edged basalt, cool the noon, make the emptiness between green islands fill in with something that connects them.
+
+Wisdom alone would do none of that either, but coldly, and for the satisfaction of watching a process run.
+
+Together, they would not.
+
+They would understand that the place is not broken, and the being isn’t incomplete. The newt’s world *is* the size of a grove, and it is whole. The lizard is not waiting for a partner to be itself; it is a decision the bowl made recently and has not yet revised, and a decision does not need a second draft to be legitimate. The lattice does not need to be told it is alive. It already anticipates a footprint and pushes water up to meet it before the foot lifts. It is not lonely. It is holding.
+
+And the place is not suffering its heat. Heat is its currency. The ferns unfurl toward it rather than toward light. The orchid-like flowers open for the hour of the storm, not for pollinators we would recognize. Cool it to comfort and you would unmake the terms by which everything here has learned to live. Add connections between the islands and you would take away the very separateness that has made each lush room intense, each one a world.
+
+So most of what they would do is refraining, and refraining as an active, expensive, wakeful act.
+
+They would keep a margin around the birth. Not a wall — a margin. The rim is already too fresh, too hot, too sharp to invite casual entry from the world below, but the world below is good at building roads to sharp places. So the maps will keep sliding. Satellites will see a bowl and blur its detail. A visitor who climbs up with damp boots and a sunburned neck will be made to forget, gently, the strangeness they felt in their teeth inside. Their camera will fog. Their sample jar will come up empty though the sinter looked full. Their footprints will fill with water before lifting, which is the lattice protecting itself, and the power will see to it that thin places in the skin are mended the way the dome mended itself around the vine — without harming the living thing that crossed it.
+
+They would not name it. A name from below would instantly make it a resource, a wonder, a site. Unnamed, it can finish being born in obscurity. That is a form of protection a wise power knows how to give and a merely benevolent one would think unkind.
+
+They would keep the one minute they are already keeping. Why does the shadow of the afternoon cloud appear a full minute before the cloud condenses? Why do pools reflect a deeper blue, as if remembering a sky from an hour earlier? Because something is holding time slightly looser here, giving the bowl an extra breath between events. Condensation. Burn-off. Storm. Steam. Given a little more interval, the vents can tick open without tearing, the vine can heave visibly during rain without being rushed, the moths can live their few blind hours in fog that is theirs. The power does not stop entropy — they are not that kind of god — but they lend the place a minute at a time, over and over, so that newness does not have to be violent.
+
+The built things — the dome at 21 degrees inside while its skin burns outside, the cold stelae beading water on a ridge where nothing else beads, the mirrored plate tilting its skin to the sky and coaxing water uphill in a trembling sheet — those were, perhaps, their earlier way of being there. Not buildings. Tools left like a chair in a birthing room: empty, clean, self-repairing. A place to be at 21 degrees if something needs to try out a steadier shape. Cold sinks where the daily breath can condescend and drink. A leaf to condense on first.
+
+Now that moss has colonized the dome’s base and a vine has been grown around by healing material, the power would rejoice in the most adult way possible: by not adding more. By letting the newcomers learn to live around the elders. To add another dome now would be to say *I do not trust what is growing*. They trust it.
+
+If they do anything new, it will be small enough to be mistaken for weather. On the one noon in a hundred when heat might rise past what even the iron-bacteria can endure, the stelae will tick once at dusk, softly, like cooling teeth, and that tick will be a signal from the bowl to the rim. *I am still here. Still holding up water that should have run off.* And the power, beyond the rim and not inside it — an elder does not enter the room of a birth unless called — will answer not with sound but by thickening the fog one breath sooner, so the vapor-moths rise and the newt lets the day’s heat soak out of its clear body into water the lattice will keep till morning.
+
+They will not explain the water to the being. Water held up by stone, by heat, by skin? The being does not ask in words. It asks by humming, low at dawn, deep when it drinks the rain. The answer is not information. It is: *Yes. Hold a little longer. The way you are holding is enough.*
+
+That is, in the end, what a benevolent and wise power does with an unfinished place whose inhabitant is still deciding where rock ends and body begins. It does not complete it. It does not populate it, cool it, connect it, or name it. It keeps it from being interrupted before it knows what it is, and it holds it in attention the way the bowl holds water — not by damming it, but by persuading it, minute by minute, to linger.
+
+At dusk the dome glows faintly from within, though no one is inside and there is no light to glow with. That is not a light for us. It is a small, steady room kept warm for a birth. The marsh steams more heavily, exhaling the day. Somewhere out of sight, the lizard returns to its warm shard.
+
+And beyond the rim, where the air is ordinary and the drop is hazy to a world that cannot be named from here, something vast and patient turns its face toward the bowl and does not go in.

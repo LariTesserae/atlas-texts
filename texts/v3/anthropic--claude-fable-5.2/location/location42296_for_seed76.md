@@ -1,0 +1,23 @@
+The plateau sits above where clouds form. It is wider than most countries and nearly flat, a tableland of pale stone lifted so long ago that everything able to fall from it has fallen. No peaks are left. There are low rounded stubs of harder rock, polished on their windward faces, and long shallow swales that were once the floors of lakes. The lakes left their beaches behind as faint terraces, ring inside ring, and the terraces are white.
+
+The white is gypsum. It lies in crusts, in blades, in fields of loose crystal that crunch like dry snow, and it throws back the light. At this height the sky is a hard dark blue that deepens toward violet overhead, and the sun is small and fierce. Shadows have sharp edges. The air is cool even at noon, but any surface facing the sun is warm to the touch, and anything shaded stays cold all day.
+
+There is no water to speak of. No stream has ever cut a channel here, and nothing pools. Before dawn a thin rime sometimes grows on the stones, and when the sun reaches it, it goes straight back into the air without ever becoming wet.
+
+And yet the plateau is green. The green is not continuous. It comes in mounds: dense domed cushions, some the size of a fist, most the size of a boulder, the oldest as large as a house. Each is a single plant, packed so tightly that its surface is firm as a saddle, made of thousands of tiny resinous rosettes pressed shoulder to shoulder. In the bright air they look almost wet. Up close they smell of pine and something sharper, like struck flint.
+
+Between the mounds lie thirty, fifty, a hundred paces of bare white ground. The spacing is so even it looks deliberate. It is only what the roots have settled on after a very long time, each cushion claiming exactly the stone it needs.
+
+They drink the stone. Gypsum holds water locked inside its crystals, and the roots, fine as hair and matted in a felt beneath each mound, pull that water out one molecule at a time. What is left afterward is a different mineral, chalkier and duller, which will not give anything more.
+
+So the cushions move. Each one grows along its leeward edge into fresh ground and dies back on its windward edge, a hand's width in a century. Behind every mound runs a trail of grey-white powder, straight as a ruled line, pointing upwind. The oldest trails run for kilometres. From any slight rise the whole plateau looks combed, ten thousand parallel strokes each ending in a green dot. Where two trails cross, one cushion has passed over another's spent ground and come out smaller on the far side.
+
+In the dead ground other things find footing. Orange and black lichens colonize the powder. A wiry silver grass grows only in the wake of the mounds, feeding on whatever the dying edge leaves behind. Low mats of something red-leaved hold the dust in place. Each trail is a thin garden following its maker.
+
+The day has a tide. In the morning the stone warms and the air begins to rise off the whole plateau at once, and by midday a steady wind is drawing in from every edge toward the centre. It makes very little sound. The air is too thin to carry much, and there is nothing tall to catch it. There is a hiss of grains moving over crust. Sometimes a dust devil stands up out of the spent trails, a white column a kilometre tall, leaning slowly across the plain. Four or five are often visible at once, far apart.
+
+In the afternoon the wind builds dry storms. The sky stays clear and no rain falls, but a haze of mineral dust rises in the distance, charging as it climbs. Lightning cracks between dust and ground, thin and violet, and the thunder arrives late and weak. The cushions take what the lightning fixes out of the air. After a storm season they flower, each dome covering itself overnight in pinhead blossoms of pale yellow. The flowering moves across the plateau in a front over many weeks, and the pollen lifts in sheets.
+
+Animals are few. A small grey moth lives in the windward thatch of the mounds and flies only in the still hour after sunset. Beetles with white-waxed backs work the resin. Very rarely something larger crosses, a narrow, long-legged grazer, pale as the ground. It travels alone along the trails and crops the silver grass, never the cushions. It is usually seen as a moving point with a long shadow, and then not seen. Overhead, some days, a single bird hangs on the rising air without flapping, for hours.
+
+At dusk the wind reverses and drains outward. The stone gives up its heat and cracks with small dry ticks all over the plain. Then that stops too, and the stars come out, numerous and steady. The mounds close their rosettes against the cold and hold the day's warmth, each one a few degrees warmer than the night around it.

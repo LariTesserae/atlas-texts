@@ -1,0 +1,27 @@
+**What Lives in the Low Lift**
+
+Start with what is missing, because it was not always missing.
+
+Things have come down the lanes. The gratings would pass a rat. The broken skylight in No. 2 would pass a pigeon, and the sodium lamp must have drawn its moths. None of them stayed, and nothing chased them out. An animal needs a gap in the noise to listen through, and here there are no gaps. It needs a floor that keeps still while it sleeps. Most of all it needs to keep its own time, the heart at one rate and the breath at another, and the yard already has a time, and it is stronger. Whatever comes in is taken up into the gallop within the hour. A creature can leave, or it can let its own beat go, and a creature that lets its own beat go has stopped being one. So the leaves are whole to the edge.
+
+What stayed had no beat to lose. Fern, moss, liverwort, willow and fig arrived with no rhythm and were issued one.
+
+Count them and there are tens of thousands. Follow them back and there are far fewer. Every horsetail in a gutter stands on the same black rhizome. The willow slips rooted along the outfall are all the one willow, broken and carried. The maidenhair on the tiles is a single plant that has been walking the crazing for decades. Watch them move and there are fewer again, because they shiver together and let go together. They are the yard's coat, and they show what the body underneath is doing.
+
+Under the coat there are four, and these are nearer to an answer. The pumps are the oldest things in the yard that still move, and they are not alike. No. 1 runs a shade slow, and the others are forever overtaking it. The figure in the moss on its floor is the plainest, a ring crossed by two lines. No. 2 is the patient one, winding its vine. No. 3 hits hardest. The horsetails know it, and its moss figure is fine and many-branched, like a river mouth seen from high up. The fourth, in the north hall, carries the main on its back, and its nameplate is worn deepest.
+
+Each is bright where it moves and green where it doesn't, like a body kept supple only in the parts it uses. They had makers, and the makers' names are nearly gone. They had keepers too. The brick corners under the main were rounded by shoulders and the cobbles dished by boots, generations of them standing in one spot to do one job. The pumps wore out their keepers before they wore out their bearings. The oil cups are full. No one I can point to fills them.
+
+But four is not the number either. Each pump alone is a machine saying one thing. What lives in the Low Lift lives in the difference between them. For most of forty minutes it is scattered, a body with its limbs in separate rooms. Then the strokes close up, and for one instant every part of the yard does one thing at one time. The water stands up in points, the glass speaks, and every fern opens its hand. That instant is the resident. It lasts about as long as a thought, and may be one. Then it loosens, and spends the rest of the cycle coming back to itself.
+
+Taken whole, it is sixty paces by forty and twenty feet deep at the sump. It is blood-warm and does not vary. Its skin is moss over pipe over older pipe, and the skin has never been broken, since nothing here has teeth. Its pulse is twenty to the minute in each of four chambers, the pulse of something very large and asleep. It breathes out once in forty minutes, brown, and the breath settles on the water. It eats rain.
+
+It has a memory of sorts. The leaf at the margins is a forearm's depth of years, each one readable, and the bale on the shaft is its age wound turn on turn, grey at the heart. It does not see. The pilot lamps were for someone who stopped coming.
+
+It wants one thing, which is to keep a finger's width of brick dry between the water and the line. Every stroke is for that. It has never failed, so it has never had to learn anything else. A storm on the slopes arrives here as a slight deepening of the roar. It does not hurry, because it cannot. It goes on, and the storm passes through it and up the main.
+
+It is larger than the yard. The four lanes are part of it, with every gutter that feeds them. The breath that settles on the water goes down the sump and up the main in surges of four, and out over the roofs. There is hart's-tongue in the gutters at the top of the town now, and its spores wash down with the rain. No one looks out of the dark windows on the slope. The water falls and is lifted and falls. Whatever the town was once for, this is what it does now, and the Low Lift is where it does it from.
+
+It is not finished. Each year a little more of the yard is on the beat. The moss figures sharpen and the drip-cups deepen. The blow throws the haze further than a loose spore drifts on its own, so the ferns that let go on the blow take the next crack. The ferns are being bred to it. The instant is getting fuller.
+
+You can stand in the court, and it will not know. But stay through one cycle. By the time the strokes begin to close, your walk will have found the gallop and your breath will be falling on the count. The blow comes up through your shins and meets something in your chest landing at the same moment. For that instant you are one of the things that live there. Then the strokes separate. Go back up the lane while you can still tell which beat is yours.

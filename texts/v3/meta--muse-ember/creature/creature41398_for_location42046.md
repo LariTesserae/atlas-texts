@@ -1,0 +1,37 @@
+On the Still Shelf, what lives here does not, at first, look like it lives at all.
+
+It looks like floor. Rounded slabs, dust, salt-white crusts, all worn to a soft, final smoothness. Only when you have stood long enough for the cold to come up through your boots — that clean, thin chill that has nothing to do with day or night — do you notice that one of the slabs has a seam down its middle, and along that seam it rises and falls, a fraction at a time. It is breathing through plates of mineral. It is not a slab. It is a back.
+
+The dominant lives of the Shelf are the huskbacks.
+
+They are low and domed and armoured, from the size of a loaf of bread to the size of a large dog, and their backs are made of overlapping plates in grey-brown, rust-red, salt-white — colours of stone, textures of stone, weight of stone. They have no eyes you can find and no mouth you would recognise. Along their lower rim is only a fringe of short, jointed limbs, moving, when they move, with dreadful slowness. They shuffle forward a fraction of an inch, and then forget, or seem to forget, that they have moved at all.
+
+They eat dust. Not as a figure of speech. They press their blunt fronts into the pale powder that covers the plateau and dissolve the silicates with a dry chemistry that needs no water, because there is no water here to need. Behind them, in a perfect, regular trail, they excrete clean pebbles. They do not drink. They do not sweat. They take what energy they need from light, through the translucent rims of their shells, the way a plant might, but without a plant's thirst. Inside, they are not wet. They are fatty, salty, and crystalline, a body built to persist rather than to grow.
+
+There are so many of them that you cannot walk without negotiating. You must decide, with each step, whose back you are stepping over. They lie near-touching, belly to shell, head to tail, in loose herds that stretch to the horizon and then re-form on the far side of it, as if the herd were one thing and the horizon another. The larger ones carry smaller cousins on their bigger slabs — crustlings, no bigger than coins, clustered like barnacles in layered fans of dozens, their own plates overlapping their parents' plates until you cannot tell where one animal ends and the next begins. Under the slabs, on the slabs, between the slabs, in the dust itself, the presences go on.
+
+They reproduce by budding. A copy of itself buds off in exactly the same posture, in exactly the same place, with exactly the same chips and scars on its cracked left plate. That is why the clusters repeat. A group of seven huskbacks arranged around a pale salt patch, the largest with the crack, appears again a hundred metres on, and again on the far rise, and again far off as a pattern within a much larger arrangement of the same seven. You do not find individuals here so much as repetitions of a shape, copied at every scale until the copying is the terrain.
+
+Death, for them, is a slow hardening. While still occupied, a shell gradually becomes stone. It does not rot — nothing rots here, there is no damp to rot in, no wet hollow, no meltwater, no rain. Its plates join the pavement. Its budded children settle around it in the same quiet, identical postures. A sleeping beast and a boulder and a beast that has finished are, to any eye that tries, the same thing. Perhaps to the beasts themselves, blind and slow and silent, the distinction stopped mattering a long time ago. Their tracks are worn into the stone in the same places their grand-beasts walked, because there is nowhere else to walk, and so the living and the dead share the same road.
+
+Above this pavement, the air is crowded in a different way, and just as silent.
+
+In the lee of a rise, a shallow haze of mote-drifters hangs motionless. They are translucent bladders full of dry spores, suspended where they hatched, casting no shadow, making no sound, drifting neither up nor down. The air here is so still that dust you kick up settles straight down; the mote-drifters never needed to drift. They simply remain, at the height they were born, holding their spores inside them like a held breath.
+
+Higher, or perhaps only apparently higher, are the flying things. They do not beat their wings. They hang. Flat, slow, unhurried shapes suspended against the white-gold, unchanging sun, without buzzing or rushing or any of the machinery of flight you know. They do not seem to move across the sky so much as to be in the sky, the way the huskbacks are in the stone. Once in a while, far off, you hear a small tick — a shell cooling, a stone settling — and nothing else. No wind rushes past your ears. The hangers make no sound at all as they hang there, taking light, presumably, through the same translucent rims, needing neither rain nor landing.
+
+Against this overwhelming animal multitude, green is almost a rumour.
+
+One to a hundred paces, in a crack, you may find a tuft of needle-grass: pale, wiry, stiff as wire, dull straw-coloured, unimpressed by the sun. Rarer still, a stone-flower — a small rosette of glassy filaments that opened some immense time ago and has never closed, never seeded, never wilted, because there is no water in it to lose. These plants root in dust, drink nothing, and are ignored by the huskbacks, who prefer stone. A single stone-flower may be older than any cairn, any tool, any human mark on the plateau. It adds a millimetre of dry growth in a century, in a place without seasons to count it by, and persists.
+
+People, too, have lived here — briefly, and only as visitors to a world that would not keep them.
+
+Their marks are scattered and strangely preserved, because nothing decays here either. Hand-stacked cairns of three flat stones stand on one rise and, near-identical, on the next rise and the next. Flaked tools of black obsidian lie where they were dropped, edges still sharp, half-buried in dust, a huskback's shell resting against one as if it were a companion. There is one shelter, low and circular, built of stacked slabs and shells, its doorway open onto dust, an early metal awl and a bundle of mineral fibre still lying on a stone table inside.
+
+Whoever built it understood quickly what you understand now: there is no water to carry in, no wood to burn, no soil to plant, no change to farm. One could leave a mark. One could not stay. The beasts have long since moved in through the doorway and arranged themselves inside in the same quiet, identical postures as everywhere else, and the shelter is now just another rounded shape in the repeated pattern of the land.
+
+So the lives of the Still Shelf go on in equilibrium, and have stopped. Births are matched by hardenings. Eating is matched by excreting. A huskback shuffles forward and is replaced, in the same place, by a copy of itself exactly as old. A footprint you make in the dust does not fill in and does not blow away; it remains clean and sharp, and after an hour you may find yourself following your own prints back to where you started, though you are certain you walked in a straight line.
+
+At what would be night, if the light ever moved — and it does not, the sun hangs in the same place morning and afternoon, your shadow points the same way it pointed when you arrived — the sky is a deep, clean blue, and the pavement stretches away in every direction, motionless and layered and overwhelming.
+
+A living floor, for a world that has no water, almost no green, and nothing left to become.

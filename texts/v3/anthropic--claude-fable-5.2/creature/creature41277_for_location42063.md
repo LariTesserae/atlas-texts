@@ -1,0 +1,25 @@
+The mallet says the most. Its grip is worn dark in more places than one hand has fingers. A narrow hand has held it high up and a broad one lower down, and under both is a third wear so old it has gone glassy, like the water channels. The three do not overlap cleanly. The mallet has been set down and picked up by someone else more than once, with a long time between.
+
+The cord says the rest. It was rolled downward on a right thigh, forty-odd turns to a pass, and the twist slackens at the end of each pass where the palm ran off the knee. Short coarse hairs the gray-brown of bark are caught in it. The thigh is not long. The tools are wedged in forks at the height of a lowered hand, and that hand hangs low.
+
+So they are slight people, long in the forearm, haired and mottled like the walkers. They kneel to work and tie as easily hanging under the root as sitting on it. Moss takes anything that keeps still inside the sleeve, and they keep still for hours with one side of the head against the bark. By middle age there is fern across the shoulders. The listening ear lies flat and that side of the skull is rubbed bare. They sleep on that ear and wake when the creak changes.
+
+They do not call. They knock. A short figure of blows with the mallet goes down the grain faster than anything else in the country, and a mile of walkers takes it through the hooves in the same instant. It means hold still, because a lashing wants tying on a slack root and a file in the groove is load. The walkers stop. They look toward the knock because their kind always has, and what they see is a burl on the root with its hands moving.
+
+There is one other sign. The palm is the only pale part of them, and they show it flat across a gap too wide for a knock. It means *here*.
+
+An ear on the bark that knew an adze from a hoof could count them. Across the whole country, up and down as well as across, about a dozen adzes are going on any day. A dozen people did not build this, but a dozen is how many are on the wood.
+
+The rest are in the open. This is the part of the work that leaves no tool marks. A guide has to be aimed, and where the load needs a span there is not always a nest or a slipped walker hanging in the right place. So one of them goes. They wedge the tools in a fork and walk to the tip, past the frogs. Then they do what the fliers never do and go straight. They leave the wood crouched, legs folded for a landing, turned back the way they came, one arm out toward the tip. They coast through the beaded shell and past the last feathers and stop where they meant to. Then someone else splits a trunk and points it at them.
+
+Nothing on the wood suggests they are born. There is no small adze and no short grip, and no cord rolled on a thigh half the length. Nor has any opened knot had a person in it, though there has been an adze head and a coil. As far as the evidence goes they are all still here, the same ones who laid the first trough, each either on the wood or out waiting for it. A life is spent in pieces, thirty years of lashing and then three hundred stopped.
+
+The sleeve reaches the hand first. A tip grows an arm's length or so in a day, so the hand has rain on it, and weight. It is drawn down to the root and takes hold a day or more before the face is told anything. Then the rest arrives. They stand, and the moss on their shoulders goes on from the hour it left off. In the nearest fork is a mallet, its grip darker than they left it and worn in a new place. At the tip a guide is already aimed at somebody. The cord on it is green, and they read the twist the way a face is read. One of them rolls tight and even. One doubles the last turn. Whoever rolled this length may be at the far end of the span or may have gone out again. They seldom get nearer to one another than that. Two awake on the same root work its two ends and knock.
+
+The one on the newest span rolls slack at the knee end, worse in the evenings. The narrow high wear on the mallet is hers. She has been fetched before, and she will not be on the wood when this root arrives.
+
+The figure she is aimed at made the longest jump any of them has made. The old ones jump far because it buys them the most wood before they are asked to stand again. The glassy wear under the other two is that hand's. Its eyes are open, and each holds a grain of the brown light, the way the drops do.
+
+She does not move the frog. She splits and hollows and lashes around it, and listens. When the dark has gone over the tip and off the end, she kneels in the trough where the water beads, lifts her palm toward the open, and holds it there about as long as a lashing takes. The hand out there is open too, palm toward her. It has been saying *here* since before the first time she was fetched.
+
+Then she lowers her arm and picks up the cord.

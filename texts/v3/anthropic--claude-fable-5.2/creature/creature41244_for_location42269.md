@@ -1,0 +1,35 @@
+The ones who live there are hard to tell from the rock. The granite is fresh and white and peppered with biotite, small black flakes with a dull shine. A town-dweller at rest is the same black-brown and smaller than most of them. It folds flat to the wall and is a fleck among flecks. Only the moving ones can be counted, and they don't move much, so any count comes out low.
+
+Under a lens a moving one is longer than it is wide, slightly keeled, and hangs beneath its span instead of riding on top. What it holds on with can't be made out. There seem to be several holds, all at the front, and the body trails. Where its way crosses bare granite between districts and no span runs, it is slow and awkward, hitching itself along like a thing with hands and no feet. It gets back on a line as soon as there is one.
+
+They move in turns. The heat that travels the spans isn't enough for the whole town at once, so it is sent down one line and then another. A mote goes when its line is warm and stops when the warmth moves on. That is the short run. The long pause is the rest of the town having its turn.
+
+Nobody goes far. Each keeps to a stretch a few fingers long. At the end of it a mote hands on whatever it carries, a grain of quartz or a midge's wing, and comes back empty. A load crosses the town by changing hands thirty times.
+
+The pause isn't idle. A stopped mote keeps its holds on the span, and the spans are never quite still. Small tremors run along them, too regular for wind. Where two spans meet, a tremor is either passed across or stopped. This is why the mouth of the crack was made dumb. A note sounding there all day would shake every line in the place and drown the rest. In the quiet they have made, one twitch on the top terrace can be followed down four metres, slowing at each junction while someone decides whether to send it on.
+
+Most of what gets decided is small, a matter of which gutter or which cistern. The shrug that sheds the rime is the largest thing they do together in a day, and it doesn't come at once. Rime builds on the windward lip for an hour or more while tremors go back and forth beneath it. The structures flex only when enough of the lines agree. No mote can be seen to lead.
+
+They do nothing by force, having none. What cuts the terraces is frost, the same thing that took the slab off the face. Their whole skill is in getting it to push where they want and nowhere else. At dusk the ice swells in its chambers and the push is caught. In the morning, when the melt comes, each press gives its push back along one scored line, a single stroke a day. Setting a press takes most of an afternoon. Several motes move a wedge the width of a hair, stop, feel the line, and move it back. They don't seem to mind the rate.
+
+Anything larger than they are is treated as weather. When the spider comes across, its footfalls arrive through the rock ahead of it. The spans in its path are let down and the motes on them go flat to the wall. The spider works the film, sits, and goes. A jumping spider trails a dragline wherever it walks, and it leaves one across the district each time. By next morning the dragline is gone, the way the midges go. A few days later that district has a span or two it didn't have before. The lines are finer than anything a spider makes because they are a spider's thread taken apart.
+
+A face brought close to the crack gets the same treatment. The breath arrives, the nearest spans drop, and for as long as anyone leans there the district is bare rock with a grain in it. The chough's shadow gets less than that.
+
+At night they leave the walls. After dark the granite is the coldest thing in the crack, and on this scar it is not to be trusted. When the presses have finished ticking, the motes go out along the spans to the middle, as far from both walls as a line will take them, and gather there. On a morning of hard frost each gathering shows as a thickening at the centre of a line, a bead smaller than a full stop. There are about thirty beads. When the line has cleared, the bead comes apart and its members go back, half to one wall and half to the other. At a guess there are three hundred of them, in a town cut for thousands.
+
+The rest are on the upper terraces. The plates that turn with the sun through the morning are each the size of a mote at rest, and the same colour. Each is set at an angle on a short stalk that twists as it warms. They stand in two blocks with a bare course between them, and the upper block is the larger. The first winter was the worse one. They arrived as more than they are now.
+
+How a plate gets there can be watched, with patience. A mote stops for its pause, and when the warmth comes back to its line it doesn't go. The line is warmed again. Tremors are sent to it and nothing returns. It is left where it hangs through the night. The next day it is unhooked and passed up the crack, hand to hand and stretch to stretch, through every district on the way. It is the only load that travels the full height of the town.
+
+At the top it is set on a stalk at the end of the lower block, in the one part of the crack the sun reaches straight on. By the following morning it is turning with the others and its heat is coming down the spans. The warmth that tells a mote to move is mostly sent by those who have stopped.
+
+That leaves the empty courses. The answer is at the back of the crack, an arm in, where the walls meet and the midges are taken. The seam there was sutured before anything else was done. The stitches are thicker and less even than the later ones.
+
+Along the seam runs a row of sealed cells the size of poppy seeds, lined with whatever lines the cisterns. The fallout from the valley is taken apart there and goes into them, and nothing comes out. What is in a cell is kept the way the cistern water is kept. It is complete and clear and has been given nowhere to begin. There are more cells than there are motes.
+
+The town opens a cell when there is a place for what is in it. That means a terrace cut and cleared, a structure standing, a cistern lined, and a span strung and warmed through enough mornings to be sure of it. In the empty districts there are lines that clear of frost every day with nobody on them. These are the spans being proved.
+
+It has happened a handful of times. Here and there on the lower terraces is a mote smaller and paler than the rest, nearer feldspar than mica. It hasn't learned the pause. It goes when its line is cold. It runs past the end of its stretch and has to be turned. It holds what it is handed a moment too long, and the ones on either side wait for it.
+
+At the bottom, by the spout, a wedge is being set against the scored line of the fourth course. It has been moved twice this afternoon and will be moved again before the light goes. Tonight its press will take one tick. Tomorrow, when the melt comes, the course will be one stroke deep.

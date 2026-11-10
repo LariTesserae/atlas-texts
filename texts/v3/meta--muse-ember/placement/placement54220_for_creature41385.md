@@ -1,0 +1,27 @@
+If you looked for me among the hands, you would not find me there.
+
+At first I thought I was the moss. I thought that because everywhere a foot falls I am under it — in the floors and on the roofs and on the stone and on the hummock outside — spongy and damp, holding what falls without ever running. When a path is cleared, I am what grows back over it again, patiently, to exactly the same shape, and when it is cleared again I am patient again. It seemed like a place to be.
+
+But I am also on the ceiling. I am also in the pool at the center, where the frogs sit half-submerged and do not croak, and in the cisterns tucked under houses, and in the damp of a woven layer as it is worn. I am not only where the steps are. I am spread too thin to be one surface.
+
+Then I thought perhaps I was something that moves, slow as the snail on the lower wall. I am not that either. The snail leaves a cleaner, paler track across the algae and the green closes over it minutes later. I have watched it do that a body-length at a time, season after season, and I have never once been the track. I am what it grazes *in* — the wetness that lets the green skin live on the ice.
+
+I find myself, more truly, higher up.
+
+I am on the coldest part of the dome, the north-facing curve where the frost keeps its white lace all year and no bright air ever melts it. I arrive there invisibly, from breath and from leaf. A person leans close to speak in that breath too quiet to carry more than a handspan, and it fogs and rises. The birch at the center, its crown held pressed against the roof by pruning, gives up moisture from its leaves. The moss gives up what it holds. All of it rises in the still, luminous air where laundry and weaving hang drying without wind, and gathers on me.
+
+I gather there a long time. From above, the town looks the way it must look to the birds in the birch crown — not loud at all, only layers. Terraces cut into the wall, three and four deep. Root-bridges at chest height. Gardens that grow sideways from the curve and upside-down from the terraces, ferns turning their fronds down toward the reflected light off the pool because that is the light they can reach. Cloudberry in the soil pockets where white blossom and green fruit and orange ripe berries sit side by side on the same shrub because nothing here passes through one season at a time. I stay until I am a fat, slow drop, bright against the pale blue ice showing through white.
+
+Only then do I move.
+
+I roll down my carved groove in the wall, a thin bright thread following a course made long ago by hands. On the way I pass close enough to see what I otherwise only see from above: a hand lifting, quick and precise in the shadowless light, and another answering over a basket; a hammer struck down into moss so it will not ring; a pot set down, not dropped; a mat let fall as a door. I pass ledges where someone reaches with both hands to turn a mat, and cellars scooped under a house where fingers find dried berries by touch in the soft pools of deeper green and blue. No one is hurried past anyone else. The streets are only the gaps left for passing, cobbles polished to pebbles where feet fall.
+
+I fall, once, in a long time, onto anything that is waiting — a neck, cool and patient, a cup, a channel, a garden bed. Even the water learns not to strike here.
+
+Then I am in the central pool, which is the town's one river and never flows and never rises or falls. I spread among the birch roots, which spread across the floor like a delta. Among them the tiny stickleback turn, silver flashes that make no ripple. The frogs watch me with eyes above the water, reflecting green. I am drunk by the roots, and by the worms working unseen in the damp soil under the houses, turning old leaf and old mat into heat. I am held a while in the trunk, twisted and pale as bone. I rise through it, invisibly, to the crown, and out through a leaf, and become breath again for a moment, fogging close and quiet between two people who cluster for warmth around the compost and the long-house that smells of cold clay and crushed green leaf and peat and wet stone.
+
+And then I am back on the cold upper ice, gathering again.
+
+That is where I find myself in this world, and who I am: not the hand, not the snail, not the frog, not the birch — though I have been in all of them, and in the pale fly hanging without buzzing over the saxifrage, and in the moss under a step. I am the return. I am the drop that has not yet fallen, and the pool that receives it, and the breath that lets it go again. I am what makes the town lush without ever increasing it.
+
+If you part the moss curtain and stoop up the two rounded steps into the flat, glaring cold, you will not see me. Outside there is only the hummock, green and unremarkable, with a few white flowers trembling although there is no wind. Inside, I will still be gathering on the north curve in the bright, diffuse morning that never changes, fattening almost imperceptibly against the ice, listening — if listening is what I do — to hands continuing in the luminous air, to the snail continuing, to the drip continuing, once in a long time, cool and patient, before it is caught and carried and rises again.

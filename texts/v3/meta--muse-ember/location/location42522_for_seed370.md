@@ -1,0 +1,37 @@
+**The High Stack**
+
+You hear it before you see it, and the hearing never becomes ordinary.
+
+It is not a wind that rises and falls. It is a held note, at once low and architectural, a roar coming up through the soles of your feet and a knife-thin whistle that seems to sit just behind your teeth. On the bare, high plain it carries for miles. As you get closer it does not get louder in gusts and lulls, the way weather would. It gets *nearer*. Then it is everywhere, deafening inside your skull, and when you shout the sound of your own voice comes back flattened and wet, as if swallowed by brick.
+
+The Stack itself is small. That is the first wrong thing about it.
+
+From a distance it looks like a hill — a compact, steep-sided mound no more than two hundred paces across, standing alone at the top of its own high rise in a dry mineral waste. The air up here is thin enough to make your breath short. Below, the plain drops away in every direction, a salt-pale, waterless expanse of dust and broken spoil, featureless and still. Nothing green marks it. Nothing moves on it. The Stack rises out of that emptiness like a thing that has been left behind on purpose.
+
+Up close there is no hill left to look at. There is only building.
+
+Every visible surface is made. The slopes are courses of brick and hammer-dressed stone laid in stepped aprons. The cliffs are retaining walls. The ground under your boots is pavement, then pavement again, then the roofs of rooms below. Even the scattered debris at the base is not rock. It is the eroded offcasts of the place itself — fired clay, ash-grey stone, chips of blackened mortar that have fused in the heat into something like a poor natural rock. If there was ever a natural substrate, the builders have buried or used it up entirely.
+
+You can read their tools everywhere. The bricks are hand-shaped, a little too long, a little too short, with straw and grit still in the clay and the faint dents of fingers left in the soft material before firing. Some are red-brown, some ochre, some the pale grey of ash. No mortar in the modern sense holds them; they are dry-laid, packed, rubbed together, sealed with clay that has since baked to stone. The stone blocks carry pits from knapped hammerstones and thin, amateur marks from copper chisels. No nails. No glass worth mentioning. No wheel ruts, no carts, no sawn timber left in any readable form. It is pre-metal work, or just at the first smear of metal, carried out at a scale that should not be possible with such tools.
+
+It was possible because it took as long as it did.
+
+Generation after generation added a course, a room, a kiln, a wall, a stair. They built new chambers against old ones, then built over the roofs of those, then used the kilns themselves as store-rooms and the store-rooms as kilns. The result is not a city that grew. It is a city that *accumulated*, cell upon cell, until there was no vacant space left anywhere. Rooms open directly into other rooms. Doors open into cupboards that open into passages. A roof is the floor of the room above it, and the floor below that is the ceiling of a lower kiln whose mouth has been bricked up from the inside. Low doorways, knee-high thresholds, ceilings you must duck under, stairs that belong to no sensible plan and arrive in alcoves barely larger than a body. A hamlet’s worth of presences pressed shoulder to shoulder into the volume of a single cathedral, and then pressed further, until the whole mass feels saturated — no courtyard, no street left open to the sky, no empty patch of ground that is not already somebody’s wall.
+
+The light is dim because of that packing. On the upper terraces the sky is only a strip between stacks. Inside, light comes in slivers through vent holes and door cracks, a perpetual late-afternoon, blue-grey and dusty. It does not move appreciably across the floors. The air is warm in a way that high, thin air should not be. The clay mass has soaked up the sun and gives it back slowly; the enclosed rooms hold the heat like the inside of an oven after the fire has gone out. It is close, stale, and dry to a degree that makes your mouth feel lined with grit. You taste fired earth and copper and old ash.
+
+There is no water here. The cisterns are full of dust. The jars set into niches are empty and will stay empty. No dew forms. No damp softens the corners. There are no plants — not a green thing, not a root in a crack — and no animals either, which is stranger than the silence should be. No birds circle the summit. No insects rise from the warm pockets. No rats in the stores, no lizards on the sunlit bricks. The place is post-life in the most literal sense: the builders are gone, the fuel is gone, the hearths are cold, the tools are left in wall niches where a hand last reached for them.
+
+The only thing that resembles growth is mineral. In a few shaded cracks there are pale, dry whiskers and beaded films, silica and salts exhaling out of the brick itself over immense time. They creep at the rate of stone. They are not green, not soft, not demonstrably alive. They are what the place does instead of living.
+
+And it does it constantly. That is the rule here.
+
+The upper windward course is pierced with hundreds of kiln mouths, flues, and vent holes — some no wider than your thumb, some large enough to crawl through. The summit sits in a hard, unvarying current that crosses it from the same direction, day after day, stripped of weather. Air is forced in through one set of openings and out through another, and the hollow, packed mass below acts as a single resonator. The large chambers boom. The narrow flues scream. Whole walls hum against your palms.
+
+Move one step and the chord changes pitch. Wait an hour and it does not. The sound does not swell, does not die. It has no attack and no release; it is pressure, held. Visitors learn to touch shoulders and read hands, because speech is a rumor here.
+
+Everything else has reached the same condition. The Stack is ancient in a way that goes past ruin. It is not crumbling. It is *finished*. Corners that were once sharp have been rounded by dry grit and by the passage of feet. Stair treads are dished like shallow bowls. Thresholds are worn concave. The brick faces have been polished by wind-blown dust until the firing marks show through like grain in wood. This is erosion that has run its course and settled into its final form — the oldest stable state a built thing can reach. Nothing appears about to fall. Nothing appears to be actively growing, rotting, flooding, freezing, or drying out. It does not get later here in any way you can feel. The dim light, the warm air, the dryness, the note through the walls: return in a season, return in ten years, and the place will be exactly as you left it, down to the dust on the third stair.
+
+That is its small, low weirdness. Not a monster. Not a magic. Just a high, hand-built mountain of brick, packed until it has no room left in it, built by people with stone tools over a time no one now counts, now standing empty in thin air and perpetual dimness, making its one deafening sound without pause because there is nothing in it left to change.
+
+From the plain below, on a clear day, you can still hear it first.

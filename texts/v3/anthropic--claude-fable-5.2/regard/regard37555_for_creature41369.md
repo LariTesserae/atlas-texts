@@ -1,0 +1,27 @@
+The power comes the way the weather comes here. It arrives up the valley already full and touches the town, and for some days it leaves nothing, not even a bead.
+
+It learns the place in the order the place allows: the droppings, the grooves, the ruffed holes, a night on a roof. Then it goes where a watcher on the roofs cannot, in at the hole mouths and down the fist-wide passages, and it counts. It learns the number a dome needs. The animals know that number only as a cold place in the pile that no one's back is closing. It learns which households stand well over the number and which stand at it, and that one, in the third row above the square, is under by one.
+
+Anything that can count like this can also mend, and the shelf offers a good deal to mend. The power takes the work in order.
+
+The furnace is first. A small change in the animal would let it hold its heat through a wet day and sleep a night alone. But an animal that can sleep alone needs no heap, and the heap is what lifted the town. Everything here that looks like plenty stands on that one lack: the depth of the domes, the warmth inside them, the willow kept flat and made to flower, the flies of the warm hour. Mend the furnace, and within a few of the animal's generations this is a field of boulders with a thin green skin, and something like a vole living under it by ones and twos.
+
+The weather is second. But the cold cut the streets, and the cloud is the only water the roofs get. The frozen hours are dry, and they are the only hours the animal owns.
+
+The arithmetic is third. The power could hold every household at its number. Then no roof would sink. There would be no ferns, no liverwort like wet green leather, no pocket of still air, and the bird would have nowhere to nest. Nothing depends on the bird. The power's regard does not stop at what is depended on.
+
+Then the block. It looks a long time at the crack beneath the paler scar, as anyone would. The ice has about eleven winters of work left in it. It will finish on a thaw morning, with the whole town indoors, and the block will come to rest at the upper edge beside the last one, a body's length short of the nearest dome, which is where this headwall has always put them. For once the shelf will be loud. The power is fairly sure what it would have done if the line ran a body's length lower, and it is glad not to find out what that would have started. As things stand the block is no danger. It is the next house.
+
+By this time the power has understood what it is looking at. Something came to a bare cold place and warmed it from underneath. It raised the ground a mouthful at a time, carried seed to raw edges where it would never sleep, and kept no account. It has been at this for a hundred generations. The power has found before that it is seldom the first of its kind to arrive, and that the earlier one is usually smaller than expected, and busy.
+
+So what it does is small.
+
+The next night a count from the roofs reaches thirteen. The thirteenth clips no willow. It follows a thread to a crossing and stops there with its feet drawn under, a small dome on the back of a large one, and rimes over with the rest. It crosses the lanes by the grooves and leaves nothing in them. After midnight there are three at the edge of the lawn, facing in. The rings come in from the banks and close on the middle, and it takes the knocking of the whole town through its feet and its jaw, as the other two do. It could set one ring going the other way, from the middle out to the banks. It does not. That would be an answer, the first one, and a town that has once been answered will wait at the water for the next. The domes cannot spare the bodies.
+
+Toward dawn it goes in at the hole in the third row, the one with the short ruff. No one inside makes anything of it. A warm back is a warm back. It lies in the pile through the dripping hours and takes its turn outside at night, and for that winter the frost feathers at that hole grow as long as fingers. In spring there is a litter of five, and four live, and the household is over its number by three. It is the kind of thing that might have gone that way unhelped, and sometimes does. The power likes its work to look like that.
+
+It does one thing more, at the edge of its range, which lies further out than theirs. On its last night it stops at the raw block and takes up a plug the upper household has just set there, one the noon water was going to have. It carries the plug up the headwall, cold by the time it arrives, and presses it into the block that has not fallen yet, at the angle that will be the sheltered side once it has. The plug may ride down in eleven winters with seed still in it, and the newest house in the town may land with its hem already started. Or the fall may scrape it off. The power does not arrange which. It does the same at every crack along the edge of its range, and most of them wash out.
+
+The next night a count from the roofs comes to twelve. Toward dawn the last ones home stand a moment in the hole mouths, and then they are in. The ticking starts, and the drip.
+
+The bird is a lodger, and nothing about the town depends on it. The power has taken some care to be able to say the same of itself.

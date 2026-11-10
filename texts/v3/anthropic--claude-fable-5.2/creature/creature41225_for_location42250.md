@@ -1,0 +1,29 @@
+They are white to the wrist and white to the shin. By the end of a dry week the crust on a working hand cracks at the knuckles, so every night they rub in eel fat, which lets it lift off in one piece instead of taking skin with it. Children peel each other's heels. Hair is bound up high and tight, because a braid that trails in a trough for an afternoon comes out stiff as a twig.
+
+Off the mound, you know them by the walk. They set each foot directly ahead of the last, even on a peat track wide enough for three. They carry loads on the back or the head, never at the hip, and when they stop to talk they stand with their feet together.
+
+Two people who meet on a wall-top cannot step down, because a foot in a channel is a dam, and someone below will know within a few breaths whose foot it was. So they pass chest to chest, each gripping the other's forearms, and turn like a door on its post. Everyone does this with everyone, many times a day, including people whose families have not spoken since a board was cut wrong two sills ago. Those who can't bear it go round, and you can read the town's quarrels in the routes people take to fetch firewood.
+
+They look at your hands before your face. The notch in an alder board crusts like everything else, narrowing a little each season, and has to be scraped back. This is done at first light with both neighbors crouched over it, and afterward each lays a thumb in the notch while the other watches. Nobody scrapes alone. A person seen near a board with a flint in hand and no one beside them will be explaining it for years.
+
+They speak low and briefly. A wall that rings when knocked also carries a voice, and they have all grown up knowing that. To call someone they rap two knuckles on the wall-top instead of shouting. They know each other's tools by ear: antler thuds, flint clicks, copper has a note. Everyone knows which house has the chisel this week and what was paid for it.
+
+They do not count years so much as point down. A woman will tell you she was born a forearm below where she is sitting. Something happened "before the low sill," or "when the door was still a door." Their cook-pots keep the same calendar. Boiled water leaves its stone too, and a pot holds a little less each winter, until someone sits in the doorway and knocks the lining out in curved shards.
+
+They are not all alike. Near the eye, where the water is richest, live the oldest households with the first shares. Their walls came up fastest, and so do their floors, so they cut the most. Tapping up there stops only for rain. Those people have heavy forearms and bad shoulders, and they stoop from a lifetime of lintels coming down to meet them. Farther down the water is tired. A hurdle takes six years to bear weight instead of three, and people wait longer for a wall but spend fewer days on their knees at the sill. They are counted poorer, and they are less bent.
+
+All of them, every day, are both builder and cutter. In the morning a man leads water onto a hurdle, and in the afternoon he chips the same water's work off his doorstep. Almost nobody finds this strange.
+
+The hurdles in the marsh belong to a third daughter of the house below the fern. She is about twenty and has the high-terrace build, with thick wrists and one shoulder carried lower than the other. A white scar crosses the ball of her left foot from a rim she misjudged as a child. She has cut sills since she could lift an antler. She is good at it, and can tell by the sound of the pick how close she is to an old surface.
+
+Two winters ago, lowering her mother's threshold, she went a hand too deep and brought up a black line of hearth charcoal. Under it was the rim of a basket, cast in stone with the weave still sharp, which someone had set down and never picked up. She packed the cut with clay and let the water close it. After that she began walking down to the bottom of the town in the evenings to look at the sedge.
+
+Her father holds two thumbs of flow and has three children. If she is given anything it will be half a thumb, and to reach the marsh with any stone left in it, that half-thumb would have to travel overhead in a log trough, across the lowest terrace, dripping on the people who lie there with their knees drawn up. Nobody has ruled on that. No one may cut there, but no one has ever had to say whether more water may be added. Her mother's mother is the fourth swelling from the alder post, with one hip still showing, and it is her mother who objects most. The low voices this season are mostly about her.
+
+So the trough stays propped and dry, and the board is not cut. A notch needs a neighbor on each side to watch it made, and out there she has the sedge on one side and the dead on the other.
+
+She goes down before the first smoke-hole opens, when the heron is still in the last pool. It no longer lifts for her. She crosses the bottom terrace along its outer rim, where nobody lies, and steps off into brown water to the knee. She checks that the stakes haven't heaved and puts her thumb to the trough-end where the first drop would fall. She comes back up with her legs stained brown instead of white, the only brown legs on the mound, and people look at them the way they look at hands.
+
+She has told no one that the willow uprights have rooted. The hazel has not, but each willow stake, pushed raw into wet peat, has put out a row of narrow leaves along its length. No one on the mound has ever seen a wall do that. In the first weeks she pinched the shoots off, since a wall should be dead wood waiting for stone. If the water ever comes it will coat every leaf, and they will stay in the wall as casts, veins and all, like the alder leaves on the pool floors. If it doesn't come, she will have a hedge, standing green in the marsh at the foot of a stone town.
+
+She stopped pinching them off about a month ago. In the mornings now she counts them.

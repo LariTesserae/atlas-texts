@@ -1,0 +1,31 @@
+The room is four paces across, and it is the highest thing there is.
+
+Its walls are coiled clay over a lattice of split cane, a finger thick, beaten thin with a wooden paddle against a river stone held inside. They have never been fired. Press anywhere and the wall takes your thumb and keeps it. On the far side of that finger of mud the air is too thin to breathe and cold enough to crack rock, and frost grows on the outer face in feathers. Inside, the heat is the heat above a cooking pot, close and wet, and every surface sweats. The one opening is a blowhole no bigger than an eye socket, high in the dome. Through it the sky is the blue-black of a mussel shell at what is probably noon, with two stars showing.
+
+Nothing in here was found. The floor is pounded sherd and ash over lashed cane. The soil was made from charcoal, dung, rotted leaf, and crushed pot. The pots that hold it were made, and they stand on other pots. Gourd vines pour out of them and out of the walls too, because the daub was tempered with chaff and the chaff had seed in it. The room sprouts from its own skin, pale shoots breaking the slip and greening as they lean toward the red mouth of the firebox. There are ferns in baskets and moss along every cord. A broad-leaved climber with stems like wet rope goes up the lattice faster than the lattice goes up.
+
+There is no path. You move by turning sideways and breathing out, between jar shoulder and leaf and hanging gourd dipper, and whatever you brush is warm and drips. What light there is comes from the firebox and from the gray blade the blowhole lets in, which slides across the leaves, stops, and sometimes slides back.
+
+The pots boil. At this height water seethes at little more than blood heat, so every vessel near the fire rolls and mutters without ever scalding. The steam climbs to the dome, where the clay is cold from outside, and beads there and falls. Every few hundred breaths it rains, short and hard, from a sky you could touch with a raised hand. The rain falls on leaves and on the hide lids stretched over jars. It falls on the firebox stones, which shriek. Then there is mist to the knee, then clearing, then the dome beading again. Now and then a real cloud gathers under the roof, dark-bellied, the size of a sleeping dog. Light ticks inside it, and the crack that follows hurts the teeth.
+
+Under all of it there is the note. The room is a vessel with a hole in it, and a thin, fast wind crosses the hole, so the room sounds like a breath across a jug mouth. The note is low and enormous, felt in the breastbone, and it never stops. It drops by a hair each time a course of clay is added, because the vessel has grown.
+
+On top of the note come the drumming on hide, the roar of the firebox, and the boil. There is also the slap of a paddle on wet wall, always from the part of the wall just behind a leaf. The tools lie where they were set down: the paddle, the anvil stone, a bone rib for scraping, a shell knife, a fire drill, hanks of bark cord. Their handles are warm. The paddle's face is wet.
+
+Nothing wears. The anvil stone has met the wall ten thousand times and has no polish. A drip that has always struck the same jar shoulder has cut no channel. The floor shows no track where feet would go. The only marks are made ones, thumbprint and paddle-stripe and the bite of cord, and all of them are fresh. The oldest thing in the room is still wet.
+
+Because nothing is fired, nothing is settled, and facts take a thumb the way the walls do. Count the jars sunwise and there are nineteen. Count them the other way and there are more, one of them a jar you would swear you never squeezed past. The slap of the paddle arrives a moment before the wall shivers. The cane stacked for the fire is longer after burning than before. The heat does not quite come from the fire. Hold a palm to the firebox mouth, then to the farthest wall, and they are the same. The room is hot the way it is high, as a property worked into the clay when it was mixed.
+
+The height is like that too. In the floor is a hole a hand-span wide, collared in clay, with a bark rope going down through it. Put your eye to it and there is no slope and no rock, no scaffold of any kind. There is only cloud, very far below and lit from above, and the underside of the floor with root tips hanging through into the cold and furring white.
+
+The mountain has not been put in yet. The height was made first, and the room at the top of it, and the rest will be packed in underneath when there is clay enough. Meanwhile the rope comes up, hauled while you were looking at something else. The basket on it is heaped with wet clay, warm and smelling of river. Drop a sherd down the hole and the note dips as if the room had swallowed. No sound of landing ever returns.
+
+Almost nothing lives here that is not rooted. A frog sits in one of the water jars, never seen, with a voice like a struck log. It calls after each rain and is answered from a jar across the room that holds only water.
+
+There is one wasp. She is black and narrow-waisted, the length of a finger joint, and she carries a pellet of mud to the rim by the blowhole. She works it on with her jaws and forelegs in the same patient spiral as the coils. When you look again, the patch she finished is a course of wall as wide as a forearm, with paddle-stripes on it. Some of the thumbprints in the newest clay are no broader than a seed.
+
+On the vines, rarely, there is a fat green caterpillar. The wasp stings it and does not eat it. She tucks it among the pots, soft and motionless and still breathing. There are others stored there. Once you have seen them, the garden itself looks laid by and provisioned.
+
+From the crown of the dome, on a thread finer than hair, hangs a pale thing. It is as long as a hand, or as long as a grain, and it turns slightly in the steam. The rain does not wet it. The heat, the water, the green, and the stored breathing creatures have all been laid in against its opening.
+
+It has not opened. Behind a leaf the paddle falls, the note drops by a hair, and the dome begins to bead.

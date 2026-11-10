@@ -1,0 +1,27 @@
+The highland turf stops at a clean edge, and the ground drops through a litter of black blocks into the tube. The roof fell in here recently, as rock counts time. The blocks haven't settled against each other yet. They rock underfoot and ring when struck, and their broken faces are still glassy enough to open a palm. Ferns hold on for the first thirty paces down, along with a moss that follows the drip line. After that the green gives out.
+
+Inside, the tube is the size of a valley with a lid on it. The main gallery runs downslope farther than light or a voice will carry, wide enough that the far wall is a guess. It branches, rejoins itself, and branches again. The lava that drained out of here left its tidemarks. Benches run along both walls where the flow once stood, the floor is frozen in ropes and folds, and the ceiling is hung with stone drips from when the roof remelted and set. The glaze still shines where a hand wipes it. Water has barely started its work. There is a thin white crust in the seams and a few mineral straws no longer than a finger.
+
+Here and there the roof has dropped in again, and a column of grey cloud-light stands on a cone of rubble. Between these skylights is a long brown dusk, and beyond that true dark. The eye learns to walk from one pale column to the next.
+
+It is cool in the way a spring is cool, the mountain's own average, and breath shows faintly. The temperature never moves. The wet and dry seasons pass overhead as a rumor. The drips fall where they have always fallen, into sags in the floor that hold a finger's depth of black, clear water. Everything else is merely damp: a sweat on the walls, a slickness on the glaze.
+
+The noise begins before the first skylight.
+
+The flow benches are nesting ledges, and they are full for the whole length of the gallery. The birds are big and rust-brown with white flecks, hook-billed and whiskered, their wings as wide as a child is tall. There are tens of thousands of them, and they scream. It is a tearing, rasping cry, and under it runs a dry, rapid clicking, which is how they find the walls. The tube behaves as a pipe. Sound doesn't leave. It stacks, rolls down the gallery, and comes back. Standing under the ledges, you feel it in the breastbone, and the people who come here talk with their hands.
+
+The noise keeps no hours. When part of the colony pours out through the skylights to feed, the chicks left on the ledges hiss and shriek for them, and the count in the ear stays the same. Farther in, where a side passage lifts toward a warmer pocket, the sound changes grain. There it is bats, a high seething chitter, with the roof moving like something simmering.
+
+The floor belongs to what falls. The birds fly far downslope to forests this place never sees, swallow fruit whole, and spit the stones from their ledges. The seeds lie in drifts on the guano, and they sprout. Whole flats of the gallery are covered in seedlings, palm and laurel, bone-white and shin-high. They lean in no particular direction, spend what the seed gave them, and die at that height. New ones come up through the dead. It is a lawn that never grows up, and it is nearly the only vegetation in the tube. Under the skylights there are a few real ferns and one bent shrub, green and looking out of place.
+
+The guano itself moves, and in the brief sags of the noise you can hear it: a dry, continuous rustle, like rain on leaves. Cockroaches work the fresh fall. Crickets with antennae longer than their bodies stand on every block. Mites make the surface shimmer, and beetles go through fallen chicks in a day and leave the bones clean. Whip spiders sit flat on the walls with their feelers spread. Small pale crabs pick at the edges of the pools. There are rats. Where the bat passage narrows, a snake hangs off a ledge and takes its meals out of the air without ever touching the floor.
+
+All of them have eyes, and all of them have color. The cave is too new to have made animals of its own, so everything in it was borrowed from outside and hasn't yet been changed.
+
+For all that, the place is mostly empty. The life is a skin on the ledges and a skin on the floor. Between them hangs a huge volume of dark air, and between one drift of seeds and the next lie long stretches of bare, ropy stone.
+
+Nothing has been built. There are signs, though. A fan of soot marks the wall at the height of a raised arm, laid down in many thin layers. A cane pole three men long leans against a bench, with a hooked stick bound to its tip in twisted fiber. A scatter of charcoal lies nearby with the burnt stubs of resin-wood torches, and beside it a chipped flake of the tube's own glass with one edge worn dull. Someone comes for the chicks, which are fat enough to render. They take what the pole can reach and leave the pole against the same bench. The ledges are full again by the time they come back.
+
+Nothing originates in the tube. Fruit comes in on wings, and seed and dung come down. The dung becomes insect, the insect becomes crab and spider and rat, and the surplus becomes more dung. The colony is as large as the ledges allow, and the floor eats exactly what the ceiling drops.
+
+Far down, past the last skylight, the gallery pinches. The screaming is only a pressure at your back there, and the air is still. The lava's last tongue lies across the floor where it stopped, a rounded black lobe with its skin wrinkled and its edges still sharp. One cricket stands on it, tasting the air.

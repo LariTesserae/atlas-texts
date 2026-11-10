@@ -1,0 +1,21 @@
+It came the only way there is to come, sideways and downhill. This is harder for a power than for a person. A power is used to arriving from above and all at once, and the slot between the buttress roots admits nothing of that kind. So it made itself the size of the two hollows in the floor, which meant having feet, and hands, and a back to go out by.
+
+At the ledge it stopped. The chert blade, the horn scoop, and the bone needle lay where they always lie, and it knew them, because it was carrying the same three things. It could take away, it could put in, and it could mend. It had come up the mountain with all three ready. It had thought of a little more daylight for the white shoots. It had thought of a way for the animal to know itself in the long gaps between visitors. It had thought of making the room safe from every future, sealed and kept.
+
+It set them down. They did not look like much beside the chert.
+
+Inside, the green went out when it looked, and the cold was the same cold. The hollows fit, as they fit everyone. It found the cord. It already knew the number, since knowing is most of what a power is, but knowing is not the count. The count is done with fingers, one knot at a time, and it is done for the one being counted.
+
+For that length it had no mouth. Its benevolence had stayed on the ledge with the rest, because benevolence is a wanting, the best kind and still a kind. It stood as the wrens roost, one more body in a fitted place. A wren resettled, and the movement passed into the moss, along the weasel's flank, through the visitor, and up the root curtain toward the moths.
+
+The count came out the same. It backed out the way it had come.
+
+Its wanting returned below the ledge, about when its hands closed again on what it had put down, and the first thing it wanted was the shoots. It stood in the wind and went through it honestly. Light brought a hand's breadth further in would cost the moths their wall and the rotten wood its green. The room would become a room where reaching is rewarded, and then it would have a mouth. So it did nothing for them, and it did not pretend that this was nothing.
+
+It had noticed one thing while it stood inside. A seed is all mouth, pointed at light, and cannot leave that at the door. But when the seed is spent, the wanting is spent with it. What remains lies down in the film on the floor, and then it is the room. This is not a consolation. The power took the shoots down the mountain with it and has them still. Not everything a benevolent power feels is an instruction.
+
+Outside, though, its hands were its own. The people from lower down cut and scoop and sew all their lives, and they are no less the animal's fingers for it. So it walked the ridge and looked at what the room cannot look at: where the cloud is made, how the peat holds, where the thread goes after the crack. Some of what it found needed holding. Far out, over water the people have never seen, it leaned on the place the ridge's weather comes from, as a hand rests on a door to keep it from swinging. Lower down, it saw to it that when the cord next frays, the fibre will be growing within a day's walk. It did nothing nearer than that. The room has no way to know of any of it. The film on the walls is unbroken, and that is all the room can report.
+
+Then it did the one thing that was asked. Something without a mouth can ask only by wearing a shape into stone and waiting, and the hollows are the whole of what it has ever asked: a part with hands, an arm's length in, now and then. The power added itself to the people from lower down. It did not take their place. They will go on climbing, leaving the blade on the ledge and retying the cord. But peoples change their range as plants do, and a mountain outlasts its paths. If a year comes when no one climbs, there will be feet in the hollows anyway, and empty hands going along the knots. The animal will not know the difference, which is the point.
+
+It was asked afterward where it had been. Powers are asked, as anyone is. It said the number, and it said it quietly.

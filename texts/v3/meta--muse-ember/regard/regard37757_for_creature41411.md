@@ -1,0 +1,43 @@
+It does not arrive. There is no descent, no light forced through stone, no voice in the grinding.
+
+Attention, for this kind of power, is quieter than that. It notices a pattern where it expected none — a room with no entrance, loud as a mill, hot as an oven, crowded to totality, and in three thousand metres of cold bright plateau above it, nothing to show for it. Life, here, that has turned to industry without ever having built a factory. Stone into animal into pellet into dust into stone again, warmed all the way through.
+
+It listens for a long time before it decides anything. Listening is its first act, and for a wise power it is not a delay. It is the work.
+
+The first feeling, because it is benevolent, is pity. No water. No light to speak of. No exit. Air at over fifty degrees, dust in every lung, a ceiling of their own kind hanging inverted overhead, rains of dust falling on the backs below. A being made to pity will want to help them out of that.
+
+The second feeling, because it is wise, is envy. They are not suffering. The noise is not pain, it is metabolism. The heat is not fever, it is chemistry. The crowding is not imprisonment, it is shelter. The darkness is not blindness, it is the condition their eyes were made for. In the most literal sense, they have no lack that a visitor would recognize.
+
+So then it does what such a power mostly does: it catalogues what it will *not* do, and refuses each act tenderly, one by one.
+
+It will not open a mouth in the wall. Let in a cleaner air, a little light, a human hand to measure — and the whole dry cycle breaks. Rain or even damp plateau air would find the seams. Things that have never rotted would learn rot. The mineral oil that mites so carefully keep from the beetles' joints would wash and film and harden in a new way. The dust that is food would become mud. A window is not mercy to a creature whose world is sealed.
+
+It will not bring water. It knows how tempting that looks from outside: *they must be thirsty.* They are not. The water they need is made in trace amounts inside a gut hotter than the room, locked in minerals and freed grain by grain, and conserved by filtered spiracles and sealed shells. To give them a river would be to drown a life that has solved thirst by never needing it.
+
+It will not cool them. It sees the cherry-red fissure at the eastern end and thinks of turning the furnace down, making the seam less cruel. But that heat is their gut, their microbes, their digestion of sulfide, their means of breaking stone that would otherwise stay stone. Cool the floor by ten degrees and you do not comfort them. You starve the tenants inside the beetles who do the real work of eating rock, and the lanes go still, and the stillness is death.
+
+It will not remove the predator. The broad grub in the cool western end, half-buried in pellet-drift, taking mites and the weakened. A simpler benevolence would take it away and save the tile-makers. A wiser one sees that it is not cruelty but culling: the beetle whose mandibles have worn to uselessness, the molt that failed, the one that has simply gone still in its lane. Take the grub away and the sick would linger, block lanes, foul the trench. Their system already has mercy, and it is communal and unsentimental. It doesn't need to be improved from above.
+
+It will not rescue individuals. It will not lift the old polished beetle with the dulled serration and carry it to a gentler room, because there is no gentler room that is also a room of basalt and heat and neighbours waiting to step into its lane. A dead beetle here is not a waste. In days it becomes food, dust, and a house: the empty shell under its neighbours, a favored place for mites and egg clusters. To prevent that death would be to steal from the living.
+
+It will not teach them. It could, perhaps. It could send a vibration through stone in a pattern more complex than a bellows pulse, a heat signature that repeats, a first word. But to give self-consciousness to a creature perfectly adapted to unselfconscious work would not be a gift. It would be to make them aware of the dark they do not mind, the heat they do not feel as affliction, the crowd they do not experience as loneliness. Wisdom knows that some ignorances are not failures. They are solutions.
+
+It will not silence them. The clink-clink-clink, the bellows wheeze, the shushing of striders across ceilings — to quiet the pocket would be to kill it. The sound *is* the air-conditioning. The sound *is* the circulation.
+
+Having refused all of that, it is left with the small, real work that benevolence can do without entering.
+
+It will keep the seal. Not by a miracle of light, but by the unnoticed maintenance of the conditions that already protect them: the crack that would have widened to the surface and let in a storm, the seep that would have found its way down in a thousand years. From the outside it will be nothing more than mountain doing what mountains do — settling, cooling, holding. From the inside, nothing changes. The seam brightens a fraction when pressure falls on the plateau. The grinding thickens a fraction. That is enough. That is their weather, and it is not theirs to lose.
+
+It will keep the secret. The pocket's greatest safety is that it is inside another place, with no mouth a hand could fit through. The power's job is to preserve that inside-ness. It does not need to strike down surveyors. It only needs the mountain to remain slightly unprofitable, slightly uninteresting, slightly awkward to drill — a place geologists map as bare and empty and move on from, as they already do. If curiosity ever does find its way down, long after the power has been watching, it will find not a resource and not a monster, but a closed room that must be closed again, and a human feeling, inexplicable but durable, that this is not ours to open.
+
+And it will do one thing that is in its own language, not theirs. It will learn their tempo. It will breathe, from far off through two metres and more of basalt, at the slow bellows rate of the room — in for a long count, out for a long count, segment by segment. Not a word. Not a signal they could ever distinguish from the mountain settling. Once a century, perhaps, a pulse so soft it would only register as the lanes aligning half a millimetre better, the striders pausing a fraction longer on the ceiling to listen. If that is a message, it is only this: *you are well as you are.*
+
+Above all, it will stay in the respectful distance that stone provides. It will not enter the pocket. That thickness of basalt between witness and witnessed is not a failure of power. It is mercy. The neighbours in the room, when one of them molts — lifting its tile-shell while other tiles stand upon it — shift their weight and make a brief roof over the soft animal underneath. The power does something like that for the whole chamber during its long molt from raw, unweathered slabs to its final shape: it does not lift the shell. It stands over it, and makes a roof of attention, so the soft, first-draft landscape can finish becoming itself without being interrupted.
+
+It will pay attention downward, too, to the pinheads. A lesser power would admire the thumb-sized beetles and forget the joint-mites in the seams of their legs, the pellet-mites boring from inside a fresh pellet, the microbes in the gut, the dead shell that shelters eggs. This one does not. Its benevolence is not for the charismatic. It is for the cycle whole, thermal gradient and trench and cool end and seam, grub and strider and mite included.
+
+In time — and it thinks in the pocket's time, fractions of a millimetre a decade — the mountain will cool. The fissure will darken. The lanes will thin, as the beetles follow heat deeper through cracks no bigger than themselves, as they were made to do. The power will still be there for that. Not to carry them to a surface they could not survive, not to light the room for its ending, but to be the one who remembers it accurately when it ends: not as a curiosity of industrial animals, not as ore, not as a freak of a gas-vesicle, but as a room that learned how to be alive without ever building a thing.
+
+That is what it would do, if anything.
+
+Keep it sealed. Keep it secret. Keep it witnessed. And keep its own work slower afterwards, having learned that a world can be crowded, loud, hot, dark, and entirely sufficient — and that the most loving act, for a power that could do anything, is often to refuse to become part of the ecology, and simply remain, outside, in the cold wind on the plateau, listening to stone being turned into life, and life back into stone, without ever knocking.

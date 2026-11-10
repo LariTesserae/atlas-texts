@@ -1,0 +1,23 @@
+The shelf sits two-thirds of the way up the mountain, a scooped ledge maybe three hundred paces across. Behind it rises a headwall of blue ice and black rock. In front is a lip, then air, then the tops of clouds. Light comes from everywhere here. The sun is small and fierce in a sky nearly violet, the headwall throws it back, and every wet surface throws it back again. Shadows have no dark in them, only a different angle of glare. The people wear strips of horn across their eyes with a slit cut in them, and the goats squint.
+
+Everything is wet. The rock weeps along a hundred seams, and fog climbs over the lip and beads on stone, hide, and eyelash. Water stands in every hollow and runs in every groove, though the air is cold enough to split a green branch, if there were branches. Nothing grows taller than a thumb. Rust-and-grey lichen skins the old stone, and a few cushions of moss sit at the seeps like wet fists. The rest of the living green is in the water itself, a gold-green silt of threads and specks that drifts in every pool.
+
+The water does not freeze until it is told to. It hangs past its freezing point, loose and bright, until a knock or a sharp sound sets it. Each drip from an eave lands and becomes a coin of ice that the sun unmakes in a few breaths. A dropped bowl would whiten the lane around it. A shout would glaze the whole town.
+
+So the town is quiet, though it is never still.
+
+It fills the shelf wall to wall. The round-shouldered houses are stacked stone, their corners worn off by more freezes than anyone has counted. They press so close that the lanes are one person wide, and the roofs of one terrace are the doorsteps of the next. The stair treads are dished like spoons, and long flutes run down the walls where the seeps have always run. These bones are old and do not change.
+
+Everything else changes hourly. Half the town is ice built that morning. The people pour water into forms of hide and bent horn, set a cupped palm against the form, and click the tongue once. The wall takes, clear as an eye. By noon it sags, sweats, and leans, and someone is already pouring its replacement three steps over, because the channel has moved, a roof has slumped, or a pool has opened where the lane was.
+
+Everyone works with felt mallets, bone pegs, horn scoops, and cord. They wear felt on their feet and their goats wear felt boots. They talk with their hands, fast, and with knotted strings hung in doorways. There are no bells. The dogs are a mute breed, bred down from ones that barked. Each house has a single inner room that is thick-lined and kept bone dry. That is where infants are taken to cry.
+
+The animals crowd in, because this is the only open water for many days' climb in any direction. Finches in their thousands turn above the roofs like one thrown cloth, and none of them sings. Red-legged black birds walk the ridgepoles. Stilt-waders stand in the pools and lift one foot and then the other without stopping. Their slow permanent dance keeps them from being held. Pale loaches hang in the gold water, and when a pool sets around them they simply wait, eyes open, to resume. White weasels have learned to run the lanes after a freeze and take whatever is fixed in place. A long-billed bird snaps its beak just above the surface, lifts out the thin disc of ice it has made, larvae and all, and swallows it like a wafer. Midges stand over everything in bright columns.
+
+Several times a day a stone lets go of the headwall and cracks on the scree. Then comes the set. A white front runs out from the sound faster than a person can turn. Each crystal ticks as it forms, and the tick is what sets the next. Pools shut and runnels stop mid-fall as glass rope. The fog itself takes, and for a moment the air between the houses is hung with feathered curtains and stairways. Then they let go and come down as glitter, which makes no sound at all.
+
+Everyone stands where they are. A wader is caught by one ankle, and a goat's beard is frozen to a trough. The finches, rimed mid-turn, drop a little and recover. In the hush there are only the last small ticks, running out toward the lip.
+
+Then the sun starts on it. The ice walls have gone to lenses, and hot white points of focused light crawl across the town, scorching a felt door here and lighting a dung-pat there. The old women track these spots and set kettles in their path. The wader's ankle comes free. Water starts down a route it has never taken, and forty silent people run with scoops and hides to meet it. Their hands are flying.
+
+At night, with no sun to undo anything, the day's last set simply holds. It is the one still time. The town lies locked and shining under the stars, bright enough to walk by, and nobody walks.

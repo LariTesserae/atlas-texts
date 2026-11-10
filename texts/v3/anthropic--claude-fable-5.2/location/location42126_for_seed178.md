@@ -1,0 +1,34 @@
+Eighty years ago this valley was under ice, and it has not finished arriving. Tonight a storm is coming up the inlet from the southwest, the tide is making behind it, and the river is in flood from two days of rain on old snow. All three meet on the flats in the dark.
+
+The noise comes first. Under the hiss of its surface the river is carrying its bed along, head-sized cobbles knocking together on the bottom, a sound felt through the boot soles on the bank. Over that the wind is in the alder, leafless now, ten thousand stems clattering, and in the spruce it makes a lower, longer sound. Surf breaks on the bar at the mouth. Sea lions roar on the outer skerries as they do in any weather. Several thousand geese on the sedge flats, lifted off their roost by the tide, complain without pause. Every so often the glacier front, twelve kilometres up the valley, drops a piece of itself into its lake, and the crack and the long collapse arrive late, underneath everything else. Nobody can talk here tonight except with a mouth against an ear.
+
+There is almost no light. Cloud sits on the ridges, which are low and rounded, four or five hundred metres, ground smooth by the ice that just left them. New snow on their upper slopes shows as a slightly paler band. The river is the other pale thing, grey with rock flour and braided across a kilometre of gravel. Far up, the ice holds a dim colour of its own. Everything else is black and wet, and you find the forest by walking into it.
+
+The forest is young and crowded. Alder came first, in thickets so tight the stems rub bark off each other. Willow holds the bars and cottonwood stands behind it. Spruce is pushing up through all of it, mast-high near the sea where it has had longest, shoulder-high near the ice, and nowhere older than one lifetime. The ground is moss a hand deep over cobbles and sharp till that has not yet made soil. A foot goes through the green into the gap between two rocks. There are ferns flattened brown by frost, spined canes of devil's club, and lichen in grey beards that the wind strips off and plasters against the trunks.
+
+Water does not collect in this valley so much as occupy it. The moss holds it, the till seeps it, and every rock face on the valley sides runs with a film that will be ice by morning if the temperature drops the one degree it has left to drop. The rain already has slush in it.
+
+Nothing here has been worn down yet. The bedrock knobs still carry the glacier's grooves, deep enough to lay a finger in, all pointing down-valley. The moraines are raw ridges with sides too steep to last, studded with boulders whose edges would still cut a hand. In rain like this the till slopes fail. One on the north side lets go around midnight, a few hundred tonnes of mud and standing alder sliding into a side channel, and the sound of it is simply absorbed.
+
+The river is moving house. By morning its main thread will run two hundred metres south of where it ran yesterday. It is eating a bar of thirty-year-old cottonwoods to get there. They go in one at a time with their root-plates turning up, and ride down to join the jam at the tide line.
+
+The animals are busy in all of it. Late coho, gone dark red, hold in the slack behind logjams in the clear side channels while the main stem runs too heavy to enter. Otters work them. A brown bear that should have denned walks the gravel margins eating what the flood strands. Eagles sit hunched in the cottonwoods, dozens of them, all facing the wind. A moose is bedded in the willow, and voles keep to their runways under the moss. No owl hunts tonight, because none could hear to.
+
+There are also a few things that were put here. The oldest are ordinary: a rusted fuel drum, a cairn, and a line of rotted survey stakes with scraps of faded flagging, left by an earlier, clumsier kind of attention. The others do not decay.
+
+Seven posts stand between the tide and the ice, irregularly spaced, with no path joining them. Each is a dark rod, waist-high and wrist-thick, set into whatever was there, whether gravel, bedrock, or in one case the moss over a kettle bog. None has a footing or a collar. Each has the same effect:
+
+- **Wind:** Within about four paces of the rod the storm does not apply. An alder branch thrashing outside the boundary hangs motionless along the part of its length inside it.
+- **Rain:** Rain that crosses the boundary falls straight down.
+- **Sound:** The valley's roar drops to what a closed door would let through.
+- **The rod itself:** It makes no hum, warmth, or light, and it is exactly as cold as the air.
+
+The animals have known about them for generations. On a night like this each one holds a crowd. Wrens are fluffed in the twigs and a grouse sits on the ground. The voles are out in the open, not bothering to hide. At the third post a marten lies curled against the rod itself. The moss inside each circle is a shorter, drier kind, with a clean edge where the wind begins. In the dark the edge can be found by touch.
+
+Midway up, the valley narrows over a rock sill, and there a line crosses the river. It runs four hundred metres bank to bank, no thicker than a thumb, without towers or sag. It does not swing in the wind or sing in it, and sleet does not build on it. It may be a bridge, though no one would choose to walk it. It is certainly a level. The valley floor is rising a centimetre or two each year as the weight of the ice comes off, and the line has not risen with it. The south anchor, once at chest height on the rock, is now at the knee.
+
+On the knob above the sill stands the one building, the size of a boat shed, windowless, with the seam of a door. Its surface is never wet. Water does not bead or run on it, and sleet that reaches the wall is simply not there afterward. In the lee of it the lichens grow as they grow anywhere.
+
+None of these things interferes with the valley. The posts do not stop the slope from failing or the bar from going, and one of the seven now stands in the new channel. Brown water tears past it on both sides while a four-pace column of straight-falling rain comes down on water that, inside the circle, has no wind-chop on it. Whoever placed them seems to have wanted only to be able to stand here, in this, and attend.
+
+Near two in the morning the tide tops out. The river backs up against it and spreads through the sedge, the logjam at the mouth shifts and groans, and the geese go up all at once. Their wings are louder than the surf for a moment, and they circle in the black before settling a little further inland. Up-valley the ice lets go again. At the third post the marten does not lift its head.

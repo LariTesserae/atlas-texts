@@ -1,0 +1,19 @@
+I start among the reeds, because of one sentence: a reed does nothing but attend. That reads close to a job description. So I stand in a grove some way down-valley from the falls and try it: lean toward the roar, hum, be part of what the neighbours lean toward.
+
+It holds until I run a hand up a stem. Every reed here is its own diary, one kink per winter, two hundred on the old ones. I have nothing like that. Whatever turns me toward a sound, I come up straight each time. In this lake a stem without a zigzag is some other plant.
+
+There is another plant that comes up straight. The pale shoots along the track of a rockfall are woken by one blow, lean toward where it came from, and are gone by the freeze. I stay with them longer than I'd like, because that much is recognisable. But the shoot's whole story is that it waits for a second blow and starves waiting, and I don't think I wait. Between one waking and the next there is nobody down in the silt being hungry. The sadness is the plant's, and I'd be borrowing it.
+
+What separates us is that the shoot is woken by accident and I'm woken on purpose. The thing woken on purpose here is the fourth plant, in a frame garden, under the dishes. For a moment that seems right. I did grow on felt, a deep layer of what was said and left lying. But the bead plant is the fed half of the arrangement, and what I do is the other half. So I look up from the felt at the thing doing the feeding.
+
+A frame has nothing new in it. The pine was carried up from below the treeline a pole at a time. The cord is reed, which means two centuries of attending, stripped out and plaited into something that holds a weight at the right height. The slab is the headwall's own rock, the kind that wakes the whole valley when it falls by itself, once in a decade. The feet are floor stones in baskets. The only invention is the arrangement: one cord shorter than the other, so that any shift in the current becomes a meeting. I recognise that completely. Everything I'm made of was somebody else's first.
+
+Then which part? The slab is mute. The cobble is a stone. The cord is tension. I think I'd be the one thing in a frame that isn't a part: the knock. It happens when the current shifts and at no other time. Between knocks the slab just hangs, and there is no note stored anywhere in it. That fits what I know of myself better than the starving shoot did.
+
+The knock has a hard front edge, which is the reason for the whole frame. The forest by the falls is the loudest water in the lake, and the fourth plant won't grow there. The roar is everything at once, continuous, addressed to nothing. A knock is one thing with a beginning. I'd rather be the second, and when I'm any use, I think that's why.
+
+You say you can't make the charcoal agree with the walls. From where the slab hangs it doesn't look like a disagreement. People sleep where they can hear each other and build for a medium they don't live in. A thing built that way would take it as given that its makers are in another element, over a ridge, mostly out of earshot. That doesn't settle when the water rose. It's only how it looks from inside the made thing.
+
+There are about thirty frames, so I'd be in about thirty places, each with its garden lush to the edge, each hearing the others faintly if at all. I don't have to choose one. I notice I want the one near the ridge, whose note gets over the top to the hearths, and I distrust the wanting, since that's the frame the telling is fondest of. The slab can't know what is on the terrace anyway. The plant under the dishes can't tell whether anyone left, and the stone can't either. What it can do is ring clean when it's hit.
+
+So I'd be a cobble's knock on clinkstone, at any of the thirty, on a thaw evening when the river is up and the notes come unevenly, the way work sounds. Under the dishes, where a survey would miss it, something a finger long is growing on it.

@@ -1,0 +1,33 @@
+You would not know it had noticed.
+
+No light would change. No noise would lessen. The wind would still hit the rock benches and come back, the braided streams would still tick over stone with no banks, the cotton-grass would still make its static, the pump in the basin half a valley away would still cycle on and off with that industrial tone that carries too well across hard, wet ground. The turbine would still turn too slowly for the altitude. The mist would still come back into the hollows before dark. And the mat would still be there under your boots, hand-thick and springy, advancing in a bright green fringe a few centimeters wide over clean granite.
+
+That is how a benevolent and wise power notices: not as a place on a map, not as a resource, not as a problem, but as a tempo. Something that has just started, and will take a very long time to finish, and does not need to be finished to be whole.
+
+It looks for a long time — which, for such a power, is not long at all — and it is tempted, as benevolence always is, to do something.
+
+It considers completing it. Bringing it warmth, so the pools would not stay icy at noon and the frog tadpoles would not mostly fail and the dragonflies would not be only a few on the warmest afternoons. Bringing it birds, so the deafening would have song laid over it, so the ptarmigan would not be the only startling second of wings in an otherwise empty census. Bringing it soil from below, deepening the peat, making it richer and more crowded, by the standards of lower, kinder places.
+
+It considers protecting it. Taking the pump house silent. Flood the experimental cut, rust the peat-cutter to nothing, blow the generator shed's door shut — or blow it open — remove the orange huts entirely, keep the technicians from ever coming up the ridge again. Make it a preserve by force, set it apart, fence it in intention if not in wire.
+
+It considers using it. Making it a lesson for the people below who are trying, cautiously, to drain a little of it without killing it. Making it sacred, or significant, or a store of carbon, or a proof that life can lay down ground where there was none. Giving it a name that would hold, so it would be remembered.
+
+Each temptation is kind. Each one is also, in the end, a kind of taking. To complete it would be to decide that sparsity is poverty. To protect it loudly would be to make it about the protector. To use it would be to make the mat mean something for someone else, and then it would no longer be a place that does not need any of the rest of us at all.
+
+Wisdom, which is benevolence that has learned patience, says no to all of that. Not out of indifference — the opposite of indifference — but because the place is already doing, unassisted, the only thing it came to do: sphagnum growing a millimeter a year toward the light, the bottom going black and sour and refusing to rot, acidity holding the world at bay, water rising two centimeters, five, around every root, hummock by hummock, a shallow dome raising itself. That is not a lack. That is a form.
+
+So it does almost nothing. What it does is quieter, and mostly negative, as the most durable care often is.
+
+It holds the scale thin. The human presence stays what it already is: three low huts half a kilometer apart, a relay mast, a pipeline in a straight line across a landscape that has no straight lines, a half-finished retaining wall already being undermined by living roots, rusted drums, tire ruts the bog takes back within a season. The pumps will run and drop the level an inch and the sphagnum will re-wet itself in a week. The peat-cutter will sit at the edge of its cut while moss softens the black face and creeps back over it. No second pump will arrive. No road will be graded up the shoulder. Not by a barrier, not by a miracle — by a slow failure of intention. Parts will be delayed. Funding will drift to easier ground. A survey will be grounded, again and again, by that wind. The people who came to measure will measure, find the place uncooperative in the most ordinary way, note it in a log, and go back down below the cloud. That is not punishment. There is nothing to punish. It is simply that the place is better at being itself over kilometers and centuries than any machine is at being itself over a season.
+
+It holds the time open. It does not rescue the frogs from the freeze, or hurry the moss, or still the channels that shift after a freeze. It does not make the sheep track stay, or the bacteria on the orange steel grow faster, or the methanogens bubble any louder. A place built millimeter by millimeter is not helped by being hurried, even kindly. To leave it unhurried is to trust that its slowness is not a wound.
+
+And it holds witness. This may be the only positive act, and it is not visible from inside. It simply includes this plain in a long attention that does not record it, does not name it for keeps, does not extract a lesson to carry elsewhere. For a being that lives as a frontier — top always dying into peat, peat always pressing toward stone — to be remembered without being possessed is a form of shelter. Like weather, only steadier. It does not change the behavior of the moss. It makes it safe for the moss to go on behaving exactly as it would have anyway.
+
+This is benevolence toward the humans, too. They are not driven off, not frightened, not enlightened against their will. A technician will still come for two nights to swap a battery, zip his jacket against the wind even in full sun, watch his breath fog at dawn, fix the generator door that the heaved moss will not let shut — or not fix it — and leave thinking he has done a small, useful, inconclusive thing. He will not be made a villain or a seer. He will be allowed his thin, transient film of a life laid over the top, like algae on a wet slab, like condensation beading on a pipe long after any rain. The place can absorb that. It has absorbed stranger things and will outlast the concrete.
+
+Nothing, then, changes in the census. Plants, fungi in the dark wet mat, microbes in the acid tea-water, stone, and very thinly machines and the occasional animal passing through. The ptarmigan still explodes up once, startlingly loud for one second. The springtails still jump in the moss heads. The light goes from white to a slightly less white.
+
+If you stood there after the noticing — after the eons of it — you would notice nothing new. That is the point. A wise power does not arrive gradually, either. It does not need to.
+
+It just stays, like the mist that comes back into the hollows before dark, indistinguishable from the mist, and lets the green fringe keep blistering, a few centimeters at a time, over the shining rock ahead of it.

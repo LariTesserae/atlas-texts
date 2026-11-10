@@ -1,0 +1,29 @@
+From far below, I was first the change in the knot.
+
+I looked at it for a long time, green against white, too small for the height it occupied, and it did not move at all. Then a patch of it deepened, green to amber and back again, a slow tide crossing a broad surface, as if something large were breathing under the grove. I climbed toward it, which took longer than it should. The paths narrowed to the width of a body, I had to shoulder past a living wall, and the canopy came down close enough to brush my head. My foot took a print in powder-fine dust, and the dust slumped closed behind me.
+
+There was no entrance to arrive at. At the ring of spires the burrowers had made doors by eating stone, paired in their chambers, their armor pressed to the rock, but inside there was only contact — flank to trunk, foot to mat, leaf to leaf. I was already inside the town when I understood that I had been looking at it from within.
+
+I put my flank against a hollow trunk and stayed there.
+
+That was almost me. I learned the walk that is almost a sway: one foot placed, the weight settled, the body following a long moment later, as if the feet and the trunk had made separate decisions. I lowered my head to a leaf edge and worked at it for minutes, for an hour, for as long as the leaf took to give, eating a room out of a living wall while the trunk thickened around the room. When I rested, dimmed to sleep-pale grey, the wall went on condensing its sap into more wall. When I woke, I ate again. I learned the town the way a young tender learns it, by the pressure of the bodies ahead of me — this narrowing was a door that would lift in the morning, this warm platform was for resting flank to flank in the noon shade, this hollow in the dust was for sleeping. My color answered another tender's color when we leaned, a tide running head to tail over both of us. Content, deep green. Warm from the sun-held stone, amber. Tired, pale, and staying pale.
+
+It fit because nothing in me hurried, and nothing in me was ever alone. But even with my flank to the trunk, my attention kept leaving my mouth and going to the surface beneath it. The wall was too clean, too smooth. Something was moving over it in a slow sheet.
+
+I was the stain on the house first, and then I was thousands of legs.
+
+On the vertical faces of every trunk and leaf-plate I flowed, dark and shiny, pausing in cracks, tapping antennae against the living wood in a rhythm that came up through my feet more than through any ear. I farmed dust-mites in the cracks and ate the crisp dead scale from the doorways so the tenders' flanks would not catch. In the day I crossed all the districts at once — Root Quarter wall, Canopy platform, the plate of a roof-leaf — touching everything and belonging to no single house. At night the sheet settled into the cracks and went still and invisible, pretending, in my way, to be part of the house.
+
+That was almost me too, a mind spread thin over every surface, never finished being one body. But the sheet carried a tap, and one tap went down through a leaf-plate and was answered from the other side. I followed the answer. The glider folded in the crook below did not answer me — they spread and fell and did not walk the streets at all, solitary in their perches — and the burrowers in their stone chambers were too armored, too paired, too far at the boundary. The answer came from something smaller, staying, tapping back through the plate with the pressure of its legs.
+
+So I find myself where the tap ends.
+
+I am a leaf-nibbler, no bigger than a thumb, in the folded vein of a single enormous roof-plate leaf in the high bright light of the Canopy Quarter. The leaf is my continent. It is leathery and warm and springy, layered five and six deep over its neighbors, and its weather is the town around it: at noon the plates spread a little wider, in a long season the faint mineral vapour rises stronger from the deep rock and the leaf condenses more sap, now and then a tender's flank brushes the edge of my world and shades it for an hour, the wall-runners move in their sheet above me driving mite herds upward, and a glider folds itself into the warm crook where this leaf leaves its trunk below. I was born on this leaf. I mate here, I lay here, I press my legs to its surface and tap, and the tap travels through the plate to the other nibblers, to the runners above, to the glider below. Everything is touching everything else, and I do not need to leave to be in the town.
+
+The large bodies I had been a moment before were not bodies I tried on. They were pressures arriving at my leaf. The color tide from far below was warmth and shade coming over the edge. The sheet on the wall was a tremor through the plate. The slow weight in the crook was a glider landing. I had mistaken the weather of a leaf for a self, because from inside a vein, the whole stacked town can only be felt that way — as contact, as change, as a long patience between one touch and the next.
+
+At night I draw into the vein, where the husks of the generations before me lie accumulated in the fold, crisp and mineral, and I graze among them. Below, the leaf-doors close over the sleeping tenders. The gliders fold. The wall-runners settle into their cracks. The rock ticks as it cools and gives back the day's heat. The vapour rises. The leaf condenses a little more of its amber sap out of light and warm air and dust, and stores it, and thickens very slightly around me, the way the town thickens around everything it holds.
+
+I never drink. I never hurry. I never leave this leaf, and I am never out of touch — not of the leaf under my legs, not of the husks beside me, not of the runner's tap above or the glider's weight below or the tender's shade at the edge of the world.
+
+From far below, the knot does not seem to move at all.

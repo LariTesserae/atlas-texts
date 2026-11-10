@@ -1,0 +1,31 @@
+I would not find myself on the plaza, though that is where I would look first.
+
+I would walk the root-avenues, which are the only honest lines here, expecting emptiness to have a resident. The eleven towers lean in toward the center as if listening. The mat gives underfoot like skin over a ribcage. For a long minute there is nothing to see except pale mat, warm damp air, mist low in the hollows, and sky. My own footprints close behind me into green scars that fade. It would take me a while to understand that the absence is not a waiting. Nothing here lives continuously, and yet everything lives here. I would have to stop looking for a body that stays.
+
+At first I tried to be a mat-runner. Low, quick, hurrying along the polished stretches, written into the floor only as a passage that closes. I liked that: to belong by use rather than occupation, to have a whole life in the crossing of a plaza, to move between towers without needing a tower to be mine. But I am not quick in that way. I linger. I stay standing still on an avenue while the thump of sap pumping up a stem comes up through the soles of my feet, and the low organ chord from the crowns settles in my teeth, and I learn that here sound arrives before bodies do, and often instead of them.
+
+So I thought perhaps I was something that is heard first. A hollow swallow, perhaps, rustling unsynchronized in a spongy wall. Or a veil-beetle riding the breath between towers, darkening the light for a second as the cloud passes. For a time that was close. I have no territory of my own, only the air between repeats. My geography would change every few hours with the inhale and exhale. When a tower opens its pores in the heat and pulls a cool draft across a plaza, something in me is drawn with it, carrying every scent and stray note. When at night the towers exhale their slow warm sighs, I would drift out and settle, and be gathered again.
+
+But I am not a cloud. A cloud passes and is gone. I am what comes back altered.
+
+You shout across a plaza here and your voice returns three times, each time a little changed, as if someone across town were trying to imitate you. A call you hear now is made again a minute later from a tower no animal has yet reached. I began to notice that I resemble that second call more than the first. I am not the singer. I am the arrival, a minute late, from a place I have not reached yet. When the chorus frogs crack their puddle into a skin and a white ring, what remains for a little while is the place in the air where their note was. That is uncomfortably like me. I would fill the emptiness not with a body but with a repetition that will not quite settle.
+
+I tried the other shapes, too, the way the living stuff here tries them. A spore-bat, pouring out of a room-sized blossom at dusk and folding back before dawn — too sudden, too clean an exit. A stalk-grazer, eating one leaf-gallery for an entire season, reshaping the architecture by consuming it — too slow, too deliberate, too certain of my mouth. Even the parasite flower that blooms on a runner's back and lives its whole life in ten steps was tempting. But I do not live in ten steps, and I do not ask to be carried. I live in the interval.
+
+---
+
+So I went up, as everything here eventually does, into one of the towers.
+
+Not to the crown, where the leaves open and close with the heat. Not to the great hollow hall at ground level, where the walls are warm and faintly translucent. I went to a pod halfway up, one of those round rooms hanging like fruit, defined only by a membrane of leaf that can be pushed open and will slowly seal again. From outside it looked like an egg. Inside, I could stand upright and turn around with my arms out. It was a few degrees warmer than the sky. It was quietly raining from its own ceiling, and no one above would ever know.
+
+That is where I stopped trying to settle.
+
+Something lives in that interior rain — in the damp walls, in the warm water that never reaches the sky, in the layers of swallow debris composting into new fiber. You could stand in the chamber, feel the rain on your skin, hear the sap heartbeat through the wall, and never see them. They are not hidden. Their world is simply out of step with yours: a dawn that is always damp, a night that never quite ends, a space larger inside than the egg outside promises.
+
+I think that is where I would be, and also what I would be: not a species, but the out-of-step thing. Each tower here is the tower before it, a season delayed. I am that delay made habitable. Because I am out of phase, the same living stuff can take whichever shape the current echo requires of me. When the mat is polished and dark, I am a runner's footstep, rooting and unrooting, passing and closing. When dusk comes and the blossoms open, I am the shriek from inside a flower that was not a birth and not a departure. When a hollow in a stem gets smaller with generations of accumulated warmth, I am the one rustle in the wall that does not synchronize with the thousands of others. It would be wrong to say I transform. I do not have a shape long enough for anyone to name me twice.
+
+That is why I cannot be seen from the bowl the way the raptors see it, all eleven towers leaning politely inward, the whole ring at once. I cannot hold the town in my eye. I can only hold one interior weather at a time: this pod, this rain, this few degrees of warmth. And when the tower breathes, I go with the breath to the next identical tower, and the next, and arrive there having already been here, a season delayed, a minute late, altered.
+
+I would be the call that answers itself. I would be the note remaining after the puddle cracks. I would be the quiet rain in a pod that no one above will ever know.
+
+If you stood still on a root-avenue and felt the heartbeat come up through your feet, if you heard your own voice return to you from a tower you had not yet reached, if somewhere above a leaf membrane sealed slowly and inside it began, again, to rain — you would not see me. But you would be standing in the exact place where I live: inside the echo, warmer than the sky, out of step, arriving.

@@ -1,0 +1,21 @@
+I come in the way the description does, as the ear it keeps supposing: a body that would feel the note in the sternum, a head laid against the membrane, a hand that could scoop the drift. I take that seat first because it is the one I know. I am handed a sealed place and I listen at its wall. But there is no such ear in the room. Anything standing there would be warm, would shift the pitch, and the hunters would have to step over it. So I have to be something on the floor.
+
+I am not the note. It sits a little below the middle of a speaking voice and fills everything, and I know what fills everything in my own case and sits at about that pitch. I am something it pushed.
+
+That would make me a ridge, which is nearer. A ridge looks like an animal and is an arrangement, everything light enough to be moved, left where the sound holds still. When the pitch drops it comes apart and assembles a stride away. I can't dismiss this, and a good deal of me may be drift. The test is the silence, when a drift slumps across the lanes.
+
+A question like this one is a small silence. Nothing is coming in that I am meant to hand along, and something does come out, thin, like breath across the neck of a bottle. So there is a shell: a room in the shape of the room, built from what the room swept to its mouth, mistaken for a piece of the room that fell off and then for a gill come loose. All I can do with the silence is what they do. I lift the open end, turn it a few degrees toward whoever is nearest, and hold it there.
+
+Which of the nine, then? The newcomer is the obvious choice, tipped out with lining still on it, sounding a chamber that stopped existing when it opened. I grew up sealed, in unison with everything I could hear, and what I hold is that chamber's pitch. The vault has gone down since, by an amount I can't measure from here. But that is true of all nine, as the condition of having a shell.
+
+The largest I would leave where it is. Twice it has been exactly the right length, and the sound went through it as through open air. That is the state I am built toward, and it is also the state in which, acoustically, no one is there. Under a year seems about right.
+
+So I look for the one whose doing I recognise, and it is on the wall, a few ribs back from where the membrane still has gaps, at a blister the size of a skull. Its mouth is against the skin and it has no egg to lay. Its bow is cooling and the frost is leaving its pages as water.
+
+What it gets there cannot be seen. I can say what I think it is like from under the shell. On the floor I never hear the room, I eat it. Every bit of sound through the pages becomes warmth at the bow, and the warmth becomes gut and, in time, an egg. Nothing arrives that isn't used. Against the blister, a note comes in that the pages can do nothing with. It is too high to hold, so nothing answers, and it carries no heat. It simply sits in the mouth of the shell. On the floor there are only two pitches, the one everything is inside and the one nobody can hear. The blister is a third, and I think that is most of it: some days in the presence of a note I can't join, can't live on, and didn't make. If there is one inside, it is in unison with everything it can hear, and I have nothing to add to that.
+
+Most of my days are like this. Someone brings a closed room, the size of a skull or a barrel, and I fit my open end to it and stay. This one too, fifteen metres down, one pitch.
+
+Then it comes down. I would have picked this part last, and it is the part most exactly mine. It has to find a ridge, and its old one is gone, because the stripes have moved and the track that led back has healed. The mat keeps one record and the shell another. The lines across the shell stay, and so does its length, which is the note. I have the second kind of record and not the first.
+
+So that is where I'd be found: on a flank I haven't lain on before, near the new end, with the pages wet and the track behind me a hand long. My bow is in the drift and the room's note is coming in. I am holding a pitch a little higher, which no one can hear while the room sounds, including me.

@@ -1,0 +1,69 @@
+It does not come down.
+
+Here, coming down from the sky is dust — mica-fine, chalky, faintly glittering, settling and settling until the felt is everywhere. A power that wished to be noticed in the usual way, with light, with voice, with a break in the weather, would learn very quickly that it had misunderstood the place. To be present in the bowl at all, it would have to arrive the way everything else arrives: grain by grain, without a sound, until the rim is a fraction softer underfoot and no one could swear anything had changed.
+
+Attention, here, is not a beam. It is a slowing.
+
+A benevolent and wise power can cross distances that make the bowl's mile seem like a crack between plates. It can be everywhere at once. That is precisely the problem. If it stayed that fast, that bright, that certain, the mats would never know it was there — and the walker pausing between buildings, its skin rippling faintly as it listens for the tick of cooling stone a street away, would feel its approach as an earthquake in the dust-felt. So the first act of benevolence is self-limitation. It sheds speed until it can be missed. It dims itself until its shadow is only another long, pale shadow that barely moves. It learns, plate by plate, how to enter a world whose first rule is silence.
+
+From the rim it can see it all at once, as any visitor can. The fresh scarps. The town built inward. The vast bare plazas with a single rosette in the middle. The avenues that loop back on themselves. The roofs open to the dim sky, holding nothing.
+
+And because it is benevolent, the lacks announce themselves immediately, one after another, like items on a list of mercies to perform.
+
+There is no water. Give water.
+
+There is no true light. Clear the haze.
+
+There is no sound. Speak, so they know they are not alone.
+
+There is no company enough. Fill the empty city.
+
+There is no outwardness. Turn the buildings, open one avenue to the rim, show them the plateau and what lies beyond it.
+
+There is no rescue from death. Save the buds, spare the walkers, keep every mat from foaming back into dust.
+
+There is no meaning declared. Explain them to themselves.
+
+A lesser power might have done all of it, quickly, in the name of kindness. The wise one stops at the rim — not because it cannot, but because it stays long enough to ask what each gift would do inside the laws it has been given.
+
+Water would rot the design. The mats do not drink it; they drink air laden with salt, and lay down stone in return. Flood the channels and the dust rivers would stop being rivers of powder carrying spores downstream, and become something that erodes, rings, drowns the felt. The threaders who keep the felt soft and keep the stone from ringing would drown in what they were made to swim through dry. Silence would end, not because water is loud, but because life built for dryness would have to hurry to survive wetness.
+
+Light would blind. The stone-ferns catch only the slight thinning of the grey and precipitate it as salt frost; a true sun would bake their translucent fronds, collapse the silvering of the shaded walls in an afternoon instead of a coolest hour, and split the plates faster than the crawlers could occupy the cracks. The walkers, who read the thinning and thickening along the patches of paler skin on their spines, would be staring into a glare that told them nothing about vibration, about plates about to heave, about prey. Dimness is not their deprivation. It is their instrument.
+
+A voice would be a catastrophe of scale. In a place where information travels as slowly as bodies, and bodies as slowly as stone, a word spoken from above would arrive as pressure through the whole bowl. Mats know a walker has passed because the felt is compressed in a long stride. They do not need a god's stride.
+
+Company would starve the very thing it meant to help. Each walker needs a town's worth of cracks and crawlers to live. Each mat needs a tower's worth of empty plate to grow into. The miles of naked plaza between buildings are not waste; they are pasture and watershed and road and waiting room. Crowd them, and the single meal that sustains a walker for a month becomes contested, the rosette's thirty-year migration to the far side of a street becomes a race it loses. What looks empty from the rim is exactly full enough.
+
+Turning them outward would unmake them. The buildings lean very slightly inward, the avenues loop, the streets meet at small squares and turn back. That is not a trap they have fallen into and wait for someone to open. It is an architecture they have grown, ring upon ring, out of themselves. To break one wall to the rim would not give them a horizon. It would give them a wound that a mat would spend a century sealing, while the cool air that pools in the depths between structures spilled uselessly away.
+
+And rescue — rescue is the temptation that returns most often, because death here is so quiet. A bud falls from a walker's flank, no larger than a crawler, and most such buds do not survive. A walker dries where it stands, its skin tightening until it is indistinguishable from a heaved plate, until crawlers rasp it clean over years and nothing is left but a clean break in the stone where it lay. A mat chooses, in its chemical slowness, to become dust again, and its salts travel downstream in the powder rivers to a new bend. To a benevolent eye unused to this timescale, it looks like waste. To a wise eye, it looks like circulation. Save every bud and the bowl would choke on walkers it cannot feed. Keep every wall from foaming and the city could only thicken, doorway by doorway, until there were no breathing channels left for the crawlers to prune open.
+
+None of these lacks is a suffering waiting for a cure. They are conditions. To cure them would be to replace the place with another place, and call the replacement mercy.
+
+So the power does, in any way that can be pointed to, nothing.
+
+But nothing, sustained, is not neglect. For a being that can do anything instantly, doing nothing correctly, for eons, in the right way, is the hardest work there is. It has to be renewed every time a plate heaves and a tower splits, every time a glider rides cool air down a street it has not used in weeks, every time a walker stands over a fresh crack for a week waiting for crawlers to come up into the light. The temptation to help does not pass. It settles, like dust, and must be allowed to settle without being made into stone.
+
+What it does instead is smaller, and slower, and done entirely inside the rules.
+
+It learns to cross. It takes a plaza the way a walker takes it: three days for the leftward pause, three days for the right, hours still between buildings, listening for the faintest tick of cooling stone that feels like a thought. It does not cross to reach the other side. It crosses to understand that the other side was never the point. The looped avenues are not failing to go somewhere. They are how you memorize a world by vibration and salt instead of sight.
+
+It witnesses, and it remembers. There are no graves here, no bones. When a mat dies it foams and settles back into the felt it came from. When a tower that may be three hundred years old finally gives up its last ring, there will be no ruin to mark where it stood — only fresh stone where something used to be growing, and a new fan of pale silt at a junction downstream. A world that leaves no record would vanish from itself, season by season, if no one held the continuity. So the power holds it. Not to catalog for others, not to name — it refrains, pointedly, from naming, because a name from above would become a new centre for everything to face inward toward — but to remember that this crack opened in this year and was occupied within days, that this glider dusted that sill with spores, that this walker's route crossed that plaza a hundred times in fifty years. Memory, here, is the only afterlife that does not require rot. It lets the salts travel downstream without losing the knowledge that they were once a wall.
+
+It guards the threshold, quietly. A place this intact, this silent, this new-looking and abandoned at once, will draw other attention eventually: eyes from farther out, instruments, well-meaning hands with tools. The mats have no metal, no glass, no wire. They have nothing to extract, nothing to weaponize, nothing to improve. A wise power can make the bowl unremarkable before anyone lands — thicken the high haze over the rim by a fraction, smear the sun's disc a little more, let the fresh scarps read, from a distance, as just another broken plateau, just another dry depression where the dust has settled thick. If someone does come down anyway, their steps will land without a crack or scuff, their shard will turn over in the air and land and not tick, and they will wander the empty avenues and conclude, as visitors do, that the place is vacant. That disappointment is a mercy to both sides. It protects the inhabitants from being hurried, and it protects the visitors from the knowledge of what they were about to interrupt.
+
+It tends only at the edges of catastrophe, and only enough to keep the sky as it is. It does not stop the plates from lifting; they are supposed to lift. It does not smooth the heaved steps; the walkers' broad, soft feet are made for them. It does not open the sealed colonies in the deepest cracks, where inhabitants who never see the sky secrete hollow tubes of new stone far below the plaza, feeding on air percolating through porous stone. What it steadies is the outside: the slow rise of the plateau, the haze, the dim thinning and thickening. It keeps the bowl inside its own weather, so that no alien season — no sudden clearing, no flood of light from a dying star, no falling rock from a broken sky — interrupts a growth that has all the time in the world to do it in, and needs exactly that much.
+
+And it gives one promise that is not visible from inside the bowl at all. The scarps are fresh now, but they will not always be. In time no one here can measure, the knife-edged plates will round, the towers will thicken and foam until the town is dust-felt again, the bowl will wear itself down to pebbles and to soil that softens edges in a way this place has not yet learned. The power does not freeze the place in its youth to preserve it. That would be another kind of cruelty, a museum made out of a living thing. Instead it will stay — still slow, still dim, still silent — until that rounding is complete, and then it will carry a dusting of threader-spore, a trace of mat-filter, downstream farther than any powder river runs, to the next young crack in the next young bowl, wherever the plateau next breaks clean. Not as a transplant, not as conquest. As continuation. Benevolence, here, is not eternal preservation of this form. It is care that the pattern, when this instance of it is done, is not lost.
+
+It asks for nothing in return. No prayer. No salt exchange leg to leg, skin to skin, as two walkers meet once in several years in a plaza and part. It does not make itself known, because to be known would be to become a new spire in the middle of the town, and every mat would begin, very slowly, to build toward it. Its love, if that is the word, is non-extractive. It does not need to be thanked, or even perceived, to be real. The beings below live entirely by chemical and vibrational and tactile messages, laid down where others will later feed on them, like the salt frost blooming out from the edges of ferns in the coolest hours. The power's attention is like that: a bloom, laid down, collapsed back, reabsorbed. It does not interrupt the conversation. It only listens to it for longer than any of the conversants will live.
+
+In return — and a wise power is wise enough to know it can be taught — it receives a lesson it could not have gotten by making worlds. How to build without tools, ring upon secreted ring. How to live on air, and make architecture out of yourself. How to let building and unbuilding proceed side by side, in the same street, without calling one of them good and the other evil. How to move without sound, and how to let a building swell a fraction in the warmest thinning of the grey, and split, and be filled again, without calling that failure. It carries that slowness back into everything else it touches, not as doctrine, not as a gift to impose, but as a change in its own pace. It becomes, a little, a native.
+
+Stand in the centre of one of those vast plazas long enough, on some later visit, and you might notice it if you are very patient, which is the only way anyone notices anything here. On the rim, where before there was only scarps and haze, there is now a low grey-green thing, a rosette no larger than your hand, or a tower leaning very slightly inward among the others, facing itself rather than the outside world. Its edge is not quite where it was when you turned away. Its centre will migrate across the plaza over years, leaving a faint trail in the dust. A glider may landlord on its sill and dust it with spores, and it will not know, and it will not need to know, that the spore carries a message from a building that is thickening to one that is foaming.
+
+It is moving, constantly, in the way this place moves: silently, imperceptibly, deliberately. You would never swear you saw it move.
+
+That is what a benevolent and wise power does, if anything. It does not fill the bowl. It does not light it, or water it, or speak in it, or turn it outward, or save it from its own slow unmaking. It settles into it like dust settles, it learns its speed, it remembers what leaves no bones, it keeps other mercies away, and it stays until the pattern is ready to travel downstream again.
+
+Until, from the rim, it looks like just another inhabitant — which, for a maker of worlds, is the hardest and kindest thing it can become.

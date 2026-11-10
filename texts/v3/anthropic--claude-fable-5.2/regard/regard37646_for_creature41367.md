@@ -1,0 +1,31 @@
+It arrives the way the snow does, from above, and stops where the snow stops, at the seam.
+
+First it waits for the roar to stop being a sound, which takes an hour. Then it stays a year, because a year is two marks on the door, one clutch under the plate in the middle pool, and one set of fledglings at the ceiling. It doesn't trust a judgment made on less.
+
+On the first day a frog on a stone in the middle pool turns toward where the power is, insofar as it is anywhere. The frog reaches one leg back, opens the white web, and holds it. One flag: *this stone is taken*. The power takes this as addressed to it and spends the year considering what it has been told.
+
+It considers the noise. It could close the stack, but the roar and the rain are the same steam. So it imagines the finer thing, the steam left and only the sound lifted out, and it follows that through the first afternoon. A bird at a branch end raises its bill and something comes out, thin and unpracticed. Every bird in the canopy stops feeding. None of them turns toward the singer. They are looking for the yellow, and the singer, startled, has shut its bill. In the pools the frogs hear the dripping and do nothing about it. The grey fold at the throat does not remember. The power puts the quiet down. The voice it wanted to give back belongs to a frog on a loud stream far below, one that isn't missing it either. This one has a white foot and is not short of anything.
+
+It considers the lip. Seven tadpoles go over that year. A sill of stone a finger high would keep them. It would also keep seven more mouths each year at the rim of the olive mats, and there is exactly as much rim as there is. The power cannot add the sill without then adding rim, and heat for the rim, and finally itself, permanently, to hold it all up. A place that needs a god standing in it is a different place. The same sum comes out for the birds and the flanges. It adds nothing. It goes over with each of the seven for the few meters until the cold takes the water apart, and it does not pretend this is much.
+
+It goes down the cable once, through the cloud, to see what the roar is for. It finds a clinic refrigerator, a schoolroom, a streetlamp, and a kettle. Nobody under those lights knows their surplus is rain on a garden. Nothing in the garden knows its weather is someone's surplus. The power could tell them. It follows that through too, to the fence, the sign, the boardwalk, the permit, and the first careful boot in the middle pool. It follows the other telling, which is one line in a report about vegetation on the lagging, and then a crew with scrapers. What has protected the shelf all this time is being a stenciled number on a door.
+
+Then it watches the autumn visit, and finds what it had missed.
+
+The moss on the lagging is a hand deep. Lagging is meant to be inspected, and inspection means stripping it. The bare rings at the flanges are the heat's work, not a scraper's. The visitor comes up out of the white, hangs the pack on the valve tree, reads the gauges, and greases what wants grease. Then the visitor walks the fifteen paces of pipe with one palm pressed flat to the moss, feeling for the wet heat of a leak and never lifting the sleeve. A little more than a hand's span from one flange, the palm rises, passes over, and comes down further on. On the sheet that goes back down the mountain there is a box for *lagging clear*, and it has been ticked twice a year for a long way back, in two different hands. The tally on the door changes hands at about the same place.
+
+So the post is filled. It was filled before the power came, by someone nobody asked, and it has been handed on once already without help. The power spent a year looking for where to put its hand and found one there.
+
+This leaves very little to do, and the power does that little.
+
+Everything on the shelf that looks permanent hangs from two days a year of one person on an iced ladder at six thousand meters. So on two mornings a year the rime on the upper rungs is a little thinner than the night would account for. The wind over the lip drops for about as long as it takes to cross. This does not make the visitor safe, only slightly lucky. If the visitor notices at all, there is nothing to call it but a good day.
+
+It does not choose who comes after. It has watched how that is done: a bird lands on the pack.
+
+It has also looked at the day the valve is closed, because the lights will find other power or the steel will finish turning to scale. It will not prevent that day. The fumaroles don't need the valve. The wall will go on sweating and the pools will stay the temperature of blood. The seam will come down and the green will draw in toward the wall. The thirty birds will become nine or ten, nesting along the base where the moss holds the right heat. The frogs came with the wellhead and may outlast it. The power has decided to be there, whichever way that goes, so that it will not happen unseen.
+
+Until then it keeps the one office that was vacant. When a fledged bird climbs the warm column and hangs against the white, the only time in its life it is easy to see, something is there to see it. When the yellow mouths open across the thicket, something is watching besides the mate. Someone ought to know that the kettle and the frog are on the same pipe, and now someone does.
+
+On the last evening of the year the frog, or its daughter, sits on the stone and reaches back, and the white web opens. The power has no foot to lift. It answers the way the claim asks to be answered and leaves the stone alone.
+
+At dark the birds come down to the pipe and settle in their row, pressed side to side, facing the wall. The frogs face it too, and the thicket leans. The power goes up to the seam where the snow turns, and there it takes the one position nobody on the shelf holds. It keeps its back to the warmth and faces out over the lip, toward the first pylon standing white in the other climate, where in spring someone will be climbing.

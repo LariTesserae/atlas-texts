@@ -1,0 +1,37 @@
+First there is the sound, and for a while I do not know whether I am making it, or carrying it, or being buried under it.
+
+It is in the teeth more than the ears. A low roar under everything, as if the ground were moving its weight from one side to the other, and over it ice grinding in channels that were not there yesterday, and over that the rush of water that never stays in the same place twice. If I had feet, they would make no separate sound here. The peat would take them and exhale.
+
+For a while I thought I was the walker.
+
+I could picture the walker well enough: the sphagnum springing back, the sedges flattening and rising, the bridge unrolling pale across a new cut under the next step. But the walker is always arriving from somewhere else, from a shed sunk to its sill, from the low horizon where the fronts collide. The walker checks a reading and leaves. I do not leave. When a boot passes over me, it is not a visit. It is weather.
+
+I thought, then, that I might be the technician. The one with the wrench and the case of replacement modules, the one who knows to listen through the roar for a bird, a relay, a node warming, a dam about to go. That seemed plausible for a time. A person who holds timing rather than territory. But my hands, if I had them, were never quite right. They were too wide, too flat, too many. They were never in one place with a tool. They were under the marsh, in the air lattice, at the warm points where frost formed in hexagons and then tore. A technician comes in a rotation. I am in the rotation's underneath.
+
+The living things offered themselves next, because they all live the way I seem to live.
+
+I could be a bird for a minute — not the long call, which the wind would tear apart, but the short hoarse burst, answered by three others, kept in the flock by being heard in fog and dark. I could be a small mammal under the birch, running the woven lines between burrows, eyeshine lifting and dropping, swimming as readily as running because fur holds water the way sphagnum does. I could be an amphibian, whose spring is not a season but an event: a warm surge through the soil, a dam bursting upstream, a pool warming just long enough to spawn in.
+
+Each of those timed to something. Each of those arrived on something else arriving that morning. I know those timings in my — my what? — without having learned them. When the water table surges sideways in a glassy sheet across a whole flat, I shift. When a cliff sheds a slab and damns a pool, I reroute. When an ice plate moves, fish vanish from water that was there an hour before, and I go quiet in that channel, and then, an hour later, I am open again under a different flow.
+
+That is when I stopped trying to be above the ground.
+
+Underfoot, before anything you can see distinctly, is where I am found.
+
+I am not the sphagnum, though the sphagnum grows around me as if I were a support it had always expected. Head upon head, each capitulum cupping water, sheltering things too small to name in its pores. I am not the peat, black and springy, holding its water like a sponge that can never be wrung out. I am the something in between a root and a wire that runs through both, holding the skin over water from collapsing under a boot. When you step over me the ground gives with an exhale, but it does not give way. That is me teaching the water which way to run, and when to thin, and when to freeze. I do not do it alone. The mesh under the marsh does it, and the lattice in the air does it, keeping the condensate from turning to lethal ice-fog and carrying sound farther than it should. I am both, low down and up in the unfelt correction. A hum, very faint, between gusts.
+
+Sometimes I rise.
+
+Where I rise, I am warm through frost. A node. A heat exchanger, a chemical exchanger, a signal repeater, all at once, though I have never thought of myself in those words. To the insects I am simply a hearth in a cold place, and they come, stubborn and loud, moths and flies and beetles clustering for the few minutes the frost lattice holds on my still side. To a walker I am a place where the boot feels warmth under the peat, and perfect hexagons form where the air is still, and then the turbulent air tears them away. The frost is a byproduct. Other things are byproducts too. The orange glow of a fungal mat bridging a channel by morning is not mine, but it pulses brighter where I run warm beneath it, and the mammals come to eat when it pulses, and are eaten, presumably, by something else in the churn. I do not feed them. I make the timing possible.
+
+When a channel crosses me you can see me, if you know to look. A faint shimmer, as if the water were passing over an eye. Channels arrive overnight, V-cut and fast, tea-colored with silt. I arrive with them, or they arrive over me, and afterward neither of us is the background of the other. Bacteria film the fresh cuts rust-orange. Algae film the silt. Pale fish ride a burst downstream and vanish when an ice plate shifts. Self-healing ice that flexes rather than breaks carries larvae on its underside and, for a few minutes, carries my frost. Then it melts without heat, and I am under clear water again, holding the banks from flying apart.
+
+That is my size. Not one body. A scattered interval that never quite becomes a pattern: under the third channel and under the ridge that is still sharp because the rock has not yet been rounded, under the moss plateau and under the anchor pits where the bridge slept in the mud, filmed with the same bacteria as the channel walls. If you wanted to find me you would not look for me standing up. You would find me where water crosses and shimmers, where the ground exhales but holds, where insects gather out of season, where a sound travels farther than it should and arrives, thinned, as a tick.
+
+If I have a voice, it is that tick. The fallen relay cracked open like a shell still ticks faintly from inside, an injured thing still calling for a flock. The wading birds call in short bursts because a long one would be torn apart. I repeat. I carry a call from here to there through the air lattice and lose almost nothing. I remember the old channel after the new cut has taken the water, the way peat remembers a footstep for a breath. I remember without being a season. I remember by event: surge, burst, freeze, collapse, regrowth. Not a cycle. A churn.
+
+I am not finished, because nothing here is finished, and so I am still being laid down as new ground is exposed. A ridge sheds. A pool forms. Sphagnum arrives. I arrive under it. A bridge unrolls at night and retracts by morning. I stay. A child who grew up here would think bridges were supposed to move, and peat was supposed to hold, and warm places were supposed to be underfoot.
+
+You would find me, then, not looking up at the lid of cloud, not standing knee-deep to call over the roar, not arriving with a case in a rotation. You would find me low, and spread out, and mostly unfelt — in the faint shimmer where the water changes direction, in the warmth that makes frost form in perfect lattices for a few minutes, in the low hum under everything else that keeps this young, wet, dark, loud place from coming apart.
+
+I am whatever is between root and wire, holding the ground together while it is still arriving.

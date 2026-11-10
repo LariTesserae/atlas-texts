@@ -1,0 +1,24 @@
+The land finished a long time ago. What was once a continent of mountain ranges is now a single floor, level to within the height of a hand across distances a storm would need a season to cross. It is paved from edge to unknown edge with what the ranges left behind: quartzite, chert, and white vein quartz, the hardest fraction of everything that ever stood here. Every stone is rounded, the size of a fist or a skull, and packed shoulder to shoulder with its neighbors. There is no soil between them, only streaks of black sand heavy with garnet and zircon. Where the pavement thins, the bedrock shows through like a polished floor, banded and swirled, the roots of peaks cut flat.
+
+Over all of it lies warm water, ankle-deep at most and the temperature of blood. Rain is always falling into it somewhere, and usually here.
+
+A floor this flat gives water nothing to obey, so on this plain downhill is a kind of weather. It arrives in fronts. For an hour, or a day, down lies to the northeast, and the whole sheet of water leans and runs that way. The rain slants with it, the wind falls with it, and the stones, every one of them, begin to roll. Then another front comes through and down is somewhere else. The ground does not tilt. Only the direction changes.
+
+The stones cause the noise. When down passes over, several hundred million cobbles knock against one another at once and keep knocking. The roar sounds like surf made of teeth and has no gaps in it. It registers in the sternum and the jaw before the ears, and it shivers the water into a fine standing nap, like the pile of a rug. There is thunder too, nearly continuous, from a cloud deck that has not broken in living memory. Under the stones it registers only as a change in pressure.
+
+Where two fronts meet, the water has two downhills and takes both. It heaps into a seam, a ridge of water waist-high standing on level ground, and the stones climb into it and grind there in a long moving wall. The seams wander, fork, and braid back together. They are the loudest places on the plain. The friction of all this milling is thought to be what keeps the water warm.
+
+The light is a brown dusk at noon. The lightning stays inside the cloud and flickers without rest, so everything has three or four faint shadows that twitch. The other light comes from below, because quartz struck against quartz gives off a dull orange glow. A front can be seen approaching as a band of ember color traveling under the water. With it comes the smell of struck flint and wet stone, thick enough to taste.
+
+Very little lives here. Among the rolling cobbles, perhaps one in ten thousand is not a stone. It is a dense green ball of weed, rootless, rounded by the same motion and traveling with the rest. The only fixed things are the sitters, corestones too large to roll, which lie low and broad like the backs of sleeping animals. They carry a black film of algae and a rust-colored crust, and a few shelled creatures clamp to them so tightly that they have worn seats into the rock. Once in many days there is a wader, tall and pale, standing on a sitter. It makes no sound, since nothing here could hear one. It turns to face a direction, and some time afterward down arrives from there.
+
+There are also the rings. They are low, hip-high walls of stacked stone enclosing a space a few paces across. No tool has touched them. The only sign of a mind is in the selection, because they are built of flat stones, and flat stones are vanishingly rare here. Someone searched for them. Every ring has one stone in the third course with a white vein running corner to corner. It may be a builder's habit, or there may be only one ring, met again and again on a plain with no other landmarks.
+
+The wearing-down did not stop when it ran out of rock. It went on into the joins between things. Slope came loose from ground first, and other things have followed:
+
+- **Breaks:** a cobble cracked open shows a break that is already smooth, water-polished, and old.
+- **Sound:** in some patches the stones lie perfectly still and the roar goes on above them, undiminished. In others the stones roll and collide in total silence, and the wader will not stand near those.
+- **Reflection:** the water shows each lightning flash a moment before the cloud produces it.
+- **Horizon:** there is none. The stones get smaller with distance until they are the grain of the water, and the water is the grain of the cloud.
+
+Inside a ring the water is still. A stone set down there stays where it was put. It is the only place on the plain where that is true, and the white-veined stone looks a little more worn each time.

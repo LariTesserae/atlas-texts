@@ -1,0 +1,33 @@
+It gets in the way the light does, through whatever is unfinished, so the first thing it learns about the place is that it will be shut out at about a finger's width a day.
+
+It does not mind. It has come to look before it does anything, and looking here means getting small. It spends a morning at the west spire reading the wall by colour. It spends a night inside an earthen sleeve on a grass stem, and most of another going down the shaft behind an empty worker and back up behind a full one. The whole time it is careful to move no air.
+
+Then it goes through what it could do, since it could do nearly anything.
+
+The ants come first, because they look like the cruelty in the picture. It follows a column home. The raiders go back up the bank three abreast with their bundles, and partway along they stop for their own. One has lost a leg to a soldier. One is dragging a rust-red head still locked on its foot, the body behind the head long gone. Each is picked up and carried. In a chamber under the roots of a dead tree the bundles are handed to grubs, and the hurt ones are licked along their wounds until the wounds close. The visitor came about one animal on this bank and has found two, and one of them eats the other. It does not turn the column.
+
+The rest goes the same way. The gecko has had one moth in three nights. The raisin-bush is reaching for the only wet thing in a dry bank, and lower down its roots are what hold together the bank the cone stands on. The thicket that takes the light also keeps the wind off, and when rain does come it will fall first on the creeper's open hands and reach the lace as drips.
+
+It could bring the rain tonight. The air is thick enough that nobody would call it a miracle. But every dry day is another course of pellets gone pale and hard, and the rain already has a date, and the visitor cannot find a better one. It walks the streambed instead and finds last year's flood written in the raisin-bush stems, a line of caught twigs a hand below the foot of the cone. Some year the line will be a hand above. That is the same water the colony drinks through a throat as wide as a grass stem. No arrangement keeps the one and refuses the other.
+
+It could give the animal a place to stand and look from. It thinks about this longest. The trouble is where to put it. A view needs a viewer, and nobody is home to take delivery. To build someone in there would be to replace this animal with a different one, which is a strange present. And a thing that could see its three spires could also count what goes up the bank each afternoon in black jaws. It heals as well as it does partly because it can't.
+
+One question it will not reason its way around is whether anything in there hurts. So it goes with a worker that is being carried off crosswise, all the way. What it finds is less than a larger animal would fear and more than nothing. There is moving air on a skin that dries like cut fruit, the taste of its own kind thinning, and no wall under the antenna. The visitor stays until that stops. This, at least, costs no one a meal, and from then on it goes with each of them. It also counts. The colony shuts the wound and does not count, and there is no reason both of them should.
+
+In return for staying, it sees what the colony can't. It sees three spires. It sees that the circle of eaten grass is a firebreak. Some later dry season, fire will come along the bank through the standing straw, reach bare ground and go around, and the thicket, the gecko and whatever the skink's eggs have become will be inside the circle. It sees, a long way down the streambed where the dove is, a grey mound taller than a person, blurred smooth by thirty wet seasons, with hardly a thread of light left in it. Two things with wings left that one on a damp evening. The empty rooms here are the right size.
+
+It had arrived meaning to be this bank's benefactor. The post turns out to be held already, several times over, by parties who have never heard of each other, and the colony is one of them.
+
+It does do one thing.
+
+On an afternoon after a raid, a worker is lying on the open bank where an ant dropped it. It is unhurt. The night's grass shows brown through its skin. It gets up and begins to walk in a loop, a hand's length from a tunnel mouth it has no means of finding. Beside the loop stands one of last night's sleeves, a hollow tube of earth where a stem used to be. These crumble at a touch. The visitor touches it.
+
+It comes down in a line of crumbs across the worker's path, each one rolled in a mouth, each still carrying the taste that says *here, again*. The antenna finds the line. The worker turns along it as it would along a wall, and goes underground. By the following night what it was carrying is a little way inside everyone.
+
+The visitor has no argument for this. The ant has grubs. Something would have found the worker by dusk and been glad of it. All the visitor can say is that it was there, the tunnel was a hand's length off, and the sleeve would have fallen by noon tomorrow anyway. It recognises this as how it starts. It has not done it again, so far.
+
+After that it stays, which is most of what it has decided. Inside, it is closed out along with the light. When the last gap in the west spire is filled it goes round to the outside and takes up a place below the tips, a little way from the gecko. The gecko is waiting for the cone to open somewhere. So, in its way, is the visitor. In a year it can see from here, on a damp evening, the colony will cut slits in its own skin on purpose, post soldiers at them, and let the ones with eyes go.
+
+Before that there is the first rain. It comes at night, some weeks on, on the date it already had. The creeper takes the first of it. Then the lace at the west spire slumps, a week of work gone to mud in a minute. The soldiers beat their heads on the floors and the news goes down through the earth, room to room, as far as the low cell with the floor like a coin. The two in there once flew in this. The visitor watches them closely and adds nothing. One of the queen's antennae lifts, or is lifted by an attendant passing. Above, the workers are already at the breach with wet clay, and for once there is plenty of it. In the gardens the nap has gone a shade denser, and somewhere in it something has begun to point upward.
+
+By morning the patch is black and shining. The west spire is shorter by a week of work, and for the first time its tip is wet on both sides. The visitor stays where it is.

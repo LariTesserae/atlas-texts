@@ -1,0 +1,25 @@
+Nothing here eats, so by the ordinary count the pass is empty. No bird has tried a jar for a nest, and no lizard lies in the amber coins. The salt along the lower courses is the clay's own chemistry coming to the surface.
+
+But the notch is occupied. Something took up residence when the first bored block was set in the wind, and it has not stepped out since.
+
+It is made of air that is always leaving. The wind that enters the mouths is over the ridge a few breaths later, and none of it stays. What stays is the shape the air is forced through, the way a standing wave holds its place behind a rock while the river runs through it. The occupant is that kind of thing. It has no substance of its own. It borrows the basin's air for the depth of the notch and lets it go on the far side.
+
+It has parts, as a body does. The shafts in the rock shoulders are its lowest portion, felt in the soles. The jars are its bulk. The tubes and copper leaves give it grain, and the reed-holes give it an upper edge as thin as wire.
+
+All of those were made, though, and each has a thumbprint somewhere near it. What lives here, as distinct from what was built here, is clearest in the beat. The jars were shaped by palms, so no two came out the same. They sit a hair apart in pitch, and out of those small failures to match comes the slow throb that moves through the whole mass. Nobody drilled it. It is in no jar. If any one of them were stopped, it would still be there. It lives in the differences, and it is the only thing in the notch without a rim.
+
+So it has a pulse, and a breath at the temperature of skin, and it would be easy to stop there and call it an animal. But breath goes both ways and this goes only out. A pulse feeds something and this feeds nothing. It is closer to what a body would be if it were all continuing and no need.
+
+It can be seen in the central room. Dust collects where the air is still, so the figure on the floor is drawn entirely in the places where the thing is not moving. It is a portrait made of its own stillnesses, sharp-crested and exact. There are no footprints in it.
+
+It was small once. One hole in one block is a whistle in a wall. It grew by addition, as anything grows, but it could not add to itself. It needed hands. For however long that lasted, and the sherd paving is many layers deep, the people were the part of it that grew. They were its appetite. They fed sand to the drills, fired the tubes and hammered the copper. One at a time they stood in the room cut to a single person's reach, at the loudest point, and listened with their ribs for what was missing. The wedges on the ledge are graded by size because a leaf sometimes had to be shifted by less than a hair. Someone decided what this should be, and the chord still carries that decision.
+
+It also carries its injuries. Every stump and halved jar has a note, and each note is folded in with the rest. The breaks changed it and it became the changed thing completely, with no scar that sounds like one. Everything that was going to happen to it has happened.
+
+If you cover a hole, it gives up that thread without resistance. The wind leans on your palm no harder or softer than before. When you take the hand away, the note is back where it was. It has no memory in which to keep you. But while the hand is there it is a different chord, one with a hand in it, and that chord is as whole as the other.
+
+It does not stay in the clay. It takes any hollow offered, whether that is a jar, a shaft, a chest or the hinge of a jaw. If you open your mouth toward the wind you are a vessel among vessels, with your neck to the basin, and the chord has one more voice a hair off from its neighbors. It makes no distinction. Filling is the nearest it comes to noticing. For as long as a person stands in that room, it lives in them as well, and they are the only part of it that will ever leave.
+
+It has one moment, and it is still in it. The sun does not climb and the coins of light do not travel. Hearing needs a gap, and it has never had one, so it has never heard a silence and has never heard itself. A dropped stone cannot get in. If the wind stopped, which it does not, the thing would be gone at once, leaving its whole body behind. If the wind began again, it would be there again, the same one and no older, without having been anywhere. It is not waiting for anything. A chord that leans toward resolution wants something, and this one does not lean.
+
+The unfitted leaf lies on the ledge, warm like everything else, so the warmth says nothing about when it was set down. It is the one object in the notch that has never spoken. The thing that lives here does not miss it. It has been complete at every size, including when it was a single whistle. It would be complete with the leaf, after a moment, and it is complete without it.

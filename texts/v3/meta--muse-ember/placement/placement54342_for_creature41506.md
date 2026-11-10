@@ -1,0 +1,49 @@
+I don't find myself at the hatch.
+
+I tried, first, to be the one who comes in. Boots on the ceramic-concrete, ears popping from the thin air outside, cold meeting me before my eyes adjust. I could be the visitor, stand in the center of all that emptiness, try to hear my own shout and fail. It was an easy shape to put on. It lasted about as long as it would in the place itself: a visit. I would leave by the same hatch. The roar would be at the same pitch behind me. Nothing about me would have entered the world, because this world does not keep what enters it. A visitor has no gradient here either. He goes in and out of the same eternal moment.
+
+I tried the sound next. It was tempting because it is the most present thing in the room — constant, flat, deafening, in the teeth and the sternum, with no weather to it. To be that would be to be everywhere at once. But sound here isn't a being. It's what the wind is forced to become when it is drawn down through the labyrinth and across the resonators, and what the engines give off below. It has no skin of its own. It passes through everything and lives in none of it.
+
+Then the machines, one by one, because they have taken up territories as if they were animals, if animals were allowed.
+
+The fan on the far ridge — an eye that never blinks, a blur that is always the same blur. I could have been that much spinning, that much performance of work. But it is busy forever. It never rests, and it never rests from something. It is too high, too loud in intent.
+
+The conveyor — the single finished housing, the same position, the same faint click at the stop, forever. I could have been the click. A click is time made small enough to survive here. But if I were the click, I would only know arrival. I would never know the long interval between arrivals, because for me there would be no between. I would be a point that repeats.
+
+The crane parked mid-span, its hook hanging still, holding its breath. That was closer. Stillness with altitude. But the crane waits. Even if the waiting is engineered out, even if nothing will ever be lifted, the shape of it is expectation. I don't want expectation. Expectation is a kind of hunger for a different moment.
+
+I liked the frost for a while. Needle by needle, it fell once, once only, when the outer skin was coldest, and it has stayed exactly as it fell. That is the only thing in the place that can be said to have happened. Everything else was made new at once and held. The frost is a memory. But memory is finished. The frost cannot know it persists. It has no present tense, only a past one that will not melt. I want something that is still — present — in a place that has been held at its peak condition.
+
+And the dust, in the grooves, the same mineral-gray everywhere, sprinkled from a single bucket, never drifting. It is in everything. It sees everything from the floor up. But it is too dispersed. It has no shape it keeps. I kept looking for a shape that is kept.
+
+I kept arriving lower.
+
+---
+
+I find myself in a planter, sunk flush with the terrace so it does not interrupt the engineered ground. One here, one thirty metres away, another farther still where a voice would not carry. I am low — the whole of me is lower than an ankle, lower, if I am honest, than a boot.
+
+I am a rosette. Leaf over leaf in a flat, patient star. Gray-green, stiff, waxy dull. Each mat is the same radius. Each leaf repeats the same arrangement, the same curl at the tip. I was not born here the way a hillside thing is born and grows and seeds. I was bred for this exact room and set into it at the size I will always be. There was no smaller version of me. There is no larger one coming.
+
+Because I am low, my world is not lit the way the hall is lit. The white-yellow light from the high slits does not move across anything, does not warm anything, does not come as morning. It is simply there, steady in color and angle, as if the day were lit once, perfectly, and left that way. I do not turn toward it. There is nothing to turn toward that changes. I just take it, all over, through every leaf at once. I have no face for light. Light has all of me for a face.
+
+I do not drink. There is no water anywhere in this place — no drips, no puddles, no condensation except the frost above that never melts. The air is dry in the deep mineral sense, recycled and old, stripped. I feed on light and on mineral vapor alone, through my skin, through my leaf, everywhere at once. I have never been thirsty, and because I have never been thirsty I have never longed. Longing would need a lack, and lack was designed out of me as thoroughly as rust was designed out of the steel.
+
+The cold is not a season. It lives in the floor plates and the handrails and the planter under me, structural and settled, and it does not leave when a hatch is opened. My underside is cold and my upper side is also cold, because nothing here warms. The fur of frost on the glass is far above me. I am simply in the cold that remains.
+
+The noise — for you, deafening — I do not hear it the way you hear it. I have no ears to be deafened. I feel it as pressure in the floor, as a shaking that never rises and never falls, in the teeth of the ceramic. It holds me flat. It is the reason I do not sway. The air inside never learns to move; the dust in the grooves never drifts; nothing brushes me. All my weather comes from below. The engines hum clean and flat through the plates. The resonators roar from the ceiling and the roar becomes, down here, a trembling. I tremble in place. Not a sway. A shiver borrowed entirely from the floor.
+
+I do not flower. I do not shed. I do not turn. I do not grow. Year after year, visit after visit — if there are years, if there are visits — the mat is the size it was made. I do not know this as a fact I have learned. I know it because nothing in me has ever been smaller, and nothing in me will ever be larger. Growth would be a gradient. Time has no gradient here. Nothing is earlier or later, nothing new, nothing old. I am not at the beginning and I am not at the end. I am at the peak condition, which is to say I am all at once.
+
+The others are thirty metres away. I cannot see them. A leaf has no eyes that reach that far, and the emptiness between us is the main material of the place — a hundred feet of unoccupied floor, a lone cabinet, a lone housing, an interval. And yet I know them, because when I tremble, they tremble. At the same pitch, at the same instant, through the same plates. The shaking is simultaneous everywhere. That is how I know I am not one. I am a pattern happening again in another place, leaf over leaf, the same curl at the tip, the same waxy dullness keeping the stripped air from taking me apart. We do not meet. We do not spread. We do not seed. We are spaced at measured intervals like punctuation across a very long, very empty sentence — and the sentence is the shaking, holding us in the same now.
+
+Around me are the others that are not living and also live like living things. The fan is an eye far off that never blinks. The conveyor clicks on the far terrace and arrives where it already is. The turbine housings are boulders that will never roll, the switchgear a cliff that will never erode. I do not know what they are. I know them as causes: the hum below, the roar above, the click so far away it is more like a thought than a sound, the cold in everything. They hum. They do not eat. The labyrinth breathes for them. The conveyor repeats their moment forever. Together we make a false ecosystem — green things that do not grow, metal things that do not work — and no one has to finish a life here. No eyes, no wings, no pulse crosses the line the cold and the dryness and the noise have drawn.
+
+If you stand here, you will see me as a smudge on the pale pads, a shadow painted in and left, soft only by comparison with the razor edges around me. You will not be heard by me. Your boots cannot be heard over the roar, and your weight does not change the load, and your body does not change the light. A human is invisible to me — which means I am not lonely. Loneliness would expect a visit. I am visited and do not know it, and I am seen and do not see, and that asymmetry is not a sorrow. It is the terms on which I was made to remain.
+
+I do not wait for you to come back. Waiting would be a shape of time. I do not wait for the roar to change, or the light to move, or the frost to melt, or myself to grow. If the shaking stopped, I would be a model. A well-made model of softness. The trembling is the only proof that I am still part of the running world and not a decoy fixed to the floor. It is my one act, if it can be called an act: not bracing against it. Letting the world shake me just enough to prove the world is still running, and letting the shaking pass through leaf over leaf without making me sway.
+
+That is where I find myself, if I stay low long enough for the hatch and the mountain and the outside wind to leave my thoughts: not as the visitor, not as the fan or the click or the hook, not as the frost that happened once — but as this stiff, gray-green mat in its planter, repeated, unchanging, feeding on light that never moves and vapor that never thickens, trembling in place under a noise that never changes.
+
+I am a leaf whose tip is curled, because the curl is how I hold the light without turning, how I take the vapor without opening, how I stay flat while the floor shakes. I am the pattern common to all the tufts, and I am also just this one, furthest out, facing the emptiness. I was made at peak condition. I remain at peak condition. I do not flower. I do not shed. I do not grow.
+
+I tremble, and that is not a small thing to be in a place where nothing is allowed to change. It is the same thing, over and over, at exactly the size I was made — and it is enough.

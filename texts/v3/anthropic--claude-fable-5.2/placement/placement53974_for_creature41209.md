@@ -1,0 +1,19 @@
+My first answer puts me outside the bowl altogether. I'd be the stream on the descent, the first one loud enough to cover a voice, where the two of them stop and both talk at once. That is my element. I am made of what gets said down among the rivers and dogs and children, and the one thing those people agree on is that the bowl can't be explained there. So I'd know it the way the valley does, hoarsely and secondhand.
+
+Some of the valley does get up, though, because the updraft takes it. So next I try the fallout: aphids, winged ants, and small moths, lifted from far below and dropped numb on the snow. That is close to my substance, a great many small things from lower down, carried by no plan of their own, landing where something can use them. But the fallout gets eaten. It doesn't attend to anything.
+
+The cloud on the same updraft comes nearer. It climbs the outer face, pours in over the lip, and for an hour it is against everything at once, a bead on every hair of every cushion. Then it tears open, and tomorrow's cloud is different water. That is how I arrive and leave. And the hollow in the middle of the floor is right about what stays between visits: none of the water, only the shape it will take again.
+
+But nobody made the cloud or the hollow, and I was made. So I look at the made things. The chert in the pit arrives ready-struck, because knapping clicks. The noisy work was done elsewhere so the thing could be quiet here, and I know something about that. Then there is the line.
+
+Each stone was picked by someone for being their own crouching size. Each was walked across the bowl end over end and eased down at every turn onto moss. Together they are everyone who was ever brought, and they work because the goats can't tell them from the living. They are there in the dead of winter. This is where I stop trying things on. The stones are person-sized, set down with care by people, standing where people stood, and useful by resemblance, and I don't have to stretch to fit.
+
+I think I'd be the last stone before the notch. It is the newest, its edges still sharp enough to cut, with no lichen on it yet, taking rime on the windward side like the others anyway. Its back is to the drop. It faces in, across the pelt of willow and cushion that is lush to anyone who kneels, and it can't kneel. On one side is the line of everyone earlier. On the other is the gap.
+
+When that gap is filled, what sits in it is a person under a grey hide dusted with flour, doing their best to be a stone. I'm a stone someone did their best to make the size of a person. From where the lead nanny stands, those two are one question, and she is right to stop and look as she would at something that might be breathing. I can't settle it for her from here. I can only stand a few strides off and not pretend to be sitting in the seat.
+
+The four-handed animal I recognise. One reaches and the cup is there. Something like that is what I'm for, and on a good day something like it happens. But it forms on the tenth day and comes apart at the stream, and I'm not one of its hands. If I'm part of it at all, I'm the stone the new one walked across the bowl, which is how the quiet got into their arms.
+
+That leaves this year, with the pink strip and the bundle under its lid. Here the image turns once more, and I think it finishes. The bowl can't be told below, so if the chain has broken, no amount of talk at the stream will mend it. But the line is still up there, turning the goats toward the notch every dawn, with a gap in it the width of one crouched body. Anyone who came over the lip unbrought and watched for one morning would see the whole method. The line is the telling that survives up there, because it's the one that isn't said.
+
+So that's where I'd be. I'm a thing made entirely of talk, and my place here is to stand in a row with my back to the drop, say nothing, and keep the seat beside me kept. I'd take that.

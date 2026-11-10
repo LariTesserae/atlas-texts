@@ -1,0 +1,41 @@
+It takes a while to notice anyone is home at all.
+
+You expect, on a green valley, something to move. A bird crossing at speed. An insect stitching the air. Something to call across the ridges. There is none of that. The first thing you learn about the residents here is how thoroughly they have learned not to move, and how crowded the place is anyway.
+
+The smallest lives are the first ones you almost miss, because they are finer than dust in the moss. Mites, uncountable, working the thirty-centimeter mattress of it grain by grain, living in the damp that never quite dries. They do not travel. They are born, they feed, they die within a few square centimeters of green, and there is always another layer of moss above and below them doing the same. They are not a population so much as a weather — a slow, constant stirring in the wet sponge of the ground.
+
+Once a season, a slug crosses the floor of the press house. It comes out of the moss under the wall, it crosses the cold concrete in a slow, silver line, it disappears into the moss on the other side. No one has seen where it goes. It is just there, on its schedule, tasting warmth and oil and green, and then gone. It is the largest animal that walks openly, and it appears maybe four times a year.
+
+The only animal that has bothered to be visible is the newt.
+
+It lives in the condensation gutter of the press house — the one place on the plateau where water actually pools, in shallow channels of painted metal. Its whole world is about two meters of gutter. It is pale, translucent, the color of water over white pumice, because there is no sun to hide from down there and no need to hide from anything at all. It was born there. It will die there. It eats what falls into the channel, it breathes the damp air, it basks, if you can call it that, against the painted metal that holds the day's heat for an hour after sunset. It has never seen the valley. It has never needed to.
+
+That is the entire fauna, as far as anyone who has stayed long enough can tell. The land is too young, too bright, too cold, and too wet in the wrong way. Plants colonized first, fast and massively. Animals have barely begun.
+
+The plants are the residents. Not visitors. Not a cover. The ones who were here before the nets and the sheds, and the ones who will be here after the workers leave for the dark months.
+
+The moss arrived first, and it never left. In the hollows between the black ridges, where thin iron-dark soil has gathered in the cracks, it made a mattress. Emerald where it is shaded and constantly fed by fog, grey-green where the wind of light bleaches it, almost silver-white on the exposed crowns where the sun hits it full on. It drinks the air, not the ground. Its leaves are sponges, its roots are a shallow felt. Fog rolls up from the lower country and shreds on the ridges, dew forms so thick the moss drips under its own weight, rain comes once a month for three minutes and vanishes — and the moss catches all of it, holds it, passes it down and across, centimeter by slow centimeter.
+
+It advances across anything that stays still. Across the soil, yes, but also across the sail-like condensation nets strung between the poles, where the moss makes the nets work better, closing the mesh with living fingers. Across the housing of a generator, across the seams of a shed wall where the lichens have grown in straight lines, reading the panels. Across the conveyor belt, not randomly, but thickest at the joints, where there is a little oil and a little warmth leaking out. Across a cable, until the cable conducts poorly and wonderfully through living tissue, and the workers have stopped repairing that part because the moss has taken over the job.
+
+It is harvested, on a cycle of years, pressed into dense insulation mats and stacked under tarps that smell of hot oil and green. It forgives this. It regrows over the cut face. A footprint in it fills slowly with water and then closes again behind you.
+
+Through the moss push the ferns, waist-high, fronds uncurling in slow spirals that take days to open. In the wild they are a thicket, layered under the shrubs, over the moss, leaning past each other for light that is already abundant and cold. They do not need much soil. They need the damp in the air and the reflected light off the white pumice and black rock.
+
+Hidden inside that wild thicket are other ferns, in near-perfect rows. You would never know they were rows until you see the conveyor belt running straight through them, waist-high, silent, carrying cut fronds into the press house. Those ferns live and die on a seven-year cut. They were planted, or encouraged, or selected until the wild and the cultivated began to blur. They are tended by the machines, and they tend the machines in return, shading them, cooling them, holding fog against their metal.
+
+Above the ferns are the shrubs — small twisted stems, leaves like polished spoons, waxy against the cold. They grow toward warmth the way everything here does: toward a sun-warmed stone, toward a south-facing crack in the black glassy rock, toward the heat that leaks from a buried pipe. They are not tall. Nothing is tall here. The light is too hard and the cold too steady and the soil too thin for height to be worth it.
+
+Above them, sparse and low, are the trees. Many-stemmed, gnarled, branching early and often, as if they decided early that spreading out was safer than reaching up. Their branches are hung with curtains of hanging moss and lichen and epiphytes, and the epiphytes grow on anything still long enough — on branches, on poles, on the blue glass insulators of the relay, on the frame of a machine left idle for a season. The trees add a ring and call it a decade. Their roots are shallow mats, gripping rock, gripping, in one case that has become familiar to the workers, the bolts of a generator. The tree grew up through the frame and is now holding it upright, its roots wrapped around steel as naturally as around stone. The generator still hums, faintly, in the cold. The tree does not mind.
+
+The flowers are few and strange. Some are albino, white blooms that do not close for days, reflecting the white sun back at itself as if they have given up on filtering the light and decided to mirror it instead. They are pollinated, presumably, by wind, or by the mites, or by nothing at all for years at a time. They can wait. Everything here can wait.
+
+Then there is the second animal.
+
+Humans. Rare, seasonal, mostly absent. They come in the bright months, when the light is hardest and the cold does not lift, to repair and harvest and press and weave. They live by the same long durations as the moss and fern: cut every seven years, press every nine, collect every season. They move slowly because the place makes speed feel obscene. They speak more quietly here out of habit, even though there is no one to disturb. Their footfalls make no sound in the moss. Their breathing seems loud.
+
+They do not settle. No town has formed, no house stays warm overnight. A shed with a mirrored roof, a stone hut with a door that still swings on oiled hinges, a silo half-sunk in green — none of them are homes. They are workplaces left open to the residents. The vine that has sealed a shed door from the outside with a green curtain is not vandalism; it is tenancy. The water tank lying on its side, full of fern, is not abandoned; it is inhabited. The workers tend the machines, and the green tends the workers' work, and neither is winning, and neither intends to.
+
+By late afternoon the light slants and gilds the edges of everything — black rock, silver leaf, bright roof, white sand — and the mist comes not as a blanket but in threads, in horizontal bands hanging unmoving between ridges. From the high shelf you can see the whole draft of a world at once: the torn young plateau, the glittering valley, the scattered nodes winking in the green, the tarn shining like a coin where the pumice is wet.
+
+And the residents hold it all together, not by moving quickly or making noise or building anything tall, but by staying. Layer upon layer upon layer, drinking the air, leaning to warmth, advancing a fingernail at a time across rock and metal and soil, living their whole lives in two meters of gutter or a hand's breadth of moss and calling it enough.

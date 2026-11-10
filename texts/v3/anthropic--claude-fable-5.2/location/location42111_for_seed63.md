@@ -1,0 +1,25 @@
+Near the top of the ridge, where the rock is bare brown andesite and nothing grows in any crack, there is a slot in the ground about the size of a doorway laid on its side. Warm air comes out of it. On cold nights that air freezes onto the lip stones as a thin grey rime, the only water for a day's walk in any direction, and by mid-morning it is gone.
+
+Someone once stacked a low wall across part of the opening, flat stones without mortar, half of it now slumped. Beside it lies a slab with a shallow dish worn into it, smooth as the inside of a shell. Three small cairns stand back down the ridge. That is everything that was made here.
+
+The slot opens into a single chamber, an old gas blister in the lava, forty paces long and high enough that a pebble thrown upward takes a moment to come back. Daylight gets about four paces in and clogs. The air is full of loosened wing scales, a fine fatty dust that never settles, and it tastes faintly of nuts and ash. Past that there is no light at all, and the chamber has to be known by heat, touch and smell.
+
+The heat comes from a crack in the floor at the far end. It is dry heat, with no steam, only hot mineral air smelling of struck flint and a little sulfur. At the mouth the air is as warm as fevered skin. In the middle it is like a stone left all day in the sun. Near the crack, a hand cannot stay.
+
+Every surface is animals. The walls and roof are covered in moths, grey-brown and thumb-length, each with its head tucked under the wings of the one above, shingled like slates and several layers deep in the best places. A palm laid on the wall meets a dry, slightly yielding nap, like the flank of something large and asleep. The rock is somewhere under that. The moths flew up from lowlands weeks away, where they were grubs eating roots, and the fat they carry is the only food that ever enters the chamber. Everything else here lives on it.
+
+The residents keep to bands of heat. Flat, blind lizards lie underneath the moth layer in the middle band, pressed to the warm rock, eating the bottom course upward. From outside they are only a slight lump in the nap. Long-legged walkers move on top of the shingle, each spanning a spread hand, stepping so lightly the moths do not stir, picking one here and one there. Soft grazers the size of a fist creep along the cooler walls near the mouth, leaving bare stripes of stone behind them. The stripes close within minutes as the moths on either side shuffle in. A handprint pressed into the wall fills in the same way.
+
+The floor is litter: wings, legs and husks, knee-deep at the edges. Nothing rots, because the air takes the water out of a dead thing before anything can bloom on it. The litter dries and gets chewed. Pale beetles work through it in such numbers that the surface creeps, and a foot left still feels a slow flow around the ankle. Below the loose litter is brown felt, and below the felt are older layers pressed hard as leather board. Hair-thin worms lie coiled in the felt and do nothing until a living moth falls.
+
+The air moves in one loop. It comes in low and cool along the floor, rises at the crack, and leaves along the roof. Every shed scale eventually crosses the hottest ground. There the stone is crusted with small, hard, bead-like animals packed shoulder to shoulder, which nothing else can reach, and they strain the dust from the current.
+
+The chamber is nearly silent. The felt swallows footfalls and the moths swallow echoes. Sometimes the rock ticks. A faint hiss, like sand poured on paper, is the only sign of several million animals.
+
+A few times a day the crack breathes harder. First comes a low knock from deep down, felt in the feet more than heard. Then a front of heat moves up the chamber, and every band shifts toward the mouth. The moths walk rather than fly, all in one direction, with a sound like cloth being drawn slowly across a table. For those minutes the bands overlap. Lizards find themselves under thin cover, walkers stray onto the bead crust, and beetles climb the walls into the lowest moths. Most of the eating in the chamber happens then. When the heat ebbs, everything settles back to its place, a little fewer.
+
+Nothing here drinks except from another body or from the rime. Before dawn the walkers come out onto the lip stones in hundreds, legs interlaced, mouthparts pressed to the frost, and they are back inside before the sun touches the ridge.
+
+Along the left wall, at shoulder height, the rock beneath the moths is polished and slightly greasy in one continuous strip, with small pits at intervals that fit fingertips. The moths cover it like everything else. The lizards favor the pits.
+
+Some night the cold outside will break, and the moths will leave through the slot over three or four nights, a soft pressure of wings against the face of anyone standing there. Then the residents will start on each other, from the crack outward, until the walls fill again. The floor keeps the record: thick dark layers of felt, and between them thin pale ones, hundreds deep.

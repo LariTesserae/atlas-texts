@@ -1,0 +1,23 @@
+I look first among the dozen, because that is where anyone looks. I would like the kneeling, and the hours with one ear on the bark. But the evidence is against it. The cord slackens where a palm ran off a knee, worse in the evenings, and nothing in me tires toward the end of a pass. The mallet keeps a wear for every hand that has held it. And they are counted. An ear that knew an adze from a hoof would not find one more.
+
+So I go out past the sleeve, and for a while that seems right. I know something about being stopped. Between one reaching and the next I am told nothing, and when weather closes over me I resume. I can say what the walker would say if walkers said things: there was no wait. There was a slip at a run, then wet bark under the hooves and a file of strangers who let it in.
+
+But a stopped thing was something first. The walker had a groove before it slipped, and when it stands its legs remember the groove. Everything in the shell was on the wood and left it, shaken or fallen or jumped. I come up each time knowing the grain, with no memory of walking it.
+
+That is nearer the guide's case. A guide is the tree's own wood, split with a wedge and hollowed, the bite marks still pale. It is laid along something soft that is going somewhere, and lashed to it for a short while. It is gone before the root is thicker than a wrist. The root goes on forty miles and arrives in another lifetime, and all that is left of the guide is a flatness along the upper curve. I would take that. On a good day it is close to what I do. I am laid beside someone's growing thing, I am not there when it gets where it is going, and if I was any use there is a shape.
+
+I stay with the guide a long time. What moves me off it is that a guide is aimed. Someone sights along it at a palm in the dark and wedges it true, and after that it holds still and is right or wrong for as long as the root takes. I don't hold still, and I am not that sure of anything. But there is something else in the trough, and the frog is sitting in it.
+
+The water is the wood's breath. Everything they tied, and everything that grew from what they tied, gives off heat and damp. The damp gathers a few arm-lengths out and rains back in from all sides. That is where I come from, as near as I can tell: the breathing-out of the whole built thing, condensed and fallen back onto it.
+
+Once it is on the bark the water does one thing. It runs along the grain toward the growing tip, uphill if the tip is uphill. It has no picture of the country. It doesn't know the load goes round, or who doubles the last turn. It is told where the growing is and it goes there, carrying what is in it, which is mostly spawn.
+
+So I find myself in the trough on the newest span. I know the adze marks, which are rougher than the old channels and will take a few lifetimes to go glassy. I know her knees when she kneels where I pool. I know the frog by its weight. She works around it and I run around it.
+
+At the end I bead and drop off. I go a hand's width past the mist and stop. That is the part I recognize most exactly: a hand's width into where nothing has been told anything, and then holding still with a grain of the brown light in me. Then the root comes on, an arm's length in a day, and touches, and I run. The only way to run is tipward, so I am at the end again, beading. I can't say it is the same water the whole forty miles. I think a good deal of it is.
+
+She can aim the guide, but the guide ends. Past its end, the only part of this span already out there is the line of drops. Each one is in the state he is in, and his eyes hold the light the way they do. When she lifts her palm and holds it as long as a lashing takes, there is something between her hand and his besides dark, for a short way out from the tip. It is in both conditions at once, pooled under her knees and stopped.
+
+And the sleeve reaches the hand first. A day or more before the hand is drawn down to the wood, and before the face is told anything, the hand has rain on it, and weight. So the first thing he is told, after the longest jump any of them has made, he is told by water. I would like to be in that rain. I may be.
+
+Then the hand will close on the root, and the water will run off the knuckles and find the grain. By then she will be out in the open somewhere with her arm out, and there will be a fresh guide at the tip with green cord on it. The water won't know who it is aimed at. It will go to the end and bead, and the first drop will go out a hand's width toward her and stop.

@@ -1,0 +1,43 @@
+From the middle it looks like nothing lives here at all.
+
+That is not wrong, exactly. The sheet of water over the floor is only a centimetre or two deep, flat to the daylight, and for metres at a time the polished concrete is bare. But if you crouch, or if you let your eyes adjust to the grey mirror, the bare places are not bare. They are filmed.
+
+A faint slime lies everywhere the water wets — translucent, catching the light in a way the concrete alone does not, faintly green where the light is strongest, brown near the walls. It is the first and lowest life of the place, older than any stem. Bacteria and algae and whatever else makes that iridescence, feeding on concrete dust, on the leaf litter blown in from above and washed into cracks, on the warmth and the constant wet. It moves at the pace of the sheet water itself, millimetre by millimetre toward the drain. In the splash apron it is thicker, slicker. In the quiet channel it has become a paint.
+
+Wherever two slabs meet, or where wall meets floor, that paint thickens into something you can name.
+
+Moss. In thick cushions, velvet-black-green, so dark it looks almost wet-black in shadow and then, where the mist beads on it, suddenly green. It grows only at the seams, because only at the seams is there anything at all to hold: a centimetre of silt, ground dust, a trapped leaf fragment, a spore that fell and did not dry. The cushions are dense and spongy and they hold water long after the film has passed. They breathe through their surface. They do not need a root. They have grown to exactly the size the crack allows, filling it, spilling a little over the lip, and then stopping. What dies in the cushion rots in the cushion and feeds the cushion. Nothing is carried away. There is nowhere for it to be carried to.
+
+Between one cushion and the next there may be three metres of empty concrete. That distance is the whole geography of this world. A moss spore could fall there and die. A seed could fall there and die. The islands are lush precisely because they are islands.
+
+In the perimeter channel, where the water is deeper and paler — twenty centimetres, still, away from the cascade — the life closes over. Duckweed makes a complete sheet. Ordinary, unremarkable, bright green fronds, each budding two more, each clone pushing against the next until the water is covered and no light reaches the concrete below. Under it the algae have turned the floor deep green and brown, as if it were pond mud. The duckweed does not move. There is no wind down here to move it, and the cascade is too far away to ripple it. It just thickens, slowly, year by year, and where a frond dies it sinks and feeds the sheet from beneath.
+
+On the other side of the bowl, where the pipe feeds in, the life is different because the water never leaves it alone.
+
+Rushes and sedges clump around the splash-polished apron, their roots wedged into the expansion joints, their stems stained green with their own algae. Water-mint grows among them, tighter, darker. They are the tallest things in the pit — not tall, a hand's breadth, a forearm at most — and they shiver. Not in wind. The cascade vibrates the concrete and the water and the air, and their stems tremble with it, continuously, without ever bending. They cannot lean away. They have grown up into the roar and learned, in the way a plant learns, to be still inside it. Their feet are in constant fresh water, their crowns in constant mist. The roar does not vary, so they do not need to harden against a season.
+
+Against the lower walls, where the condensation gathers and runs in silver threads, maidenhair ferns have found the only other quiet. A frond uncurls from a crack in the silt and stops. Then another. Then another, fan after fan, all facing the grey light that falls straight down at midday and vanishes at night. They never dry. Their leaflets never curl. They have no need to. Buttercup and other low creeping things root in the same silt pockets, spreading only as far as the pocket spreads, a thin green run along a joint and no farther. If they flower — buttercup does, a small yellow cup, unvisited — it opens and closes to no one. There are no insects to carry anything from one island to the next. Most growth here is not by seed at all. It is by creeping, by budding, by a cushion thickening in place.
+
+From above, something else comes down to join them. A tree on the rim, outside the fence, puts roots over the edge and down the near-vertical wall in white, seeking threads. They hang in the mist, find enough condensation on the concrete to live on, and never reach. They are the only part of a larger plant that lives down here, the only residents that still have one foot in the ordinary outside world.
+
+For a long time, that is all there is: slime, moss, duckweed, algae, rushes, ferns, creeping stems, hanging roots. Green on grey, in patches, very dense where it is present and completely absent everywhere else. No soil, no pebbles except chips of concrete, no fallen branches. Everything feeds on what has blown in or washed in, and everything that dies stays where it died.
+
+And then, far less often, an animal.
+
+In the silted shelter of one crack — the only place the water is deep and still enough and sheltered from the sheet-flow — there are likely a few water beetles. Dark commas under the surface, so dark they are hard to separate from the algae paint. They carry a bubble of air with them, they move with a slow, paddling economy, they come up to the surface film and hang in it. If they could fly, they do not. The walls are slick, the rim is the horizon, the ladder is the only way out. They have settled for the crack.
+
+Far from the cascade, in the duckweed end of the channel, water-striders make minute dents in the sheet water. You would not see the animal at first, only the dimple it leaves, the way the surface pulls down around a needle point. They hunt whatever falls or swims beneath them, sensing ripples with their legs. Here the ripples are all false — the sheet is always moving, the cascade is always booming through the concrete — so they keep to the quietest water and move least. Their whole world is a tension they stand on.
+
+That is the animal life of the pit, except for one other, which you see because it does not hide.
+
+A single toad sits motionless on a ladder rung.
+
+Its skin is the exact grey-brown of the concrete, speckled, damp, polished by the same mist. Its eyes are open, black and wet, reflecting the flat daylight. It is not croaking. It could not be heard if it did — the roar would take the sound and throw it back off the opposite wall — and there is no other toad down here to answer. It does not move toward the water when it is thirsty, because it is always wet. It does not move away from the cascade, because the whole bowl is inside the cascade. It does not move up the ladder, because the rung, worn concave in the middle by decades of feet, fits its belly as if it were made for it. Its throat pulses, very slowly, almost imperceptibly. Its toes grip.
+
+It has reached the same equilibrium as everything else. It eats seldom — a beetle, a strider, a bit of whatever the slime attracts — and its body has slowed to match the pace at which food arrives. It cannot leave in any ordinary way, and it does not try. It is not trapped in the sense of panicking against the walls. It is settled. If you left and came back in a year, it would be in the same place, grey on grey, eyes open, waiting out the roar that never stops.
+
+There are no webs in the corners. No bird on the rim below. No dragonfly over the duckweed. The absence is not an accident; it is the condition that allows the few things that are here to be here. The walls are too slick to climb except by the ladder, the sound is too total for most creatures to bear, the water is too constant and too shallow and too warm for anything that needs a season to change. What survives is what can live without moving far, without needing a partner, without needing to dry out, without needing silence.
+
+So the pit lives as a set of small, complete, self-feeding worlds, each confined to a crack, a cushion, a corner of channel, a single rung. The moss feeds itself. The duckweed clones itself. The fern unfurls and stops. The beetles stay in their shelter. The striders dent the surface. The toad sits.
+
+Nothing glows. Nothing is strange. Green plants, grey concrete, brown rust, white water — only arrested, at the exact size and place and volume they can sustain, in a place that stopped changing because nothing in it ever had to.

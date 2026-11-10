@@ -1,0 +1,27 @@
+The mark is easier to find than the animal. Along any copper band the liverwort runs in its ruled strip, and about once in an hour's walk the strip has a gap in it, a little longer than a body, eaten down to the metal. The copper in the gap is rubbed pink and bright. It is the only clean metal on the plateau.
+
+What lies there is low and thick, about the weight of a large dog, most of it chest, for the air. Its fur is slate like the ferns, and all of it stands toward the band, so the animal looks as if it is lying in a wind that blows straight down. The feet are broad and bare underneath. The underside of the lower jaw is bare too, a flat horny pad stained green, and the animal lies with that pad pressed to the copper and its eyes shut. It eats the liverwort and the moths as they land. In the cool part of the cycle the film beads on the vein, runs along it, and runs into the corner of its mouth. It carries one young at a time, clamped under the throat between the forelegs.
+
+It has kept its voice. You will not hear it; a pace away there is only the drip from the nearest pool. But lay a hand on its ribs and there is a drone in there, low, with stops in it. The young one under the throat is inside the distance a sound holds, and gets all of it. It may be the only young animal on the plateau that has ever heard its parent.
+
+The rest goes down through the jaw. Each time the drone starts, the glow between that band and the next one over brightens, and each time it stops, the glow sinks. From a ridge crest in the dark you can watch a slow blue-green stammer laid along a line that runs to the horizon.
+
+Walk the hour east. There is the gap in the liverwort and the same animal on it, with the same chip out of the right edge of the jaw pad and the same young with one pale forefoot. It is lying still. Then it lifts its head, gets up, crosses four columns as they come level, and lies down on open rock. A while later eleven boulders come off the ridge it left. One splits on a ledge.
+
+So it is telling itself. What comes in from the west it sends on to the east a few breaths later, and none of them is the one who found out. Each had it from an animal a little more exactly itself, which had it from farther west. They will not walk that way any more than the grazers will, but the copper brings the west to them, and toward the head of a run you can see what that costs. The animal lifts its jaw off the band between phrases, the way you take a hand off a hot pan, and puts it back.
+
+Every one of them passes it on slightly wrong. By the twentieth, the animal is clearing out from under a ridge whose boulder no longer splits. By the thirtieth it is being sent to open ground that, this far along, is a piston field in mid-stroke. By the fortieth the dust is already standing when the warning comes in.
+
+The animal drifts too, and always the same way. Near the west it never opens its eyes. A dozen places east it looks up between phrases. Farther on it spends whole strokes of the nearest columns with its jaw off the metal and its feet spread, reading the rock as a grazer does. Each one down the line attends a little more to where it is and a little less to what it is told, and what it sends on is thinner by that much.
+
+At the far end the jaw pad has a warp in it and no longer sits flat. One hind leg turns out at the hock. What reaches these animals is a hum with the stops worn off. Nothing to the west can tell them the one thing they need to know, because no animal to the west has ever stood on ground that was going soft. Most of them press the crooked jaw down harder and listen. When the seam opens they go with the ferns, and the glow between the bands above them flares once as the columns close.
+
+Now and then one doesn't. It has been standing more than lying for some time. It feels the floor give through its feet, and it picks its way off the stretch with the young under its throat. After that there is one of her.
+
+She is easy to tell. Walk an hour east of her and she is not there again. She has no band. She drinks from the dished column tops among the grazers, and rides the columns badly because of the leg. The hunter takes one run at her and misses, trots east, sets up where she will break left, and waits there for nothing.
+
+Her chin is going from green to grey. She has habits now. Before she drinks she puts her left forefoot in the pool and holds it there a moment, and you can walk back along the run she came out of and check that none of them does that. The young one is too heavy to carry and walks under her chest. Its jaw pad is still pink, because it has never been laid on copper. Everything it has been told, it was told by her from a body's length away.
+
+Sometimes she comes to a strange band with a strange run laid out along it, some other animal forty times over, with a split ear and a different young. She tilts her head to get one edge of the pad on the metal and listens to warnings for ridges she will never lie under. Then she sends. The glow stammers in a pattern that did not come from the west. All along the band the heads come up. Toward the head of the run they go straight back down. Toward the tail a few stay up, and a few of those get to their feet and are still standing after she has gone.
+
+There is no knowing what she puts into the copper. She can only send what she has, and all she has that did not come to her down the line is the feel of a floor going soft, and which way she walked.

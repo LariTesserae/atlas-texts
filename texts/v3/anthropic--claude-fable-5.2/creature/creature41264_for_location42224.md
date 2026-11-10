@@ -1,0 +1,33 @@
+Most of what moves on the plateau does not live there. The hares are issued and withdrawn. The geese are a siren with birds attached. To live in a place you have to be the same one tomorrow, and almost nothing up here passes that test.
+
+The foxes pass it.
+
+They are small, short in the ear and thick in the coat, cream going to smoke along the spine, with fur between the pads. They are never dry. At dusk a fox shaking itself throws off a brief violet crackle and looks put out. No two are alike. One has a dark mask, one is nearly white, one carries a hind foot, and one holds its brush low as though it were someone else's. Along the longest quartzite rib there are eleven hollows scraped against the stone, and ten foxes to sleep in them.
+
+They have rules, and the rules are all one rule: do nothing twice. A fox does not cross the moss by yesterday's line or drink at yesterday's pool. It sleeps only on rock and sheds only against rock, where the wind takes the fur. Out on the flats, a morning's walk from the rib, there is a row of forty identical scrapes, each with the same pebble turned out at the same angle, where a young fox once dug in one place two days running. The moss notices what repeats. Kits are walked out to see the scrapes.
+
+For the same reason, they do not die here. Peat keeps what sinks into it, and it is fair to suppose that somewhere under the flats lies a hare with a nick in its left ear. An old fox, when it is time, walks to the rim, however long the plateau makes that take, and goes over the shoulder with the water. None has been kept.
+
+Their work is the runs, and it is not quite hunting. A fox trots alongside a band of hares, pulls one from the flank, and opens it. Some are hare all the way through. Some are hare as far as the ribs and wet sphagnum behind. A few have a knot of club moss for a heart, tightening and loosening. The fox eats the first kind and walks away from the others, and what it walks away from is taken back at the shift change. This has gone on long enough that the hares have improved. The plateau has no standard of hare except what a fox will swallow. Whether the foxes know they are inspection is hard to say, but they have the manner of animals on a wage.
+
+That would explain the patience, if hares were all they were waiting for.
+
+The eleventh hollow was empty for generations, and warm. Sleet would not settle in it. Foxes who had never seen it occupied left it alone. Out on the moss, the prints of a single fox would appear, fill with water, and lead nowhere, and the foxes stepped round them. In the pool that shows stars, a fox stood reflected, a little heavy in the shoulder, with no fox on the bank. The effects had been arriving for years, and the foxes were waiting for the cause.
+
+It came alone, and that was the difficulty. The plateau makes things in runs, and a fox is not a thing that comes in runs, since the first thing any fox does is differ. There was no body in the peat to work from. There was fur combed out on quartzite and blown onto the moss, a milk tooth, scat, the heat-prints of sleepers on stone, and ten thousand shifts of being watched by something that never did the same thing twice. The only specification available was "no two alike". To fill it the plateau had to do what it had never done, which was to make one of something and then stop.
+
+So there are eleven foxes on the long rib now, and the eleventh is nearly right. Its coat is correct at the tips, and at the roots, when the wind parts it, a faint lime. Sleet does not settle on it. Under the fox smell there is a trace of iron filings and cut grass. Its eyes are right. It was put together mostly out of watching, and it watches well.
+
+Its pulse is not in it. The slow beat that wandered under the flats for as long as anyone has listened, the thud every two seconds, now has something to be under. It keeps pace beneath the eleventh fox wherever the fox goes on the moss. When the fox steps onto quartzite, the beat stops at the edge of the stone and idles there. On the rock it has no heartbeat at all, and it goes onto the rock anyway, more often than it needs to. It sleeps there, in the warm hollow, in the row with the others.
+
+They did not drive it off, and they did not greet it. They let it follow at the back of the following, and it watches them the way they watch the hares.
+
+It does not need to eat, as far as can be told. It pulls a hare all the same, because that is what is done. For a long time it ate whatever it had opened, flesh or sphagnum, without preference. Lately it has begun to stand over the wrong ones, consider them, and walk away. This means that in one small place the plateau has begun refusing its own work.
+
+When a split shrieks and the shift changes, ten foxes do not turn their heads. The eleventh stops dead with one forefoot lifted. Around it the rows slump, the stacks fold at the waist, and the green-sided hares at the margin go back to being ground. It stands in the middle of this and waits to learn whether the note is for it. So far it has not been. When the note ends, it puts the foot down somewhere it has not put it before. It learned that rule first and keeps it more strictly than the born foxes do, having more reason. Every day it differs a little further from the thing that was made, and since it is the plateau that goes on making it, every day the plateau makes something it has not made before.
+
+It is the only animal that visits the starred pool. The reflection is still there, a fox against a clear night, heavy in the shoulder. On the first day the eleventh walked to the bank and fitted the reflection exactly, the way the hares' feet land in their prints. It no longer fits. It has thinned and its carriage has changed. It holds its head as the masked one does, though not quite, and there is a caution in its hindquarters that it copied from no one. It stands on the bank and looks down at the earlier version for some time. It does not drink.
+
+It has also been to the rim. It has stood on the black lip where the water goes over brown, watching the green flecks fall, some still curling toward the shape of an ear. It knows what they are, having been one itself. The beat comes with it as far as the last of the peat and stops there, as it does at the rock. The born foxes go over this edge at the end so that the plateau cannot keep them. The eleventh was kept before it began, so that reason does not apply to it, and no one can say what would go over if it went, or what would be left idling at the lip.
+
+It has not gone. It goes to look. Then it turns and comes back across the moss by a way it has never used, which is the only way a fox comes back.

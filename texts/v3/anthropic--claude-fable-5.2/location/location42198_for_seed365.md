@@ -1,0 +1,33 @@
+The shelf is younger than the oldest woman living on it. Before her mother's time the mountain face was whole. Then a block the size of a small town dropped some forty paces, tilted slightly inward, and stopped. The break behind it has not dulled. The back wall is clean grey-black cliff, all fracture planes, and its edges will still open a palm. The front lip runs straight as snapped slate, and past it there is only cloud, sitting level with the lip or just above it, so the shelf lives against the underside of the weather. It is four hundred paces long and a little over a hundred deep.
+
+No stream crosses it, and rain is rare. The cloud here does not fall. It leans, combing across the shelf and leaving water on whatever is cold enough to take it, so the town is built to be cold and touched. There are forty-three stacks, hollow towers of split stone laid loose without mortar, each taller than a person with an arm raised. Fog passes through the gaps, beads on the inner faces, and runs down to a clay-lined basin at the foot. A good morning gives two hands' depth. Against the lee side of each stack is a low room roofed in slab and turf, with a slab for a door.
+
+The stacks stand thirty or forty paces apart. The builders say this is because spent fog gives nothing to the next stack downwind. Between them run paths flagged in the same stone, the joints packed green. It is a town with far more gap than wall.
+
+The tools are hammerstones, antler wedges, bone needles, cord, and clay fired in dung. A few copper things were traded up from below: an awl and two basin scoops, already green.
+
+Stone this new should carry a crust of lichen and nothing else. Instead the moss is a forearm deep. Cushion plants swell to the size of sleeping cattle, and tree-heathers hang with grey beard. Rosette plants stand on shaggy trunks, their felted leaves closing over their own hearts each night, and ferns grow in every joint of the cliff. All of it is fed by dung, since the animals carry the lowlands up in their guts and leave them here. Under the green the rock still has its arrises. People who step off the flags wear soles of four thicknesses of hide, and now and then the moss shows a thin rust-colored line where something soft-footed crossed a hidden edge.
+
+The animals are everywhere. Slate-colored salamanders cling to every wet face of every stack. Snails with shells like wet horn work the flags. Hares, voles, and deer no taller than a knee move through the heather alongside round tailless rock-sitters with old men's hands. Ground birds the color of lichen share the moss with lean foxes and a few cats. Owls sit on the stack-tops. At dusk the moths come in such numbers that the towers look furred.
+
+All of them keep a spacing. No creature on the shelf stands within its own body's length of another. There are thousands of them, and each holds its own pocket of air. When one moves its neighbors adjust, and the adjustment travels the length of the shelf like a hand smoothing cloth. Seen from the cliff foot in the grey light, it looks as if someone had set the animals out one at a time.
+
+The rule lifts only at the basins. There they press flank to shoulder, hare against fox, moth on the deer's wet muzzle, and nothing is taken. One pace back from the clay rim the spacing returns, and so does the hunting. A kill is two pockets of air becoming one for a moment. Then the ring around it widens and resettles.
+
+It all happens without a voice. Birds that sing in the valley stop singing here. Courtship is posture and a flash of white underwing. The fox does not bark, and the kneehigh deer stamp on moss that returns nothing.
+
+The air is part of the quiet. Thin and wool-wet, it carries a sound a few paces and then lets it drop. A hammerstone on an antler wedge makes a tick like a fingernail on a bowl, and when the stone splits, the split is felt in the feet. The sounds that last are small ones: drip into the basins, moth wings against stone, a snail's rasp if an ear is laid to the flag.
+
+The people do not speak outdoors. They have a language of the hands, and knotted cords hung by each door for messages that can wait. Indoors, behind the slabs, they whisper. The children have never heard a voice used any other way, and when they laugh it is only breath.
+
+The light comes sideways through the cloud, grey with green in it, and casts no shadow. Noon is a slight thinning overhead. Fires are small, burning dung and heather-root, and are kept mostly for heating stones to carry into the bedding. After dark the only light is the thin red seam under a door slab. The salamanders' eyes return it like pinheads of copper, each a body-length from the next.
+
+Twice a day the fog moves like a tide. At dawn it climbs the outer cliff and pours over the lip, and the stacks begin to tick with water. At dusk it drains back and the air sharpens. Each tide changes the shift. Grazers fold down into the cushion plants, and the moths, owls, and cats take the same spacing in their place.
+
+The shelf has not finished arriving. Blocks still come off the back wall. Their fall is felt as a shudder through the bedding, and they are found in the morning with the animals already arranged around them. Within a season the new block is green. Each year a new crack opens across the flags, and the people bridge it with a slab and pack the joint. Stacks slump and are relaid. The heather grows fast enough that paths must be cut back with flint every month.
+
+The people do not hunt. They keep the basins. In return they take what is shed: wool combed from the heather, moulted feathers, one egg from a nest of many, and whatever the cold kills overnight. Outdoors they walk a body-length apart. To pass a thing from hand to hand, one sets it on the flag and steps back, and the other steps forward. At dusk they kneel at the clay rims with everything else, a woman between a deer and a cat, drinking from cupped hands.
+
+Nobody has ever seen an animal come up. The outer cliff is sheer and the back wall is sheerer. The count rises with the fog and is simply higher when it clears.
+
+The oldest woman signs the same account whenever she is asked. On the morning after the shelf dropped, when the rock was bare and still warm from the breaking, her mother looked down from the old ledge above. The animals were already standing on it, evenly, each alone in its own space, facing the lip. The moss came afterward, and the people after that. They set their first stack where there was a gap, and found it was thirty paces from anything.

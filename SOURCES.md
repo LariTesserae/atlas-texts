@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **184** source folders · **197,537** texts
+- **186** source folders · **199,688** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -63,6 +63,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `anthropic--claude-fable-5.1` | 1,074 | 2026-09-01→2026-09-23 | advisory·75, creature·250, location·250, placement·250, regard·249 | house-tag | event-observed 1,074 |
+
+## claude-fable-5.2  ·  1,074 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `anthropic--claude-fable-5.2` | 1,074 | 2026-11-09 | advisory·75, creature·250, location·250, placement·249, regard·250 | house-tag | event-observed 1,074 |
 
 ## claude-haiku-3  ·  1,600 texts
 
@@ -794,11 +800,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `meituan--longcat-2.0-no-reasoning` | 750 | 2026-10-08→2026-10-09 | creature·250, location·250, placement·250 | route | event-observed 750 |
 
-## longcat-2.5  ·  248 texts
+## longcat-2.5  ·  250 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `meituan--longcat-2.5` | 248 | 2026-11-09 | location·248 | route | event-observed 248 |
+| `meituan--longcat-2.5` | 250 | 2026-11-09 | location·250 | route | event-observed 250 |
 
 ## mimo-v2-flash  ·  1,075 texts
 
@@ -877,6 +883,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `mistralai--mistral-large-4-0-reasoning` | 448 | 2026-10-07 | advisory·75, creature·123, placement·250 | route | event-observed 448 |
+
+## muse-ember  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `meta--muse-ember` | 1,075 | 2026-11-09 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## muse-spark-1.1  ·  750 texts
 

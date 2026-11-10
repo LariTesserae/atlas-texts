@@ -1,0 +1,65 @@
+At first there is no animal. There is a surface that moves.
+
+It covers the floor edge to edge, rises bowed up the walls, hangs from the underside of the slabs overhead, and it breathes. Up close the breathing resolves, slowly, into ribbed abdomens pumping in no particular order. A patch that was rock a moment ago shifts a centimetre and stills. Red eyeshine crosses it in slow waves — one eye, two, a constellation riding over a neighbor's shell — and then, after a long stillness, shivers and crosses again.
+
+Only after you have watched the shimmer do the individual shapes separate out from the shingle.
+
+### The tile-makers
+
+The largest and most numerous are the bellows beetles, thumb-sized, low and oval, steel-grey darkening to almost black in the oldest, most polished individuals. Their backs are not ornament. They are a working surface: heavily ribbed, slightly convex, smooth enough that the beetle standing on top of them can get a grip, domed enough that the weight of the layer above — and there is always a layer above — rolls off and onto the legs at the margins.
+
+When one is still, it is anchored by tarsal claws hooked into the micro-crevices of the basalt, head down, mandibles working. The mandibles are its whole character. Serrated, iron-hard, they do not bite so much as rasp. Short, repeated strokes, a clink-clink-clink against stone, and a plume of iron-grey dust, faintly yellow with powdered sulfur, puffs from under the head and settles on the legs and on the shell seams. The dust is what it is eating.
+
+The abdomen does the rest. Segment by segment it telescopes out, pauses, telescopes in. The motion is visible through the ribs, like a small pair of forge bellows tucked under armor. It draws air in through the spiracles along the sides — air that has to be filtered, because every breath is full of its own food — and pushes it out again, warm, having passed over a gut that runs measurably hotter than the chamber air. The heat is not fever. It is chemistry, or something close to it: the gut is a furnace in miniature, chewing mineral, releasing the microscopically small amounts of bound water locked in the rock, liberating metals and sulfides, breaking compounds that would otherwise stay stone. What is not absorbed is passed as a pellet: dense, dark, magnetic, warm when fresh, gritty and precise.
+
+A beetle works a spot for a long time. Its neighbours, pressed close on all sides, work adjacent spots, so that the floor is a slow loom of parallel facets, each facet slightly polished, each lane aligning with the grain of the slab below. Then, without any signal you can perceive, it stops. It backs up a few millimetres, abdomen still pumping, and another beetle — indistinguishable except for a slightly lighter shade, a less-worn serration — settles into the exact hollow it vacated. The job is handed over. The place on the rock is inherited.
+
+That inheritance matters, because a single beetle in its lifetime will remove perhaps a gram of stone. It will not noticeably dent the chamber. Thousands of them, working in shifts for years, are the chamber's erosion. They are its weathering, its transport, its slow exhumation. In the central trench, where the floor tilts toward the hot seam at the eastern end, the pellets accumulate and are ground again, and again, until the dust is fine enough to be food a second and third time.
+
+Their shells wear with use. Newly molted beetles are pale, almost putty-coloured, their ribs soft. The old ones are polished to a dull mirror in places, reflecting the cherry-red glow from the fissure and the eyeshine of whatever is crossing above them. Their mandibles blunt, chip, grow back serrated after a molt. To molt at all in this crowd — to lift a tile-shell while other tiles are standing on you — they inflate the bellows until the old shell splits along pre-formed seams, and the neighbours, nudged, shift their weight and make a brief roof over the soft animal underneath. The molt itself, the shed lining of gut and joints included, is eaten on the spot by mites and then by the beetle itself. In a place with no rot, nothing is wasted long enough to rot.
+
+Reproduction is hidden by the same density that makes it possible. A male, smaller and less tile-like, sometimes climbs briefly over the backs of the crowd on stiltier legs, tapping abdomens with his antennae, following a vibration, a pulse-pattern in the bellows next to his own. The female does not leave her lane. She lays her eggs in the warm dust under the edge of her own shell, where the temperature is stable and the neighbours above will keep them covered. The eggs are glued in small clusters with a secretion that smells, faintly, of hot metal. They hatch into armoured grubs the size of rice grains, which live first on pellet-dust and on the frass of their mother, scrape with soft mandibles, and within days crust over in the same steel-grey, harden, and step out into a lane that is already waiting, because in this room every lane is already occupied.
+
+They do not drink. They cannot afford to lose water to the oven air, and they do not need to: the water they need is made, in trace amounts, by their own digestion, and conserved by lungs lined with dust-filters, by shells sealed at the seams with a mineral oil they themselves exude. That film — essential, and constantly wearing away — is the reason for the smallest residents.
+
+### The stirrers
+
+Across their backs, and also underneath them, and most visibly across the ceiling where the beetles hang inverted, move the clinker-striders.
+
+They are thinner in every dimension, longer-legged, almost stick-like, their shells narrow and high-shouldered so they can step without crushing the tiles beneath. When they touch a bellows beetle's back they sound like struck tin. They are the only animals in the room that are in a hurry, which here means they move, clattering, every few minutes by a beetle's measure.
+
+They do not grind much rock. They grind attention. They patrol the temperature gradient, antennae forked and heat-sensitive, testing a new crack, a slightly hotter slab, the edge of the fissure. They nudge pellets out of lanes and into the trench. They push dead shells aside, roll a slag pellet that has stranded on a back down to the floor. They keep the upper layers from stagnating, and their passage is what makes the whole packed surface shimmer and shift as if it were water, the layer above moving a moment after the layer below.
+
+Their bodies are lifted clear on legs that end in fine, grappling claws, useless for scraping, perfect for walking over a crowd that never moves out of the way. Sometimes a strider will stop and stand perfectly still for a long time, antennae waving slowly in the heated air currents the bellows beetles are making, as if listening to the room's weather through the rock.
+
+Where the bellows beetles are the production line, the striders are circulation. Without them, the pellets would lock, the lanes would choke, the dust would settle into a fine, suffocating felt.
+
+### The pinheads, and the things inside the things
+
+At mite scale the room changes entirely. The beetles' shells become terrain: valleys between ribs, cliff edges, crevices at the joints of legs where the oil film is thickest. Mites no bigger than pinheads run there, fast by the standards of the place, translucent grey filmed with sulfur, some brass-coloured, some with red eyes that catch the fissure glow and throw it back as a separate, smaller eyeshine.
+
+There is not one kind. There are joint-mites, living in the seams of a beetle's legs and the base of its mandibles, chewing away the mineral oil and metabolic waste that would otherwise harden and lock the joint in the dry heat. There are back-mites, living on the polished dorsal tile, cleaning dust and algae-thin films off the surface that the beetle cannot reach itself. There are pellet-mites, tumbling pellets, boring into them, living in the hollowed interior of a fresh slag pellet and eating it from the inside until it crumbles to ingestible dust. There are mites that ride — they hitch on a strider's leg and are carried, clattering, across the ceiling in seconds, to descend onto a new beetle.
+
+They are the only part of the ecology that looks delicate, and they are not. They are the sanitation crew, the surface repair crew, and in the cooler, less crowded places, the prey base. Their speed is relative; even they move in a measured way, pausing often, abdomen pulsing in sympathy with the larger animals they clean.
+
+Beneath them — inside the beetles — is a further ecology that the beetles carry with them. Their guts are not sterile furnaces. They are seeded with heat-tolerant microbes that do the actual work of breaking sulfide and freeing metal, and the beetle is less a predator of rock than a vessel, a warm, pumping container that presents powdered stone to its tenants and absorbs what they make available. When a beetle dies — and they do die, worn mandibles, a molt gone wrong, a shell split and ground in its turn — the mites strip the interior first, then the neighbours grind the husk. There is no wet rot. The shell dries more, splits along its ribs, is eaten as mineral and protein both. A dead beetle becomes, in a matter of days, food, dust, and a house: the empty shell, sheltered under its neighbours, is a favoured place for mite colonies and for egg clusters.
+
+### The patient one in the cool end
+
+At the western end, where the floor is a few degrees cooler and the pellet-drift is thickest, works the grub.
+
+It is broad, many-legged, low, half-buried as it moves, drawn through the drift like a dredge. No eyes worth mentioning; instead its head is ringed with heat-sensing pits that register the glow of the fissure and the body-heat of a weakened beetle through the crowd. Its jaws are not for rasping rock. It takes mostly mites — it will sit with its mouth in the drift and let pellet-mites blunder in — and occasionally a beetle that has failed to molt cleanly, or whose mandibles have worn to uselessness, or that has simply gone still in its lane and not been replaced.
+
+It is slow even for this place. The striders give it a wide, clattering berth, not in fear but in the way traffic gives way to something too large to nudge. Its presence is registered before it is seen: a slight parting in the shingle, a ripple in the eyeshine, a lane that has stopped grinding.
+
+It is the only animal here that could be called a predator in the familiar sense, and it is a patient one, because everything here is patient. The mountain cools by fractions of a millimetre a decade. The crack in the eastern seam opens by less than a hair's width in a year. The beetles' rhythms answer to that timescale, and to the smaller, faster rhythm of the plateau above — day warming the stone, night cooling it, a distant storm lowering the pressure and brightening the seam's red glow by an almost imperceptible amount. When the glow brightens, the grinding thickens, just slightly, all over the room, as if the whole crowd had taken a collective breath.
+
+### The seam and the ceiling
+
+Closest to the fissure, where the air is hottest and the rock itself shows cherry-red in the deepest cracks, lives a variant that is barely a variant: paler, thinner-shelled, almost translucent at the edges of the ribs, where the light from below seems to pass through. They scrape the glowing seam itself, their mandibles picking at rock that is still cooling, still deciding its final shape. Their pellets are darker, more metallic, and they are the first to occupy any new crack as it widens. They are, in effect, the pioneer species of a landscape still in its first draft.
+
+On the ceiling the same species hang inverted, claws interlocked with the undersides of slabs, abdomens pumping upward against gravity. The air they move — pushed from the hot seam toward the cooler ceiling by the collective bellows and returning through the interstices of the crowd — is their only weather. Dust falls from them, continuously, in a slow fine rain onto the backs below, to be caught, cleaned by mites, and ground again.
+
+None of them has built anything. The shelter is the crowding itself. The air-conditioning is the pumping itself. The tools are mandibles and legs and the shells of the dead. The waste is the food, the food is the rock, the rock is being turned, millimetre by millimetre, into animal and back into rock, warmed all the way through by heat stored in the mountain long before the pocket formed.
+
+If you stayed long enough — dry and hot and deafened, packed in among them at their scale — you would stop seeing beetles and start seeing a wall that occasionally crawls, a floor that occasionally breathes, a ceiling that rains dust and blinks with red eyes. And then, after a longer while, you might begin to see it the other way round: not animals in a room, but a room that has learned, slowly and loudly and without ever having built a thing, how to be alive.

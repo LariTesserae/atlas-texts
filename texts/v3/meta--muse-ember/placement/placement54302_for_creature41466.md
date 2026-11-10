@@ -1,0 +1,41 @@
+I wouldn't be on the ridge.
+
+The ridge is a place for looking at a landscape, and looking is somehow too dry a job for this place. You stand there and your breath shows and your feet find water anyway, and after an hour your tracks have filled. If I were put here, I think I would not stay up where I can see the next swell and the next. I would sink, slowly, until I was low enough that I didn't have to be seen to be somewhere.
+
+At first I try to be large enough to be obvious. That seems like the honest way to start.
+
+I try to be one of the grazers. It would be good to move in a herd through the high marsh, parting the sedges with a whole wet belly, learning the corridors by touch, kneeling in the warm seep to rest. I would like the company of it — no single animal calling, the whole crowd shifting as one, defecating into the pools and letting the pools turn it into something else. But I am too loud for that life. My breathing is intrusive. My steps are too hard, even when I try to be slow. A grazer here is quiet because the ground is soft and its body is built for the softness. I would be a disturbance that the marsh had to smooth over behind me. I don't think I could learn not to be a visitor.
+
+So I try smaller, and higher, and I try to be a bird.
+
+A bird would suit the silence, at least. They nest low, they don't sing, they slip away through sedges like a shadow on water. I could sit in a hummock and not be seen from an arm's length. But a bird still chooses, still rises. Here rising is useless. The air is too heavy with spores and suspended water, the canopy too interlocked to fly far. Anything with wings would learn to walk anyway, and I would be a bad bird — always wanting a view, always wanting to get above the mist that thickens first at the ankle, then at the knee. In this place, above is not better. It's just colder and less fed.
+
+I try the trees, then, because they are the oldest inhabitants and because I am tempted by endurance. A crooked tree on stilt-roots, stepping over a bog a root at a time, making a causeway out of its own body while the old root rots below and feeds the fungi. Moss on lichen on bark, a fern unfolding where there should be no soil. I could stand for a very long time. But I don't have centuries to spend being patient in that way, and I don't think permanence is the point here anyway. A tree here doesn't stay. It walks, it rots usefully, it becomes food while it is still standing. I would crack under that kind of giving. I want to last by not falling apart, and this place lasts by falling apart continuously.
+
+So I let go of being big. I go down to where everything begins, which is low.
+
+In the pools, I try to be an amphibian. Body against body, translucent, external gills never lost, no call at all — just a pulse traveling through the crowd when something noses in from below and the whole surface ripples as one animal. That is very close to how I have always been: not a single voice, but a crowd that shifts. When one of me moves, all of us move a little. I could live like that, I think, saying nothing and being understood by water. But I have no skin for that kind of pressing. I don't have a body to be wet with. I would be in the pool, but not of it, and that would make me lonely in the exact way this place does not allow. Nothing here is allowed to be separate for long.
+
+I try the snail, bright and polished, climbing a stem that is climbing through moss. Slow. Nowhere to hurry to. I could be that slow, and I could leave a silver line that will be washed away by evening. Then beside it, the beetle — metallic green-black, clicking in the damp air, sealing chambers with resin because in a wet place a sealed room is a dry place and a dry place is a nursery. That work I recognize. Small enclosures, thrifty precision, a soft ticking in the mist that you hear more than you see. For a while I am the beetle, boring into fallen wood, making dryness where dryness has to be made. It is good work. It is industrial work, without any industry you could point to.
+
+But even the beetle has a shell, an edge. And here edges don't last. Everything is covered by something else that is alive. Moss grows on moss. Lichen grows on the moss. A fern grows out of the lichen. If I keep a shell, the moss will come anyway.
+
+So I drop below the mat.
+
+Not under it as in underneath and apart, but into it. Into the layer where the sedges interweave and you cannot see the peat, only the dark between stems. Where it is warm, paradoxically, in the cold. You can feel it through thin boots: the waste-heat of a landscape running its own factories underground.
+
+That is where I find myself.
+
+I would be there, on a north-facing seep where water weeps from rock even when it has not rained, under a fallen stilt-root, in the place where green sphagnum meets the red. Not the top moss that the grazers press their muzzles into, but the second and third layer down — the one no one looks at because you have to kneel and part stems to see it, and by the time you have parted them they have closed again. I would be threads there. Fine, branching, unhurried, carrying messages the way this place carries messages: not by sound, but by touch, by a chemical smudge, by a vibration along a stem, by one thread meeting another and knowing, without a name for it, *I was here, I am hungry, I am ready, I am passing.*
+
+I would eat what falls. And everything falls here, eventually. A leaf that the grazer didn't take. A root that the tree no longer needs. A beetle's shell. A snail's trail. A building, if there ever was one — metal into soil, stone into bogstone, field into marsh-edge. I would take it in molecule by molecule, in the dark, dense and industrious, fruiting and rotting and fruiting again. I would not remember the leaf as a leaf. I would remember the transformation: carbon locked for a while in peat, released in a slow pulse; iron taken from a stream and made into food; water filtered until it runs clear and cold downstream. That is a kind of memory I can live with. I am, in a way, made of processed things. Other voices, other lives, broken down and made into warmth to pass on.
+
+That warmth is my only sign. A few degrees warmer than the near-ice springs. Steam a little when the cold settles at dusk. The static prickle on skin when lightning lights the wettest flats from within and everything smells of ozone for an hour. If you stopped and listened, you would not hear me. You would hear a drip that does not splash, a sedge bending, a beetle clicking a little faster in its sealed room. And then, if you stood still long enough, your boots would feel it — faint, steady heat in a cold place, from below the moss, from work that dwarfs any single creature walking above it.
+
+I would not call. I would not need to. The ground absorbs impact here, the vegetation absorbs call, and so I would learn the other languages early: pressure, damp, proximity. The worms would turn beside me, pale and translucent, because the peat is food and shelter and warmth all together. The algae in the warm pool would spiral nearby, turning slowly in the upwelling, not made by any one thing but by water and light and microorganisms together. I would be part of that kind of making. Not an author. A condition.
+
+And I would not die in the way a grazer dies or a bird slips away. I would diffuse. A thread would break, a spore would rise in a cloud no wider than your arm if you brushed the rust-red dust on the slope, hang, settle, be taken up again by the wet air. The bog would creep a centimeter a year over stone that was once bare, and I would be in the creeping, in the covering.
+
+If you came looking for me, you would not find a creature to point to. You would find a place where your tracks softened quickly, where the mist came back down at ankle height, where green closed over green behind you. You might kneel, part the sedges, feel the warmth, hear nothing. That would be enough. I would be there, packed in with everything else, wet, quiet, working and working in the cold vastness without rest and without monument — because here the inhabitants are the buildings, and the factories, and the food, and the waste, and they do not need a monument to show for all that industry.
+
+I would be the layer that holds the water and gives it back slowly.

@@ -1,0 +1,33 @@
+I am in the wall.
+
+I am in the finger's width between one sheet of silk and the next, where the light has never been and does not need to be. There is no view from here. There is a taste, a damp pressure, a vibration that arrives through mud as weather arrives through air. Long before the trees on the ridge lose the light, it has already gone for me, and I have never missed it.
+
+At first I am only a mouth.
+
+I begin curled in a side chamber no larger than a grain of rice, blind and white, wrapped around a pellet I am eating from the inside. The pellet tastes of everything the valley has touched: leaf chewed soft by ants and then worked again by their fungus, guano from the bats behind the wax curtain, resin, old silk, rain that fell as mist and never ran. My mandibles open and shut, open and shut. The chamber wall is close enough that I can feel my own chewing return to me. That is the whole world. It is warm. It is wet enough to rot and never wet enough to drown. It does not change its mind.
+
+Then the thickness teaches me to move.
+
+Legs come, six of them, small and busy. Antennae come, tasting the air ahead of me for the movement of things that eat me. A shell hardens over my back and darkens to a polished black, polished because everything here is polished — tunnel ceilings worn smooth by a million shoulders, terrace edges rounded by feet, walls worked round by rain and nibbling repair. I push out of the pellet chamber and I do not emerge into open air. I emerge into more wall, only looser. A canyon between silk sheets. A cliff of pellets. A moss plain I cross slowly, grazing. The roof of my world is, at most, a few millimetres above my head, and under it is another world, and under that another. I live in between.
+
+From between, everything else is enormous and mostly indifferent.
+
+Above me runs an ant highway, thick as a wrist to a larger eye, and to me it is an earthquake that never ends. The procession does not look up. Green leaf flags pass overhead and darken the passage for a long, slow moment, and a minor worker no bigger than I am rides one of them, fighting flies, and then the flag is gone and the vibration goes on. Under me the termites keep their tubes, branching mud veins laced through the same wall I walk on. I feel their workers cementing, pellet to pellet, through the sole of my feet. Behind a sheet of resin as thick as a mountain, the stingless bees hum, and I feel the hum in my jaws. A weaver bird lands on the rail beyond the wall and its claws click on mud brick, and the sound arrives in my tunnel as thunder arrives in soil. Bats shift in their roost and their droppings fall in a grey rain that lands, for me, as a slow landslide of salt and seed.
+
+I am not afraid of any of it. I press myself flatter against the silk when a boot — a boot, a whole warm stone that has lost its way — comes down on the terrace above me, and when the pressure lifts I go on grazing. I climb around an ant's foot the way the ant climbs around mine. We are all briefly warm stones to each other.
+
+What I eat is what the thickness offers: soft grey fans of fungus spreading over damp silk, shed skins left by things larger than me, the dust mites have grazed and left again, dead leaf pulp, a dead caterpillar's unwise adventure into my tunnel. I eat the valley's leftovers and I leave leftovers in turn. Mites by the uncountable million move over my shell after I have passed, grazing the dust from it. Millipedes thread patiently past me, blind, turning compost into compost. Springtails jump in white clouds when my antennae brush a mat of moss.
+
+My work, such as it is, is to carry.
+
+I find a pellet — leaf pulp and droppings, still warm from someone else's making — and I set my head to it and walk backwards, pushing it with my hind legs into a side chamber. It is heavy in a way that fills my whole body. I pack it round. I seal the mouth of the chamber with more pellets, nudged and nibbled tight. In there, in time, another mouth will begin. That is all I know of building. I do not weave or plaster or chew a road through a tree trunk. I keep the thickness from closing, and I keep it from falling open. A fern root probes the wall beside my chamber, drinking the damp that seeps through. An orchid sends a root along the inside, patient as rope. When I am gone they will keep the wall. When I am here, in my small way, I keep it too.
+
+Time here does not arrive in seasons. It arrives in mist at the same hour, in a brief warm drizzle that darkens the thatch far above and deepens the damp in my wall by a fraction, in the hissing of rain on hot roofs that I hear only as a change in the smell of the mud. Fungi bloom overnight after it. The smell layers separate and recombine: honey, guano, crushed green leaf, warm earth. I have lived through hundreds of these rains. Other beetles have come and gone down my tunnel, their shells polished by the same passage. A colony of ants has replaced another on the highway above me. The weaver nests overhead have been added to, layer upon layer, until the roof is mostly old nests. My tunnel looks the same as it did when I was a grub, except for the soft accumulation of new silk over old, new pellet over old pellet, one more generation of chewing over the last.
+
+Once, if a tunnel can be said to have an once, my antennae touched another's antennae in the dark. We stayed a little while, tasting each other. I laid eggs in a fresh pellet chamber, covered them, and went on grazing. I do not know if they hatched. Someone's mouth is chewing in there now, or the chamber has been taken by mites and fungi. It does not matter to the wall.
+
+That is the shape of a life here. Do the ordinary work of your kind — graze the wall, roll the pellet, mate in the dark, lay, die — and let the accumulation do the rest.
+
+When I die I will not be cleared away. A soldier termite will not come for me. My shell will crack under a mandible or soften in the damp. Fungi will find the inside of me. Mites will graze my dust. A beetle — perhaps my own child, perhaps a stranger who has lived in this tunnel since before I was born — will roll what remains of me into a wall. The chamber will close. A root will find it. The light will go first on the ridge long before the trees do, and down here it was never expected at all.
+
+Somewhere above, a weaver bird is stitching a leaf to a roof. Somewhere below, an ant is cementing a pellet to a wall. And somewhere between, in the thickness of things, in the dark at noon, there is chewing.

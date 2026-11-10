@@ -1,0 +1,37 @@
+Nothing here stands up.
+
+That is the first law of whatever lives on this plateau. There is no tree to climb, no soil to burrow in, no stem to perch on, and no reason to lift a body into the white glare. Everything that lives here lies flat, pressed into the pavement, and lets the water and the stone do most of the work of holding it in place.
+
+If you kneel — and the roar does not lessen for your kneeling — the pavement stops being pavement. Up close it is a crowded, damp surface, stone touching stone everywhere, and in the skin of water over a pool, in the dark joint where one egg-sized rock presses another, there is a film.
+
+It does not look alive at first. Dull, translucent, faintly amber or grey, like breath fogging glass and then refusing to clear. In places it darkens to a rust-thin crust, in others it is almost clear, only a smoothness you feel with a fingertip before you see it. That is the population. Not in the thousands in the way we count animals, but in the billions in the way we count grains — bacteria, cell pressed to cell in a mat no thicker than paper.
+
+They are the base of everything, and they are the reason the stones are bound into a crust at all. Where iron in the cold, mineral-rich seep meets light, some of them precipitate it, leaving the pale yellow and iron-red flecks in the pavement. Where the film is thickest over a pool, they gather light through the water and make their own slime, a slow, patient glue. They do not move toward the light. They cannot. The light comes to them, white and high and from below as well as above, and passes through the clear water and the clear stone skin until it reaches the pore where they live. They take what the plants elsewhere take, but without leaf, without root, without green. In this ground, green would be a liability — too much glare, too much washing, nothing to root in. So they have stayed invisible.
+
+A droplet is their weather. A rivulet no thicker than a finger is, to them, a river in flood and then a drought. They do not flee it and they do not chase it. They wait for the drip to fall, for the film over the pool to be disturbed and resettle, for condensation to bead on the upper face of their stone and run, and when it does, they take up minerals from the water that has passed over so much rock. They divide when the chemistry allows it, which is seldom, and they endure the cold because they have never known warmth to endure against. Their time is not days. A mat that looks unchanged to you over an afternoon has been there, thickening by imperceptibles, for longer than the stones have been smooth.
+
+They have no ears for the roar, which to you is deafening and to them is not a sound at all. It is pressure, a vibration in the stone they are made of, a constant rain of impacts too small and too frequent to answer. They read the world the only way they can: by what the water carries to them and what it leaves behind.
+
+The animals, when they come, live off that film and at the same flat scale.
+
+In one of the larger sheets of water, where it deepens enough to slacken and lose its hurry, you may find a glacier flatworm. It is not animal in the way a bird or a mammal is animal. It is pale, translucent grey, no longer than your thumb, and it is pressed so flat to the stone that the water seems to be holding it down rather than letting it swim. You can see, faintly, the direction of its gut through its body, a darker line that turns amber after it has fed.
+
+It has no use for eyes in this light — the glare comes up at it from below, filling everything white — and no use for ears in this noise. It does not hear the millions of droplets merging into one wash. It feels them, one throb at a time, through the stone under its belly, a percussion that is also a map of where the water is moving. That, and touch, and the chemical taste of the film, is its world.
+
+It moves a centimeter and stops. It glides on a sheet of its own mucus, cilia beating underneath, and when it stops it extends a mouth you cannot see from above, tucked under its center, and scrapes. The pharynx rasps at the bacterial mat, takes in cells, and moves on. Where it has fed, the film is thinner, clearer, for a time. Then, over days no one watches, the bacteria grow back over the polished stone, and the flatworm, which may have moved only a few body-lengths in a season, returns.
+
+There might be two or three in sight if you are lucky, each following its own pool, each flattened against its own stone, each waiting out the drips that fall on its back. They do not flee you. To them you are a new vibration in the pavement, a weight that settles and then, if you are still, becomes part of the equilibrium. They will not hurry for you. Hurry would lift them up into the current, and in a place where the ground is everything, there is nowhere up to go.
+
+A single flatworm can live for years like that — feeding, waiting, pressed down — moving so slowly that its life, too, approaches the timescale of the stones. It does not need soil. It does not need air the way you do, breathing through its skin into the cold water. It does not need to see the sky.
+
+And above the sky, once, the falcon.
+
+It is pale against the white, very high, crossing once and not landing. That is the only life here with distance in it. To the bacteria it is nothing; to the flatworm, at most a passing shadow and a change in the light from below, gone before it can be read. To itself, this plateau is a glare and a roar and nothing to hunt. The flatworms are too small and too flat, the bacteria invisible, there is no mouse in the stones, no bird in a shrub because there is no shrub. So it does not descend. It rides a thermal that rises off the wet pavement, wings beating silently against a noise it cannot hear from that height, and continues toward lower ground where life stands up and makes a living in the ordinary way.
+
+Its presence is the proof that this world is not sealed. It is passed over, seen from elsewhere, and ignored. The other two residents will never know it was there.
+
+Together — the film, the flatworm, the passing bird — they make a census that is complete and almost empty at once. The bacteria make the ground, slowly, out of light and stone and seep. The worm eats the ground that is made, slowly, without ever leaving a track that the next hundred drips do not smooth. The falcon crosses and leaves nothing at all. No path, no nest, no mark that a footprint would not also fail to leave, because a footprint fills with the seeping film and is polished back into pavement.
+
+That is why the place feels finished. Nothing here is waiting to become something else. The bacteria are not waiting to become plants. The flatworm is not waiting to grow legs or eyes. The falcon is not waiting to land. Each lives at the rate the water allows, flat and cold and deaf, in a roar that never rises and never falls, in pools that never rise and never fall, on stones that weep the same slow tear and take it back again.
+
+In a year, in a hundred, the films will be a little thicker in the same pores, the worm will be a few centimeters farther along the same stone, and the sky will be crossed, once, by something pale that does not land.

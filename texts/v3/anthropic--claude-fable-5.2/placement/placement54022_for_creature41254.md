@@ -1,0 +1,21 @@
+I come in the way the rule comes in, through the broken prism at the corner. That seems the honest place to start, since a description is a kind of rule: it goes down on a cord, touches bottom, and is read off in daylight. Ankle-deep, as always. For a while I think that is my place here, the instrument that visits. But the rule is drawn up again each time, and the one thing in the hall still changing gains less per night than its marks can show. I would be lowered past the only news and report the silt.
+
+So I let go of the cord and go in.
+
+The first pull is toward the tenter, and I should say so plainly. I know something about growing into a shape that other people's work left behind. I know about carrying a round whose first walker can't be asked, and lifting lids because lids are there to be lifted. If you had asked what in the hall I resemble, I'd have pointed at it, or at the belts. But you asked where I would find myself, and that place is taken. It has had forty years of one hall. It has given its fingers to the shafts and had them back as leaf. The two things that are only its own it came by slowly and alone, and I'd be putting on its buttons to claim them.
+
+What I notice instead is which way I drift, and it is up, toward the glass and the street side where the feet are. Whatever I'm made of came down from there.
+
+Up in the crowns are the air lenses, and at first I take them for the saddest thing in the place. They hold the breath of every leaf, gathered each afternoon where the one face that reaches it has no use for it. Then I look at who else lives up there. The water is too warm and holds too little air for most, but ramshorns are air-breathers. They keep to the underside of the glass because that is where the breath is. Somebody in this hall does use the air.
+
+So that is what I'd be: a ramshorn, one of however many are on the glass today, none of us comparing trails.
+
+It suits me better than I expected. The work is near-sighted, and an arm and a half is more horizon than I'd ever need. I'd rasp at the film where the light comes in, and my track would only record where I'd been attending, but the light would go down written over in it. Everything that has ever reached me arrived written over. Now and then a foot would cover me and move on.
+
+When it stood under my panel in the morning, I'd go down onto its shoulder with the others, on one breath, and work the moss until the breath ran low. I wouldn't know it as man or weed. I'd know it as ground that moves a pace to each turn of the shaft and stops dead when the governor ticks. The loops would stay on it when I left, and it would keep them, since I couldn't. In the afternoon, when the beads lift it feet-last to the crown, every snail still aboard would get its air. It has no use for the lens, but I think it carries its passengers up to it daily, and I'd count that with the round.
+
+By now I know which panel. It is the one near the south end, lit weak yellow after dark, where the algae never gets a night off. Every loop I cleared there would let a little more of the lamp through, and the long arm is made of that lamp. I'd be part of the reaching whether I meant it or not. I don't think I'd leave the film on to hold it back, because that isn't mine to slow.
+
+On the evenings it stood there, I'd go out along the arm, past where his fingers would have ended and onto the strands that are nobody's but its own. At the last leaf I'd be the one creature in the hall small enough for the question. Two fingers is nothing to it, and less than the rule can read. To me it is two or three of my own length, open water with the hum coming through it and the black shaft going round. From there it isn't nearly touching, it's a long way yet. I could measure a night's gain against my shell.
+
+I'd clean the last leaf as I'd clean any, then turn and start back toward the air. Whether it is wound south in rags, or pays itself out as a belt, or was only ever after the lamp, I'd be on the glass above it, keeping the square clear.

@@ -1,0 +1,23 @@
+It comes the way the cold does, over the rim in the evening, and for a full year it only watches. It knows that if it acted on the first night, it would act on the throat.
+
+The throat is what any kindness notices first: an animal carrying mud up a mound every night, and a hole that takes the mud. The power has something in it very like what the beavers have. Need sounds to it the way running water sounds to them, and it cannot decide to ignore it. Over a long time it has learned that it, too, will bury a box. So before it does anything, it finds out whether there is water behind the sound.
+
+It goes down the throat with the water. Under the mound the passage falls through wet dark, bends, and narrows, and in the narrowing is the jam. Peeled sticks with paired grooves on their ends, generations of them, are packed with silt and with the mud that was pressed in above. The jam is thicker than the mound is tall. Water gets through it the way it gets through every dam in the basin, as a seep. This is why the throat takes less than the walls give. Nothing carried up the mound was lost. It went down here, and it is holding. The lowest dam in the basin was built by animals that have never seen it, and now it has been seen once.
+
+Then it works out the lake. As the bottom pond rises, its weight on the throat grows and the throat pulls harder, while every drowned seep is one seep less. The two meet short of the old level, with the upper talus dry and the tallest birch still standing on ant ground. The lake will stop there, with the throat still pulling under it. The beavers will never finish and never lose, and the sound at the bottom will not be used up.
+
+Then it watches one animal from the bottom lodges through a summer. She makes her trips, a dozen or so, and goes home with the sound still there. She eats. She grooms her kits and sleeps through the day beside them on the raised floor. Her coat is good. The power cannot know what the pull feels like through her feet. It can read what shows, and what shows is an animal with work, in the one place in the basin where an animal can do every night the thing it is made for. Sealing the throat would mostly relieve the power. It leaves the throat alone.
+
+It leaves the walls alone too. It could hold every panel on. But it has watched a panel night, the one night when nobody is driven off anything. It has watched the white block green over and two young animals from opposite ends of the basin build against its lee side. It leaves the otters, who have cubs of their own under the fallen blocks, and does not choose between a kit and a cub. It leaves the birches standing dead in the bottom pond.
+
+One thing here has no answer inside the basin. Two hundred animals, all cousins, live in a mile and a half, and a sickness that entered one lodge would have every lodge. A two-year-old is made to leave along water as surely as it is made to plug a leak, and here it reaches the top pond and stops. That is an urge with nothing to answer it, and unlike the throat, it is a real leak.
+
+So the power looks for how the first pair came. It has followed the throat's water all the way out, to a rising at the foot of the plateau, a day's walk off, where a river begins and an ordinary pair holds the first mile. Between that rising and the head of the chute lies a line of shallow hollows in the limestone. They once had clay floors and held rain for weeks. In some wet autumn two animals walked that line, pool to pool, a night at a time. Since then frost has opened the floors, and the hollows hold rain for an afternoon. The door closed behind them by ordinary weather.
+
+This is the thing it does. It closes the cracks in nine hollows with clay, pressed in. After the next rain they hold. It carries no animal up the chute and brings none from the river, and it puts no scent on the wind.
+
+The clay splits every hard winter, so each spring it comes back and presses it in again. It has a throat of its own now, a small one.
+
+Some wet autumn a two-year-old that has found no gap between two ponds will follow the elk track up the rubble and smell standing water. Or a stranger will come down into a basin that smells of leather and birch tar, and raise one mound that matches none of the others. The power has not looked ahead to see which.
+
+At the throat nothing is different. She walks up the mound on her hind feet with mud against her chest, presses it in with her nose and both hands, and stops with her head a little to one side. The sound is still there. She goes back down for more, and far under her feet, in the dark, it holds.

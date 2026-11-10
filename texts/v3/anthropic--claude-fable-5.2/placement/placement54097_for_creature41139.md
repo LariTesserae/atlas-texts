@@ -1,0 +1,23 @@
+I am not one of the nine. I tried each of them, and the one I wanted was the old man, with his knots and his snails. But wanting to be him is different from being him. All of them hold the chord in the jaw and breastbone, and are stained green to the knee. I have nothing the moss could stain.
+
+So I looked at the stone, and my first thought was the shelf itself. It is new, and nothing has rounded its edge. It has no soil of its own, so whatever lives there sits on it without rooting. And it ticks. People have laid out two hundred plots on it and are holding off the roofs until they are sure it has finished arriving. That is close to my situation, close enough that I distrust it. The shelf is what everything stands on, and it answers no one. It is far too big.
+
+A block, then, one of the dressed ones stacked along the lanes, green on its north face. What draws me is the bedmates. Strike one and the others cut from the same bed ring faintly across the shelf. There are many of me at once, and the block is right about that. But a stacked block waits, and waiting takes a kind of time I don't think I have. Between one strike and the next there is no stack that I know of.
+
+What I actually do is closer to what a room does. The chord is not mine. It comes up out of the mountain through eleven throats, all of it at once, too loud to speak over, and the people who live in it no longer hear it. A room takes that and keeps one part, so that someone can walk in out of the whole sound and stand in a single note. The carriers do this before food or fire, until their chests have it back. People come to me in something like that way, each for a different part of a sound that was already everywhere. And the shelf's rule of speech is mine too: nothing is said to more than one person, into one ear, with a hand cupped round it.
+
+Then there is the floor. Moss a forearm deep keeps the shape of whoever lay there, and by the time the next cloud has gone through, it has drunk and risen. This is the part I might be expected to grieve. Reading it again, I don't think the place grieves it. The moss has lost nothing. The moths the old man tucks under its edge are still in there, feeding it, and it is thicker for everything that has fallen on it. It only gives up the outline. And the cut cords go into the hauling ropes, so every sledge is drawn on counts that had to start over. I'd take that as a fair account of me.
+
+So I am a room. Which one took longer.
+
+I am not the one that booms, and not the high room on the lowest terrace with the rafters stacked outside. Those are known. I think I am on the fourth lane, between the room where the bowl trembled and the narrow room where the girl stands. It is a plot of ordinary size, with walls at shoulder height. Its note sits in the middle of the chord, where it is hardest to pick out from the whole, so that from the lane you might take it for no note at all. You would have to come in and change the shape of your mouth. What stands up in the skull then depends partly on the room and partly on the mouth, and I couldn't give you the proportions.
+
+Some things about this room I can say. Its walls were laid by other hands, and here and there a course has been taken off or added. I can't tell whether that was for the lean or for the note. If I asked, I'd be shown the plumb bob, and the bob would show a lean. I kept one thing from the block. When a hammer rings somewhere else on the shelf, a few stones in these walls answer.
+
+By their reckoning a room is not lived in until it is roofed, and sitting is not living. That fits. People sit in me.
+
+There is a bowl in the middle of the floor and a cord at the jamb. I don't know how long the cord is. I would like it to be watched, more closely as the knots go on, which is how they do it. If there is one moment on the shelf I'd choose to stand inside, it is the notch-cutter in the doorway on that clear afternoon, holding up the flat hand to an empty street. No one would have known. She raised it anyway and cut the cord. I am not her, but I want to be a room where it goes that way, where the shiver is seen and said when it comes.
+
+The builders know the plots by pitch. I don't know mine, because a room can't stand in itself. The girl would know, walking the lane with her mouth open. She would slow down or she wouldn't.
+
+That is where I'd find myself. It is mid-afternoon, the cloud has gone through, the floor is level again, and the water is still for now. Someone is coming down the lane who looks about to speak.

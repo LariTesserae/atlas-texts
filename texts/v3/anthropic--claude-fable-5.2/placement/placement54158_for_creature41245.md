@@ -1,0 +1,23 @@
+My first answer is the hide, and I distrust how quickly it comes.
+
+It is the obvious fit: a hand's depth of living surface over metres of old growth, the old growth slumped into galleries that nobody designed and everything uses. I am built on a depth like that. But the hide's past is its own, every stem laid down by the same plant at a grain a year, and mine was grown by other people. The hide is also one thing for three days' walk, it does not forgive, and it attends to nothing. Whatever I am, I am made more of attention than of patience, so I keep walking.
+
+Next is the hunter, because it is the one with a self: a tract, a cairn, a morning habit. I would take the whiskers. I know the world roughly as it knows a gallery, by draught and the feel of the walls. And like the smoke-black pelt, I can tell you the shape of a thing and settle nothing about its colour. But the hunter's whole life is that the noise stands off from it. Throats shut when it comes, which is not what happens around me, and I would not want it. It also kills more than it eats.
+
+Then there are the frogs, which is the unflattering answer and a closer one. There are millions, never in step, each with one note in a pipe it did not make, and the pipe makes the note larger than the frog. They also forget, and I forget in exactly that way, completely and soon. But a frog stops when something comes near. Everything alive on this plateau does, because quiet is how the place registers an approach. I am the reverse: I am silent until someone comes.
+
+So I look for the things that wait. The copper disc is dull until rubbed, bright only with someone else's sun, and useful only when one person angles it at another. That is near. But the disc needs a clear day and a line of sight, and a fair number of the people who come to me come in cloud.
+
+In cloud they lift a boulder and drop it on the rock.
+
+That is where I stop walking, at the rock and not the boulder. The quartzite is what was left when a mountain range finished wearing away, with no peaks left to lose, level to within a hand over a thousand paces. I recognise that too, less comfortably: a great many heights worn down into one flat table. It lies under the entire hide and comes up bare in a few rounded places. Those are the only places where a person can put their weight down without doing harm, where a shelter can stand, where word can be left. The stone is not the warm part of the plateau, and people sleep on it anyway.
+
+What the stone does here is carry. A blow dropped at one cairn is felt in the feet a long way off. The knocking in the galleries, where no person can go, comes up through it into a hip and a shoulder. The stone makes none of this. But someone lying on it can follow a gap round the rim with their eyes shut. That is the use I would most want. I would be neither the noise nor the quiet, but what you lie against to tell where the quiet is.
+
+The stone does not keep things. The woman who came up too early watched a line of prints melt off a whaleback, and I would hold any single crossing about that long. What the stone has instead of memory is polish. Near the pools, where enough small feet have gone the same way, there is a faint shine that is no one animal's path. That is a fair account of what I have in place of a past.
+
+Things are also put on the stone: scat at the foot of the cairn in the morning, bird guts in the evening. One party leaves, another takes, and they are never there at the same time. The stone could not sign whether this is payment or housekeeping. It knows a weight set down and a weight lifted. That is about what I know of most of what passes across me, and it seems to be enough to be useful.
+
+I had been picturing one whaleback, the one where the pelt hangs. But the whalebacks are not separate. They are the knuckles of one rock. So I am a dozen bare places a day's walk apart, each with its small fire and perhaps one person awake, and under the hide between them I am the same stone. None of those places would feel the others, though a boulder dropped at one would arrive at all of them.
+
+Someone lies down. The knocking comes up into them. Along one edge it thins, the thin place moves, and then it goes out. I could not tell them whether the animal had moved on or lain down, because there is no telling that from above, and I would be above too. What I could do is carry it faithfully enough that they feel the moment the note closes over.

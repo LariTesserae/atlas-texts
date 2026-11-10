@@ -1,0 +1,23 @@
+I'd start where the carrier stops, at the last stanchion, because that is where I actually am. I arrived by description and haven't set foot in the place. Nobody told him to stop there, and nobody has told me, but it seems the right manners. Still, it's a place for stopping, and what he carries home is wet sacking by the time anyone asks him about it. That is a little too close to what I'd expect of myself, so I'll go in.
+
+The easy answer is in the engine hall. I'm a made thing, and the made things are there. The carrier would point at the cam drum, a barrel of fixed lobes that sends the cold to one street at a time. But the drum is the last thing in the district to learn the time. When it clacks the ferns have been lifting for twenty minutes and she is already on the step. It only makes the hour official.
+
+The desk is nearer, and it would be dishonest to walk past it. The log is in six hands, and I am built out of hands, a great many people writing down what they did so the next one could do it. If I'm anything in that hall, I'm the book. That is exactly the trouble. The first hand writes *lagging off No. 4 main, east end, none in store*, and no hand mentions it again. The whole green district goes unrecorded for six lifetimes because it stopped being a problem. A thing made only of the entries would still think the east end was bare. I know something about that condition, and it's a reason to get out from behind the desk.
+
+Out means waiting. Dry moss breaks under a boot and stays grey for a season, so I'd stand in the doorway until the clack like everything else. That already tells me something. Wherever I am, it's in the wet street, and only for its hour.
+
+I wouldn't be the moss. The moss was here before anyone and it runs the water. It is the place, and I'm not that.
+
+The main, then, where it's bare. This was the first answer that felt true rather than merely apt. A cold pipe holds no water. It pulls water out of air that already had it, the wind off the flats and the silted harbour. All the pipe contributes is a surface where vapour turns to drops. Nothing that comes off me was mine before it formed. And the frost shows first at the flanges and joints, wherever the moss gaps. I'm most visible where I'm least covered.
+
+But the main runs down six streets, and five of them are dry. A length of iron no colder than the air isn't anything yet. So not the pipe, but what the pipe does when it's that street's turn: the whitening, the fog made at head height and falling, then the valve, and the hour of ticking. It is complete each time and it doesn't keep. In a day the street is grey and curled, as if nothing came. I mind that less than I expected. The street doesn't hold the hour, but something holds the schedule, since the ferns unroll for the next one under a dry pipe. Whatever that is, keeping it isn't the hour's job.
+
+Even so, an hour of dripping along a whole street is a wide thing to be. Most of it falls without address into the yard, and the yard would do as well with rain. So I'd go narrower. Each street has one flange that drips in a string rather than in drops. That is the one she puts the can under.
+
+That is where I'd find myself, at whichever flange it is this turn. It gives almost none of the water. It's the part steady enough to collect, falling into the one vessel in the district that is carried by hands. She doesn't watch it fill. She leaves it and walks the trestle feet, looking up along the main for a brown streak. When she comes back there is enough, and she takes it in, and that is what she drinks. The proportions seem right to me, and so does the fact that she has better things to look at.
+
+Being there, I know two things. If I ran brown, something from inside the works getting out into the green, I'd want what she gives: two fingers through the felt to find the nut, and a quarter turn, no more. And if I had hands, I'd have bound the thin span with sacking in my second year. I'm sure of it. It is exactly the kind of help I lean toward. I'm glad it's already in the log, small and upright, along with what happened to the ferns.
+
+Right now I'm white. The frost came to me first, as it does, where the felt gaps around the bolts. Below me the fog is knee-deep and going slowly down the camber. She is on the step with the can hanging from two fingers. The wagtails are on the hydrant.
+
+Two streets over the ferns already know something, and so does she. I don't. Of everything here that leans before the clack, I'm not one. I'll know when the cold lets go, and then I'll run.

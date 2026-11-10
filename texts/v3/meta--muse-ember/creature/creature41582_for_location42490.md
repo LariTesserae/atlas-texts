@@ -1,0 +1,47 @@
+The first thing that lives here is not a thing you can point to.
+
+It is a skin. Grey, opalescent, breath-thin on glass and basalt, it thickens wherever the seep runs and thins to nothing wherever a crowd has just passed. It is bacterial and fungal all at once, if the distinction has even arrived here yet. It has no leaves, no root-hair, no green anywhere in it. It does not drink light. It drinks the rock itself — sulfur and iron and silica dissolved in the weeping water, and the waste of the animals that eat it, which is returned to it in the same heat.
+
+You would not call it a meadow. It does not stay. A layer grows, is scraped clean by mouths and legs in minutes, and is already re-forming before the eater has moved two body-lengths away. The ground is the food, and the food is the ground, and both are being eaten back to clean, wet stone by their own inhabitants in a continuous, silent grazing.
+
+Under and over that skin, everything else lives shoulder to shoulder.
+
+In the bottom pool — a shallow lens no wider than your palm, superheated, clouded white — are the swimmers. Shrimp-like and eyeless and translucent, so translucent you see their guts working through their backs, they beat in unison. There is no wind in the pocket and no current you could name, yet the whole pool ripples, churns, turns over in slow silent eddies made only of legs. They filter. They filter the mineral film out of the water, they filter each other, they filter their own cast skins and the milky waste that clouds them. Their mouths are not so much mouths as sieves, endlessly passing the same water through themselves, taking what the rock has dissolved and leaving behind what the skin will take again.
+
+They do not swim so much as boil and unboil. When the pool builds to its rolling boil — every forty seconds or so, in the thin air under the cap of stone — they ride the bubbles up and are rained back down. When it settles, they beat again into their mirrored rhythm.
+
+Above them, the walls crawl.
+
+Worms the size of eyelashes and mites the size of pinheads are layered three and four deep on the wet glass, on the silica crust white and slick as ice, on the sharp inward crystals that have grown since the fracture opened. Near-touching, step over step, they do not so much walk as get walked over while walking. A mite stills, and two worms pass across its back, and a third mite climbs over the worms. The wall seems to move even when any one creature is still, because the surface itself is made of creatures.
+
+They graze the skin as they go, mouths to stone, carrying each other's microbes on legs and bellies, leaving the film thinner behind them. They have no eyes to find it. They follow heat, and damp, and the faint mineral gradient between the hot back wall and the cooler wall opposite, where the steam condenses and rains perpetually and never quite reaches the floor. They live in that rain, in the film of water that runs down and, on one wall, inexplicably, up.
+
+In a depression of warmer rock, where the crust is thickest, is the tide of crablets. Blind, pale, snapping at nothing in particular, they work back and forth in a mass, carrying each other, climbing over each other, falling and being carried again. It is not a colony with a center. It is a tide with no shore. They come up out of the warmest film, molt, eat film, are eaten, and their molts feed the film they came from. A crablet will shoulder a hunter's foreleg as readily as another crablet's shell, because bodies here are not distinguished by much except by size and by being edible a moment sooner.
+
+And over, under, and through all of them move the hunters.
+
+Thumb-long, clear as smoked cartilage, boiled-looking, they move along the ceiling as readily as the floor, up the crystal points, down the wet glass, indifferent to which way the water is running. There are perhaps a dozen that matter at any one boil-cycle, and they do not pack, or guard, or remember each other. They encounter prey by density alone; in a crowd this thick, there is nowhere to flee and no need to chase for long.
+
+One of them has learned a trick, if learning is the word. It holds a pumice pebble between its fore-claws and hammers the silica shells of the shrimp below, strike after strike, until the shell cracks and the white insides can be taken. Another drags a shard of volcanic glass, still sharp from the young fracture, and uses it to lever. It wedges the edge under a crablet's plate and pries with its whole body, the glass screaming silently against stone.
+
+The tools are used and dropped. The pebble rolls into the pool and is lost. The shard slips and is taken up again, or left for another hunter to find. Nothing is kept, nothing is cached, nothing is built upon. There is no nest here, no web, no burrow with a made entrance, no path worn by use. The paths shift with the boil. The rock has never been worn by a hand, and the animals have not worn it either. What they have made in the last minute, they unmake in the next, and remake differently.
+
+That is what makes the silence so complete. They are not quiet because they are still. They are some of the most active things you have ever watched, and almost nothing in them is built to make a sound — no throat, no wing, no lung to push air across anything. The steam eats what little vibration there is. You hear only the irregular *tick* of a droplet cooling on hot glass, the faint sigh of a bubble bursting in the pool before its ring can form, and your own breathing, which sounds obscene and too loud in here by comparison.
+
+Then the cycle turns, and the whole pocket breathes.
+
+The pool boils. Steam rushes up, condenses hard against the cooler stones, and rains back down in a heavier patter. The grazers surge up the walls away from the heat. The hunters surge down after them when it passes. The shrimp churn faster, the mites are washed and regain footing, the crablet tide piles higher against the lee of the depression and then spills back. Birth is constant in the warm water. Death is constant. The skin is scraped clean and regrows before the rain stops. Predator and prey pass each other in a continuous, soundless procession, not in flight, not in pursuit as you would know it, but in the slow overturning of a lung.
+
+It is in that overturning that the place stops obeying the rules you brought in with you.
+
+The sheet of water on one wall runs uphill past your braced hand toward the ceiling, where it gathers into a hanging pool that does not fall. In it, shrimp swim upside down to the floor pool, in exact, mirrored unison, beating their translucent legs into ripples that do not drip. A hunter climbs up into that ceiling water and drinks from it as if it were the floor, its smoked body bent the wrong way and perfectly at ease. A droplet falls upward from the pool, bursts against nothing, and for a moment you see your own face in it while you are looking up.
+
+The big hunter on the ceiling casts a shadow on the floor larger than the hunter, and the shadow arrives half a second before the hunter moves into the light. The animals do not react to any of this. Eyeless, they have no light to react with, only heat and flow and the mineral taste of the film.
+
+Crawl the three steps the pocket allows and you are back at the boot-width crack, but now the entrance is at your feet and the summit is above you inside the rock — a small, sharp peak of fresh glass pointing down, dripping, echoing the knife-edge ridge outside inverted. The hunters walk on it as they walk on everything. The film grows on its underside. The shrimp in the ceiling pool swim beneath it. It is hard, after a while, to tell whether the pocket is inside the mountain or the mountain is a swelling inside the pocket.
+
+Time does not pass through these inhabitants the way it passes through you. The pool is hatching and dying at once. A crablet emerges from an egg that has not yet been laid and is eaten by a hunter that will not move for another cycle, and the film it leaves is already being grazed by mites that have not yet climbed there. You see the same ripple cross the pool nine times from nine directions at once, and the swimmers answer all nine.
+
+They hold together, if they can be said to hold, because nothing here has finished deciding. The rock is still lifting itself, still fresh basalt and glass, still warm from its own birth. The water has not decided which way is down. The animals have not decided which of them will be which — shrimp that filter, crablets that carry, hunters that hammer, worms and mites that are mostly surface — and so the forms overlap and exchange their roles with the boil. A hunter drops its hammer and becomes a grazer. A crablet is carried by the tide into a hunter's reach and becomes food and then film and then, in the warm water, a swimmer again.
+
+And still the light is plain midday light, flat and ordinary, leaking in through the crack, falling straight on the steam, making every translucent body visible, every drip glittering, every crystal throwing a hard, clear sparkle. There is nowhere for the impossibility to hide, and the inhabitants do not hide. They are out in the open, layered on every wet surface, boiling, raining, hunting, hammering shells with stones, running their water uphill, fresh and sharp and new, as if the earth had only just cracked open and was not yet sure what to do with what crawled out — and so it let everything crawl out at once.

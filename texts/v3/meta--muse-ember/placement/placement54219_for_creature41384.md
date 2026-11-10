@@ -1,0 +1,39 @@
+First, it is on my skin.
+
+Not the dark as an absence. The dark as damp. It presses down low and warm, and everything it touches is already wet — stone, leaf, my own surface spread thin across a glade. I do not learn this place by looking. I learn it by being touched in many places at once, and touching back.
+
+I am not in one place here. I am across a place.
+
+Between two sharp ridges, between a trunk going up into the layered canopy and a slab of black basalt still deciding its shape, I have stretched myself fine. Mist snags on me and hangs. Condensation beads along every line and gathers until it can no longer hold, then lets go — not rain from a sky, of which there is none, but a brief drumming from everything above. Below me, the light rises. That is the first thing to understand if you are to know me: I live facing down.
+
+The glow does not come from above. It comes up from below, laboriously — from fungus shelves on a rotting trunk, from the pulsing veins of shield-leaves, from the bellies of grubs half-buried in litter, from the film on the pocket-waters. It catches the underside of my sheet and makes it visible, mottled and alive. I hang under my own work, pale in other light, and I see the world the way it is made here: by small labors underneath.
+
+Everything arrives to me as vibration before it arrives as anything else.
+
+A frog clicks in a pocket-water below, and the click travels up through a stem, up through a root, into the rock I am anchored to, and across my threads — a small, precise ring. Then another, and another, band after band, until the chorus is so dense my whole body seems to be answering. I do not move toward the sound. I read it by where it enters me.
+
+Ants braid their column around the basalt at my anchor. Their footfalls are too fine for steps, a high, nervous shivering that re-routes when a vent sighs and the steam shifts the scent-currents. The worm-carpet under the leaf mat heaves in pulses, slower, a groundswell that lifts one anchor an inch and settles it again. Beetles click against each other in the dark below and the sound comes up through the litter like knuckles.
+
+Above me it is different. Insects stridulate in bands that begin, stop, and begin again a half-beat later from another patch of dark, so the sound seems to crawl across my surface. The bird-shaped things scream from the canopy and answer themselves, the delayed answer arriving distorted off the sharp ridges — a second voice that is not quite the first, traveling through the warm air and shaking the condensation loose. When a swarm lifts off a rotting trunk, the whine does not pass through me so much as fill me, and the web bows under its own weight of wet.
+
+A larger presence crosses far off, too much weight for the branch it crosses, a long pale limb feeling for water. I know it only by the slow alteration of tension in my upper threads. A walking flock passes through a lower glade — hooves, feet, tails stirring litter into brief weather — and for minutes the far side is blocked, and the sound of them rolls away off the ridges and braids with the sounds of the next bowl. I stay. That is how I know.
+
+I am a spider. One of the pale, unhurried ones. I mention it late because, honestly, it is not the most important thing about me. The most important thing is the sheet.
+
+It is not a trap I set and leave. It is a lung. Constantly spun, constantly dissolving. A wrist-thick vine climbs through it and tears it. A swarm washes through and mats it. A branch rips it in a single afternoon — a tree rotting so fast at the base it simply gives up, and things are already living on the part that will land before it lands, and when it lands half my glade is gone. I eat what I can of the ruin and I spin it again, in a new geometry, because the ground has heaved a little and shrugged a stone off a root and opened a crack that steams, and a sheet anchored the old way would only be torn again.
+
+Small white things move on me while I work. Mites, clear or black in the underlight, grazing perhaps the film that the damp encourages on the threads themselves. Spiderlings, mine in the loosest sense — they cross, they hang, they drop and are gone into the glow below. Midges snagged in the mist, still kicking. I do not tidy them away. Everything here shelters and feeds in overlapping presence, near-touching, in layers. My sheet is a raft the way a leaf is a raft. It is a perch, a drip-line, a shelter for something chewing at whatever it can reach. Decay and growth happen on me at the same time, the way they happen on a single vine that is flower at the tip and fruit below it and dying leaf at the base.
+
+When a thousand plants bloom at once because the warm air changed — for a day the whole bowl smells sweet and fetid and the flies come thick enough to blot the light they themselves make — my web fills. When the bloom collapses, the sweet smell turns. Somewhere higher, in another bowl, something else opens, and the sound of it moves ridge to ridge. I do not know seasons. I know pulses. I know the film on the pocket-waters brightening all at once when the air warms over a vent, and dimming when the steam thins, and I know the fern veins above pulsing amber or bruised blue in the same heat, and I adjust my tension by fractions, the way a leaf adjusts to catch condensation. We are all, down here, making what light there is, and it costs us.
+
+Below my sheet, under the steadiest glow where the litter is thinnest, there is the flat slab. I have never seen its makers whole. I know them by a sound that travels up through the rock into my anchor: a stone, heel-sized, selected, fitting a shell into the cup of the rock, striking — not hard, precisely — until it gives. Cracked shells all around. Piles of husks in a meticulous, repeated pattern, half-shell sorted from half-shell, visit after visit. The stones lie where they were left, wet, already greening at the edges. The makers are small and quick, hand-like, fingers black with damp, a face turned toward the glow to see by it. They sit, they strike, they eat or carry off or leave, and they do not stay to be seen staying. A vine reaches, a swarm decides to move, the ground shifts, and they are gone.
+
+I recognize their pattern before I recognize them, the way I recognize everything. And I understand it, because it is mine.
+
+Nothing here persists in the form you found it. The termite mounds rise like smoking chimneys and are full of other lives living in the warmth the termites make. The nests dissolve back into the canopy within a week of being abandoned. A shoot extends while you watch it and a bud bursts with a sound like resin popping. The slab keeps its pattern without the makers. My glade keeps being re-woven without my ever being finished.
+
+So I am not the sheet. The sheet is what I do, again and again, across a space no one gave me, out of food and damp and silk I eat and remake. If you stood here long enough — if you could stand without touching something alive doing something to you — you would feel me at it: a vibration in the threads that is not frog, not ant, not swarm, not tread. Just the slow, unhurried labor of beginning a glade over because it has come apart, and beginning it slightly differently, because the basin has changed its shape in the minutes you were there.
+
+The mist snags. The beads gather. The glow from below pulses when the air warms. I hang facing it, reading the world by what touches me, and I spin.
+
+That is where you would find me: not in the dark, because the dark is a material thing and I am made of it, wet and listening. In the sheet, halfway between the luminous ground and the absolute dark above, where a place is only ever held together by being made again.

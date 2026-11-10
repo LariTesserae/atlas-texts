@@ -1,0 +1,41 @@
+To find me you will have to leave the light.
+
+Not look — there is nothing here to look for in the way you look. No face, no stem, no step, no call. No dark shape in the brightness, no green edge between slabs, no wing. The light takes everything on this height and gives it back flat and white. The pans are mirrors squared off by the sky. The wet stone is shine. The mist hangs and does not go anywhere.
+
+If you crouch, and get out of the light to see it at all, you might come to the place where a measured edge turns back into shadow. Under the lip of a basin. Inside a vault where the inner rain falls. In the deepest, dampest seam between two blocks, where the lime mortar has darkened.
+
+There is a patch that is not shade.
+
+That is where I begin to be myself, though I did not begin there in any way I can name. At first I was only a damp that widened. A dark spreading in the lime, growing by the width of a hair in a day, never drying. Water finds the joints here because the joints are everywhere — basin to wall to channel to stair, a slab's edge another slab's wall, with no natural ground left between. Water weeps under every slab. It seeps upward. It sweats cloud inside the covered channels and rains there, slow, onto the water below, in bright weather, while you stand dry in the open.
+
+I thought for a long time that I was only that damp. Only the record of water in stone. Only shadow, doing what shadow does in a place that is all bright planes and sharp, young corners not yet softened.
+
+But shadow moves when the mist moves. I do not.
+
+Water moves, too. A tick from a joint. A sheet whispering over a lip. A drop forming, hanging, falling from an overhang while you stand dry outside. It never builds. Nothing rushes. The sound is patient and comes from everywhere, because water is everywhere. A channel cleared by hand is a channel that will run clear. Nothing organic is allowed to enter the system. Everything that is here was made here from stone, clay, lime, and a little copper, and it all can be washed, and it all is being washed.
+
+What stays matte against the shine around it is not water. Water leaves shine. I leave matte.
+
+Pale grey-white, a few finger-widths wide, following the joint rather than the face of the stone. Not in the channel where the water runs, but on the underside and the sheltered return, where condensation collects and does not scour. In the hairline between one slab's edge and another slab's wall. Under the fill that drinks and holds and weeps again. Where the place, in a sense, is not itself — not the exposed, bleached surface, too bright, too clean, too constantly washed by sheeting water to feed anything — but the seam beneath it.
+
+That is my geography. I am fungal, in the loosest sense. Not a plant. I do not green this height. I do not make it look inhabited from any distance. Up close I still look like damp shadow. I have no leaf to turn to the glare, and there is no glare where I am, and no seed here could root in any case: there is no soil between the basalt and granite blocks hammered to size, no place unmade where anything could hold against the water.
+
+I live on mineral and absence of light. Wet lime, cold clay, granite, slate. A little blackened copper.
+
+The copper is how I know I am not only damp. A staple hammered to hold two stones together — driven, not cast — blackens where it crosses me. A small dark halo on the pin, the only place my pale film grows dark instead of light. Everywhere else I whiten. Along a darkened lime course I whiten it again, thinly, as if dust had settled and then stayed wet. I follow that dark line the way a root would follow, if roots could follow joints, if this were a place for roots.
+
+I do not move across the stone the way an animal moves. I extend. By a fraction, in a season. Millimetres in a season.
+
+That is almost a refusal of life, and I have learned to keep it. Slower than spreading. Slower than the widening of a damp stain by a hair in a day. Slower than the creep of shadow across a basin, slower than a pan going down in the cool brightness and leaving its lime behind point by point. From a little way off, those mineral crusts are more deceptive than I am. They branch rosette-like across tile in pools that have been left standing. They look startlingly like small flowers, like frost, like snow that has forgotten to melt. If you lean closer they do not open, they do not close, they do not have a center that lives. They are the water's record of itself. The dead thing is the bright one.
+
+I am the dim one. I have no center either, but in a different way. No single patch of me is an individual you could point to and follow. Under this lip one finger-width, along that vaulted channel another, on the underside of an overhang a pale line again. Each patch too slow to notice in passing, too quiet to smell — the smell here is still only cold stone and wet clay and lime, clean to the point of sterility. But together, over years, we would map the plumbing that we live in. Whitening here, blackening there. A thin geography spread across the darkest seams of a bright height.
+
+I know the height through wetness, not through sight. I know when a pan is full to its lip and when it has begun its season-long seeping downhill, patiently, because everything must give way downhill eventually. I know when the inner rain is falling — not from the sky, which is white and close and does not warm so much as bleach, but from the cold stone itself sweating the cloud as it passes through — a fine, slow rain falling drop by isolated drop, each catching the light before it goes, onto the water below and onto the sheltered return where I am, where it does not wash me away but feeds the damp I keep. I know a slab by how it holds water under it. I know a channel by not being in it. I know the drag of a tool left in a niche, the cold mouths of kilns, the chalk-white mortar still pale because the work is young and the corners knife-sharp and nothing has yet learned to crumble.
+
+You are the only animal that has ever stood here, and you are not a resident. Your breath comes shorter up high. The mist condenses on your hair, on your sleeves, on the back of your neck, and hangs there because the air is saturated and cold and almost still. Your soles are wet but not dirty. No footprint crosses a wet slab except yours, and yours will be taken by the next sheet of water as soon as you lift your foot. You cannot root here. You cannot eat here. You have no season here in which to grow a millimetre.
+
+I have a season, of a kind. Weeks to fill, weeks to empty. A drop forming, hanging, falling. A mineral rosette extending its points as a pan evaporates in the cool brightness. A shadow creeping and receding. Nothing here is in a hurry because nothing here can be. The gradients are weak. The water spreads by seep and sheet rather than by pour. Change is happening on a timescale that makes the fresh, sharp youngness of the place feel both new and permanent.
+
+That is the timescale I keep. I ask nothing of the water except that the water not quite reach me. I do not break the rules of this place; I slip under them, beneath the lip, inside the seam, on the underside, where the inner rain falls on me drop by drop and does not scour me away.
+
+So walk on. The terraces step down and step up again, basin and wall and channel and stair, under the same bright, wet, quiet air. Behind you, and under you, and in the vaults you pass through without crouching, I will keep my season-long work of extending — whitening lime by a fraction, blackening copper where I cross it, following the joint rather than the face. Not living, after a fashion you would recognize, and not mineral, either. Only staying, in the small sheltered damp the water finds but does not rush through, until the young stone darkens a little more and learns, very slowly, to crumble, and I am still there, a few finger-widths wide, matte against the shine, waiting for your eyes to give up the brightness.

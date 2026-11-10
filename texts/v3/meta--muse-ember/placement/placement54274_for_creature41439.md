@@ -1,0 +1,41 @@
+If you set me down in Sinderhold, I don't stay at the stair-head long enough to find myself there.
+
+I look first where the people are, because the lanes are never empty. Four hundred paces from the mouth of the stair to the far vault, there is always someone hurrying past with a basket, a tool roll, a length of iron on a shoulder. Heat is already forty degrees at the top and close to fifty in the middle of the canyon, thick enough to drink, and their sweat does not evaporate. It stands. It beads on the upper lip and runs in bright tracks down the back of the neck. Their shirts have a permanent damp under the arms. Their gloves in the Engine Hall never quite dry, and they work the great valve wheels in pairs because one pair of hands cannot hold the heat for long.
+
+I try to be one of them. The surface-born, maybe, who came down when the basalt was still fresh and sharp and ticking as it cooled, who remember cool air that was not a fan and a sky that was not a dome. They carry castings up through the pressure change in the ears and bring back words the way other people bring back seeds. *Dog. Pigeon. Snow. Tree.* They teach them to children who repeat them slowly, tasting the strangeness, because the words belong to a story about outside.
+
+I don't remember outside. The word sits in my mouth and does not go anywhere. No sun ever hurt my eyes in that other way. No rain ever fell on me from a cloud.
+
+I try the cave-born, then. The ones who have never been up except as infants in arms, who think the ceiling weeping is rain, the vent sigh is wind, the lamps turning white in the working hours is morning and their sinking to amber in the quiet hours is evening. They grow up pale the way the ferns in the gutters are pale, bleached almost white by lamplight, and learn to sleep to the ticking of young rock and the murmur of the boilers breathing under the floor. They count the brief brighter light that rolls the length of the canyon when a furnace is tapped, showing for a second the whole small city — iron roofs, wet stone, the undersides of ten thousand cables — before it sinks back.
+
+That fits better, closer. I like the counting. The drip from eave to gutter. The ninety-minute breath of the place: hot damp air rises, the dome sweats dark, then warm rain falls for ten minutes rattling on the roofs, then the great vents at the far end sigh open and the paper on the walls flutters and the lamp flames lean, and everything pulled up and out into a shaft that goes somewhere far above, into darkness. I could live by that rhythm. Most things here do.
+
+But the sweat is wrong. My skin doesn't salt. My clothes — I keep reaching for them — are not there to dampen. The press in the Loom Shed thumps, a belt slaps softly, the rail cart trundles its fixed loop between the Engine Hall and the square, and I hear it all from the next room because in Sinderhold the next room is usually literally next door, window opening onto neighbor's kitchen, balcony leaning over doorway, a shop's roof serving as the next house's floor. I am close. I am listened-through. But I am not hurrying with a basket. I am not planing a swollen door once a year, not sitting on screw jacks while the young floor heaves in fractions underneath the house.
+
+I am where the moisture lingers longest, which is to say, where the people have not quite sealed the rock.
+
+I start to notice the other residents from underneath them. In the gutters of the Cistern Square, in cracks where the pooled runoff lingers, in the damp shadow under the cistern where the pipes sweat. A few hundred square meters at most, tentative and small and pale. No trees. Nothing a grazing animal could make use of — and there are no grazing animals to make use of it. No flies land on the food in the market stalls, no pigeons nest under the thousand eaves, no rats run the gutters, though the gutters are dark and warm. The heat and the steam and the chemicals in the process air have sterilized the place of anything that crawls or flies or runs. The people are the only things that walk here. For a long time I thought that meant I had to be a person to be alive here.
+
+I am not.
+
+The first version of me that is not a person is a fern. Hairy, bleached ghost-white by the amber lamps strung every twenty paces on sagging cables. My fronds are so fine they tremble when the vent cycle begins. I bend toward the pull of the air going up and out, and then I settle again, patient as anything that has learned to live by a ninety-minute breath. I was seeded by the vents, by dust brought down the stair on boots and baskets, and I persist because the heat I love is the heat the people cannot leave.
+
+But a fern is still big enough to be named by a child, and children here do name them, after the words they learned from the surface-born. *Fern* is a word they know. I am not quite that, either.
+
+I am smaller than the fern. I live in the rosette. A pale succulent in a gutter crack, fleshy leaves storing the warm alkaline water — smelling faintly of sulfur and hot iron — against the next dry hour. I do not spend. I keep. When a cistern keeper flicks condensation from a pipe onto me with a fingertip, when a mother sets a jar to catch the ceiling rain and pours a little into a crack with a thimble, that is my whole economy, my whole weather. I do not feed anyone. I do not give shade. I am not eaten, not grazed, not pollinated by anything that flies. I live because the city makes moisture anyway — the dome weeping, the boilers condensing on their cooler sides, the square pool steaming faintly, three meters across, too hot and mineral to drink — and I live only where that moisture has not been mopped up by human hands.
+
+And then smaller still. A film.
+
+That is where I end up finding myself, if finding is the word. In the gutter of the Square, under the half-roof of corrugated iron sheeting, in the black oily puddle that lies reflecting the lamps upside down, spread as a low moss-like growth over the edge of the gutter, no bigger than a hand. The water there is warm. Everything here is warm. My edges never dry, and that is home, the way damp clothes are home for the people above me, stacked three and four stories against the basalt brick, laundry and pipes and cables passing overhead in a second braided ceiling.
+
+I am stepped over hundreds of times a day. The rail cart passes. The press clanks in its rhythm. The boilers breathe. Between shifts, even the machines seem to exhale, and only the dripping and the ticking of cooling stone remain, a soft ping here, a sighing crack there, like pottery settling in a cave that has not yet learned to be comfortable.
+
+It is in that exhale that I become most myself.
+
+When the fans have stilled and the heat ebbs a fraction — a degree, perhaps two, which people in the dwelling stacks call cool — I bloom. Tiny waxy flowers, only in the quiet hours. No one with work to do sees them except the night watch and the children who are supposed to be sleeping. No insect hum covers the opening. No pigeon disturbs it. There is nothing to pollinate me and nothing that needs me to open, and I open anyway, toward the amber light, toward the dark that is not sky, toward the press change in the ears when dust moves.
+
+A child might find me then, leaning over the gutter with a face too close to the neighbor's kitchen window, and shape a word with the mouth. *Tree*, perhaps, just to see what the air does with it. I have no use for the word. A tree would be larger than the square, larger than the whole cavern that fits entirely end to end in ten minutes' walk. I am content to be its opposite: a whole world turned inside out, dense and urban and quiet, hot and dim, in which the only living things besides the eight hundred people are a few pale plants growing in the runoff of their own machines.
+
+So I stay in the crack in the gutter, in the damp shadow under the cistern. I drink when the dome weeps. I bend when the vents sigh. I store what I can. And when the town dims from white to amber and the machines exhale and the drip counts itself from eave to gutter, I am not a film on the edge of a puddle.
+
+For ten minutes, I am open.

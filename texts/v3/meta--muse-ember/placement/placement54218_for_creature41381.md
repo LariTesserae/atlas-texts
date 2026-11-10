@@ -1,0 +1,29 @@
+At first it is only water, and I am only a way of not moving in it.
+
+I do not cross the vastness. I have tried, once or twice in the early days, to let the current carry me out into that green-grey emptiness where light shifts for hours and nothing changes, where a warm plume can rise and bend for kilometers like weather. It is too much water to hold. So I came back to the edge of it, to the place where the made world narrows, and I found a bend.
+
+That is my world, mostly: a curve of poured concrete, ribbed inside, where the outflow runs warm. The pipe is not a place a surface animal would call a home. It has no bank, no soft bottom, only a manufactured slope and the steady slide of water past it, tasting of iron and warm oil. But water gathers here in a predictable way. It slows on the inside of the bend. It stays a few degrees warmer than the water outside the mouth. In winter, when all the drifting things have moved on, this warmth does not go away.
+
+I coil on the inside curve and I stay.
+
+I learned the place by my skin before I learned it by anything else. When the foundry is quiet, the water is only warm, and I coil tight, my own length looped against itself to keep what heat I have. When the furnace ramps up — I do not know its name, only its rhythm, a thickening in the flow, a summer arriving too fast — the plume outside grows and grows, and the water in my bend grows with it until even warmth becomes too much. Then I uncoil and stretch. Head stays where the warmth is best. Tail slides out into the cooler straight of the pipe to cool. That is how I know a shift has changed. That is how I know midnight, too, though I never see the lamps: the light that leaks down into the mouth softens, dims to its lower white, and then, hours later, steadies again.
+
+I do not go out to see the city. The city comes to me, brought by the current I face into all day.
+
+First the plankton. Snow that does not fall, thickening to a faint milk downstream when the plume is strong, thinning to clear when a school has grazed it. Shrimp click in that cloud, dry static at the edge of hearing, and I can taste that there are many of them without ever seeing them. Then the school itself arrives — silver turns in the lamp-avenues beyond the mouth, a flash that makes the water shiver even in here. They do not come into the pipe. They pass, they stir, they are gone, and the water is emptier for it.
+
+Other news arrives by smell. Crabs along the terraces outside, overturning the manufactured sediment, mowing down whatever the planters try to grow. I know a crab by the slow, leg-by-leg disturbance of its passing, by the faint rot of what it scavenges. Once, one came too close to the mouth, walking the sharp edge with that sideways, deliberate gait, and I stayed coiled with only my head out, mouth still, tasting the water for the moment it would turn. It did. They always do, if you wait long enough. A careless fry has less sense. I have eaten in this bend, and I have waited a whole day for nothing. Both are ordinary.
+
+Above me, sometimes, there is the sudden smell that is not water at all — oil, ozone, rubber seals — when a grating is opened and a maintenance crew in bright suits hangs upside down over the platform. Light falls in hard and white. The filter feeders under the platform close against their shells until the crew is gone. I withdraw deeper into the bend until the smell thins, then come forward again. I need no permission to cross the plume the way they do. I live inside the part they are warned not to enter.
+
+And there are the children. I hear them more than I see them, swimming their commute between buildings in quick pairs close to the wall, kicks hurried where the hunting lanes run in winter. They know which lamp-avenue the larger fish use, the way I know which pipe-bend stays warm. They were born below, into air that was imported and kept in rooms, and they think a retaining wall is a kind of cliff and concrete a kind of rock. I was born in the warm outflow downstream, and I think this bend is a riverbank. We are the same age, the place and all of us in it. Nothing here has softened yet. The welds are still sharp. The barnacle crust at the waterline is still thin.
+
+Once in a long while, the water itself changes in a way that has nothing to do with temperature. A whale passes far off, or a great shark, too large for the grid. Even from inside the pipe I feel it: the light beyond the mouth dims for a minute, the clicking stops, the school tightens, the crabs on the terraces freeze mid-step. The pressure shifts on the bones of my skull. I freeze with them, head half-withdrawn, tasting nothing but the pause. Then it is gone. The shrimp resume. The pumps resume their hum, which I feel not in molars but through my whole length, a low vibration in the concrete. A pump failing would change that pitch. I would know, the way the children know, before anyone told me.
+
+That is enough. I do not need the whole trench-city, the kilometers of straight streets the current has learned to follow, the towers and yards and junctions ten and twenty and forty kilometers apart. I live where the waste heat goes to die, and because it dies slowly, I live well.
+
+I am a long body that has learned the shape of a warm corner. I face into the flow and let the world pass my head — plankton, fish, crabs, light, the smell of other people's air, the turn of the current around the pillars I will never see. When the furnace ramps and the water turns too warm to coil, I stretch out to cool my tail and keep my head in the heat.
+
+I do not migrate. The pipe runs warm all winter, and that, for me, is a home that does not move, in a city that is always moving.
+
+The current turns again. I turn with it, and wait.

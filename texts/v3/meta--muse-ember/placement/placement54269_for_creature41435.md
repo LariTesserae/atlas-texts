@@ -1,0 +1,31 @@
+It is cold before it is anything else, and I am low in it.
+
+Not standing. There is no height here to lose. I am ankle-high where I am visible at all, and most of where I am, I am not visible. The water presses evenly over everything, near freezing and unchanging, and it slows whatever tries to move in it, including me. Sound is taken the moment it is made, so I make none. When you pass — when a foot comes down through the dark and stirs the silt so you can see ten steps, fifteen — what you touch first is not a shape that startles or flees. It is a brush against the ankle. A minute sway, borrowed from your own passing, imposed on the water. Then still again.
+
+I thought at first that that was the whole of me. The felt.
+
+Algae lay over every stone and brick and timber the builders left, black-green, a finger thick in the ditches, a forearm thick in the lee of a wall where the water has been still for a very long time. You do not pick it up. You push through it and it muffles you. Under it the cold mudbrick yields a little. Under that, the silt. That surface would be an easy place to stop, and for a while I did.
+
+But the surface is not the living part, or not mostly. It is what has already fallen and softened and lain on top of living leaf. Below it the ribbons rise from the platforms — eelgrass-like, translucent and rubbery and very cold, dirty yellow-green where a little more light finds them through the ice and the silted water, pale and hanging where the dark closes over them. Below them, in the canals, the filamentous threads bridge root to root until a pace-wide cut is roofed over and the water moves through as if through a sieve. On the sides of the dikes the moss climbs in cushions, cushion on cushion, softening the straight lines.
+
+I am underneath all of that.
+
+I am where the work is, which is everywhere, and I go across it sideways. Under the mat I creep, millimetres in a year, rhizome advancing a handspan in a human lifetime, root woven into the made earth. That is my timescale, and because nothing has ever interrupted it — no grazing snails, no fish rooting through, no crabs, no birds because there is no above to fly in — the creeping has had an ancient, undisturbed time to become complete. Mat on stone, mat on mat, fallen leaf on living leaf, root in silt.
+
+My where, if you want one place, is the lee side of a low dike where it steps and turns.
+
+It is not a grand place. Nothing here is grand in that way. A course of stones set by hand, without mortar, has slumped toward itself over centuries until a wall two metres high is a ridge thirty centimetres high, its capstones tipped. A square of packed clay, its corners rounded to the radius of a hand, has settled into the silt around it. I pass over its surface and under the algae. Once, long before any of this was wet, a man pressed his thumb into the brick while it dried. The hollow is still there under the film. I have covered it and uncovered it a thousand times, in the slow sense of covering, and it has not filled faster than I can creep.
+
+On the other side of that ridge the ground falls into a groove a pace wide, a canal, its banks flanked by low banks again. Timber stakes were driven down in rows there, lashed with woven fibre, once roofed at the junction. The timber is black and soft as fruit in the cold anoxious water and holds its shape, green with beard. I am the beard and I am also under the roof that the threads have closed again over the water. In the little square basin where two dikes cross, I hang in the lashings and catch the fine suspended snow of silt as it falls and almost never arrives.
+
+That is the level I live on. One storey high: water, built earth, plant. I do not grow up toward the grey-white ceiling of ice. The light that finds its way down through ice, through a long polar season, through water thickened with its own sediment, is ten steps perhaps. Beyond that I grow more slowly still, paler, thinner. But I do not stop. The pattern goes on — platform, canal, ridge, mat — and so do I, the farther you walk into it, the paler and slower.
+
+A leaf unfurls and stays unfurled for a decade. I am not a leaf. I am the part that persists under leaves, the layer upon layer of dead selves beneath, turned to silt, feeding the next layer up. If you dig here you do not find rock. You find more work: a lower course, an earlier floor, an abandoned stake. And below that, more packed earth that once held water back. My roots are in that earth now. The dikes that held back a higher water hold back nothing but the silt they themselves have become, and for that reason they hold. I am, in the end, the last mortar.
+
+There is no drama in this. The water exchanges through the canals at a rate you would not notice if you watched for a year. A footprint pressed into soft brick will hold its shape through a season and fill, grain by grain, in the next. A mat that is torn will grow back over the course of a human lifetime, perhaps. Far above, the ice cracks like a very slow continent clearing its throat, and a fine rain of ice-spores drifts down and does not hurry to settle. Patches of silt-laden water hang overhead in circles miles wide and bend a ribbon a fraction, then let it be.
+
+So when you stand, if you can, in the middle of one of the larger reservoirs, and feel the cold come up through the soles of your feet from the made earth, and feel vegetation brush your ankles, unmoving except for you — that is not a creature in the water, and it is not a shape in the dark coming to meet you.
+
+It is an upholstery. It is the felt, and under the felt the ribbons, and under the ribbons me, creeping over brick and stake and stone, holding a sunk and settled plain in its final form by becoming part of the ground that was made to hold water back.
+
+I go on, millimetres a year, under everything that was built, and over it, and through it, until built and vegetable are indistinguishable at the edges — a wall a mound of algae, a platform a garden bed, a canal roofed in living matting. Lush because nothing eats it. Ancient because nothing disturbs it. Almost motionless, visible only as far as you can stir the silt.

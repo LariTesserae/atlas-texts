@@ -1,0 +1,25 @@
+The plain is cold and low and has not been finished. Where it shows between the paving it is a grey paste whose grains have not yet been given sizes. It is neither sand nor clay, and no stone in it is rounded, because nothing has happened to it yet. A brass stud in the square gives its height as four metres above sea level. The sea that figure refers to is on order.
+
+On this stands a town three hundred paces across, bounded by a continuous kerb of pale ceramic. Inside the kerb are forty-one buildings on room for about twelve. The lanes are shoulder-wide and the eaves nearly meet. Grey jointless ducts, thick as a thigh, run from roof to roof and down every corner into the ground, bundled so closely that the lanes are half roofed by them. Everything is made of one material, like unglazed porcelain, with no grain and no seams. It is cold to the hand and takes no stain.
+
+The town was completed four years ago, all at once. The method commits to the result first and supplies the causes afterward. So the town was delivered whole, and the ground it requires is now being installed beneath it from the bottom up, along with the centuries that ground needs to have had.
+
+At the base of each building sits a black casing the size of a bread oven, with a small window showing a figure in years. This is the age of the ground under that building. Under the square it reads 1,140, and near the kerb less. A plain like this needs about eleven thousand years to have drained, settled, and made a soil. The gauges gain a year every two or three days, and each time a year seats, the casing gives one tick, like a stove cooling. That is most of the sound here. The ducts carry something downward and make no noise doing it.
+
+Someone has drilled cores. The top is paste. Below it, bedding is coming in faintly, the way an image comes up in a developing tray. Lower down there are shells, blank spiral casts with no ribs, belonging to no species yet. Later cores from the same hole show the ribs beginning to arrive.
+
+The plain is in arrears sideways as well. Each house measures six metres across inside, and a row of seven measures thirty-one along the lane. The difference is held in the party walls. In a strip a hand wide, the far wall of one room is also the near wall of the next, and a cup left on the shelf there belongs to both households. The lanes widen by about a finger a year as the ground comes in. People keep a stick for checking this.
+
+Wear arrives ahead of use. Steps are dished in the middle on buildings no one has entered, and door handles are polished by hands that are still owed. Some of the residents have lived here thirty years. That is also being arranged.
+
+Water follows the same rule. The paving darkens, the ducts bead, the lanes smell of wet stone, and the rain comes an hour or a day later to account for it. People take washing in when the ground goes dark. Through the middle of the town runs a channel with three bridges and no river. Its walls carry a tide stain at knee height and its bed is damp. It sometimes holds a puddle whose surface is ringed from a stone no one has thrown. Condensation also gathers on things that are scheduled but not yet fitted, so that a line of droplets hangs in the air along each bridge at the height of a railing. At the gap in the kerb where the road will come, there is a post with an empty bracket, and under the bracket a rectangle of fine beads where the nameplate goes.
+
+Sound is kept short. Wind finds no rough edge to work on. Now and then a lane returns an echo of a cough or a dropped pan that nobody made, and whoever is nearest is expected to make it within the day. Most do.
+
+Light is the one thing that comes on time. It is ordinary northern daylight under ordinary overcast, flat and grey, lying evenly on the white walls with soft shadows. Nothing in the works glows. Nights are dark apart from windows.
+
+The plants are honest too. Sedge and a thin moss have crept in from the flat at their own rate, in the kerb joints and along the channel bed, and they are exactly four years old. There is a prostrate willow in the square, ankle high. People look at it the way they would look at a clock.
+
+Animals do not accept the terms. Ringed plovers work the flat outside and run along the kerb without crossing it, and their piping carries in on still days. Geese bend their line around the town. One hare came in during the second winter and stayed. It lives in the channel and eats the sedge, and it is treated with some respect, as the only creature to have extended credit.
+
+At the north-east corner there is a lot where the gauge reads zero and has since the start. The building on it looks like the others, and its duct is the same grey. But its steps are flat and sharp. The sedge grows thickest there. No one has said what becomes of a result whose causes do not come, and no one leans on that wall. On afternoons when the lanes go dark ahead of rain, its apron stays pale. It gets wet when the rain actually falls, as the plain outside does.

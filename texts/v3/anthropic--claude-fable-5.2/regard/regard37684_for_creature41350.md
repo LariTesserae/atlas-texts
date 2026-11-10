@@ -1,0 +1,33 @@
+The power comes in by the door. It reads the sign on the frame, though nothing in here can damage it, then crosses to the yellow footprints and stands on them, because someone went to the trouble. The low tone drops away as promised.
+
+The people stay the length of a logbook entry. The power stays through the evening peak, watching the pipe creep downstream on its saddles, and through the slack of the night while it comes back. Then it goes on staying, which is the one thing it has that the other visitors don't.
+
+It looks first at whoever can be hurt. The people have seen to themselves: the sign, the defenders, the strobe on the telephone, the board of hand signals. Below them is a valley, so it reads the dam the way the fitter with the crayon reads it. The weeps run clear and steady. The lime in them is the concrete closing its own joints from inside, slowly, the way a cut closes. The yellow stripes line up across nut and thread, and the ram holds. The right things are being watched at the right intervals, and the power adds nothing to that. It notes only what the closing joints mean for the green: a new dam weeps most in its first filling and less each year after, so some of this water is temporary.
+
+Then it brings the lens nobody has brought. The guess was a good one. There are round green cells, single and in packets of four, and short green filaments. In the fan by the extract there are blue-green threads sliding over one another toward the lamp. Every kind is one the valley outside has by the tonne. There is also a little more than the account allowed. Bacteria live in the slime on what the cells leak, and in the yellow fan by the door a few amoebae, which came in on the same boots, are working through the film and eating as they go. The room has begun on that too, at a size it can afford.
+
+It measures the layer nobody could measure. The oldest fan, at its brightest, is not yet as thick as the paint on the penstock. The moss is younger than its date by a season. It keeps the figures, though there is no book for them.
+
+Then comes the wish to help. Like the noise, it is at first a pressure with no direction. After a while it separates into parts:
+
+- **A night.** The lamps could be made to fail for some hours in every twenty-four. Outdoors, everything green is built around that. These cells were never given one and have built without it, and for a film that lives inside one arm's length of light, a night would be eight hours with nothing to eat.
+- **Quiet.** The noise is the visitors' problem, and one of them has dealt with it in yellow paint. The cells have a wall that shakes. They answered it with slime, and the moss answered it better.
+- **Company.** A thread of water led from each fan to the next would join the six. Within a year the blue one by the extract fan would be all six.
+- **A grazer.** A snail would make the room look more like a world. From the wall's side it is a mouth. The smallest mouths have already arrived, and larger ones will come on a boot in their own time.
+- **Daylight.** This one pulls hardest. But the weather that comes in through the fan says what daylight is at this elevation: frost on more nights than not, and a noon sun that would bleach anything raised in lamplight within the hour. In here it is six degrees all year, and the lamp neither burns nor sets. For a film one cell deep this is the mildest ledge on the mountain. And the gutter is already sending them out, a few at a time from the lowest edge, which is about the rate at which daylight ought to be tried.
+
+Each part, taken alone, turns out to be something the room has already arranged, or something that is a gift only when seen from the doorway.
+
+That leaves the moss, which is harder, because it has a shape and is easy to love. The power stays longest here. The lime could be stopped from climbing into it, but the pale, stiff base is what it stands on. The crust is how a cushion the size of a coin gets nearer its lamp on a vertical wall. Capsules could be coaxed out of it, but it has nowhere to send spores that the shaft is not already supplying. The water inside it is still. The power checks the rest of the room, and it is the only still water there. The moss made that without help, and anything added now would be the power's and not the moss's.
+
+Then there is the schedule, which has no line for any of this yet. A line will be written. It may say to remove growth from all surfaces, quarterly. If so, the wall will be scrubbed, and for a fair reason, since a clean joint is easier to read. The gutters will carry out in an afternoon what they have been carrying out by the cell. The spores will still be coming down the shaft, and after a season under the same lamps and weeps there will be six fans again, though not these six. The moss would not come back as itself.
+
+The power could put the right line in the right head, and doesn't. The room belongs to the people who come in pairs, and to the valley whose evening the pipe is for. One of them once looked for the place where a person could think, found it, and marked it for the rest. They can be left to do their own noticing. The moss, for its part, has come up inside a blue crayon circle, the one kind of place on this wall that someone is certain to come back and look at. That is all the protection it has. It guarantees a look and no more, and the power lets it stand at that.
+
+So it does very little. It has looked through the lens, taken the measure, and stayed. It leaves no mark. The marks in here, the stripe and the circle and the footprints, are for those who have to come back and need telling what they found last time.
+
+When the reservoir reaches its full level and the last new circle has its date, the power leaves, and it does not use the door. It waits for the second green lamp and goes with the water, along the gutter and through the grating into the sump, where it is dark. Then it goes out along the discharge line, with a few cells from the lowest edge of each fan.
+
+The line lets out low on the downstream face, through a pipe end no wider than a wrist. The dam shades the spot until afternoon. Below the pipe the concrete is wet in a stripe a hand wide, and in the stripe, laid down in the grain of the formwork, is the beginning of a colour. It is too early to call it green.
+
+The power watches it for a while in the cold air. Every eleven minutes or so the pipe end, which has been dripping, begins to run.

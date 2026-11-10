@@ -1,0 +1,37 @@
+From above, I am the place where the pattern fails to match itself.
+
+It is a small failure. The rim of a frost polygon is sorted by size — fines in the centre, cobbles at the edge, year after year, centimetre after centimetre. I lie where the sorting thins into moss. My colour is wet silt after rain. When the light rakes low and silver under the cloud, I give back almost no shadow of my own.
+
+In the morning I am cold from the stone upward. Fog condenses on me the way it condenses on rock, on moss tips, on anything that has spent the night giving its heat away. The melt pools have skinned over. Down in the moss the springtails are dormant, the mites stilled in their armour, the tardigrades curled and translucent and waiting for water to remember them. I do not move. Moving is a later decision. For now the world is the temperature of the ground, and the ground is still sorting itself, a stone lifted and settled a fraction of a millimetre by ice in the night.
+
+Midday changes the terms.
+
+The skin breaks on the pools. The red worms in the black mud below pupate, rise, split — and for two or three weeks the air above the water fills with midges, a shimmering haze with a high, steady note to it. That is the pulse everything here is timed to. The moss cushion in the lee of a boulder, cold at dawn, becomes a degree or two warmer than the wind a hand's breadth above it. I climb onto the dark, wind-polished gravel where the sun has been working all morning, and let that degree get into my back.
+
+Then I go to the day instead of waiting for it to come to me.
+
+I have never built a net. There is nothing to anchor one to, and too much wind to bother. I run in short, sudden bursts along the border where wet moss meets dry sorted stone — a hunting border, where the beetles turn over the lifted stones and the springtails graze in their thousands — and between bursts I freeze. Perfectly the colour of wet silt. The springtails tell on me when I move; my shadow crosses the moss and they jump by the thousand, a ripple that runs ahead of me like weather.
+
+I watch by sight. A butterfly comes stone to stone, a few metres at a time, dark-winged to drink the thin sun, stopping to lift its wings. It is too large and too bright a thing for me to want. A beetle comes out from under a stone and I take it in a rush and then am still again, holding it, in a place that is no longer quite empty. The midges shimmer over the pool. I catch what I catch. The rest feed the spiders’ neighbours, the birds, the fox — everything is a route for the pulse to travel.
+
+I am not the only stillness on the rims.
+
+In the next polygon over, there is a ptarmigan hen sitting on the finest gravel. I had taken her for ground for a full hour. Only her eyes move. Her chicks, precocial and dust-brown, pick at midges in the moss beside me, peeping when a raven passes overhead. The raven's croak arrives long before the bird does, rolling across the basin, and its shadow crosses us both. Everything freezes — chicks, springtails, me. The hen does not freeze the way I do. She explodes upward with a whirr, all camouflage gone at once, white underparts flashing, and the chicks scatter and freeze again in new places. I stay. My way is not to leave the ground. It is to become it more completely.
+
+Farther off, the ground itself begins to tell stories in vibration. A fox trotting a ridge at dawn, nose down, following the reindeer lines. I feel it through the stones before I could hear it. A herd enters from the far edge in its thin, steaming column, cows and wobbly calves and bulls in velvet, and crosses the whole flat without stopping — twenty animals, two hundred — leaving behind dung that will become a nursery for midges that will become food for birds that will be gone by nightfall. Nothing here is dense. Everything is coverage over time. A hare sits in a snow seam, white again in patches because the weather has changed its mind. I keep to my rim. My whole territory is this border between moss and gravel, and it is enough.
+
+Under me, tucked where my body meets the stone, I keep a pale, round thing.
+
+I turn it against the warm gravel at midday. I keep it dry when the cliff faces weep and the springs strengthen in the afternoon. I carry it when I run and when I freeze, and the freezing is the harder part — I have to be still and be warm at once, and the plateau does not make that easy. It is lighter than I am. It is the only made thing I have ever kept, and I did not make it. Some days it is simply weight. Some days, when rain darkens the silt and the whole archipelago of moss mats steams faintly in the lateral light, it feels like the one warm coal in a very cold place.
+
+Afternoon brings the cloud cap to the high knobs and the wind down to the gravels, saltating sand hissing across the sills. I go back to the lee of the boulder, to the edge of the moss, and wait out the worst of it with my front legs testing the ground. Inside the cushion, if I could pull it apart, there is a country: fungi threading the old moss into sour peat, algae filming the pool edges green, nematodes wriggling in the water between leaves. I do not live in that country. I live on its border, where the world is thinnest and most exact, a few centimetres above the ground, where everything that lives here prefers to be.
+
+Night resets the machine. The pools harden with a sound like a rifle-crack far away. Ice expands in the cracks and lifts a stone another fraction of a millimetre, and the sorting will start again tomorrow. The butterflies fold themselves under a stone. The hares curl into their forms. The fox pups are back in the den under the slab. I curl under a lifted stone on the rim, the pale thing against me, and the blue shadow deepens until the pattern of the ground is still faintly visible in the dim dark, already being remade.
+
+Weeks later — and here, a week is a season, and a season is most of a life — the pale thing splits.
+
+They come out small and blind-looking and climb. Hundreds of them, onto my back, onto each other, until I am no longer a stillness on the rim but a moving rim, a piece of the ground that carries eyes. Hundreds of eyes open at once in the raking light, all of them facing the way I face, all of them freezing when I freeze. For a while we are a landscape that walks in short bursts. Then one by one they leave, drop to the gravel, and take up a position where the stones are sorted finest, and become the colour of wet silt, and wait. Each one is a new wrongness in the pattern, on a rim I will not cross again.
+
+My running slows. My stillness changes kind, the way stillness does when it has finished its one brief, intense piece of work. The midges rise over the pools again the next summer — of course they do; the water cannot sink and the cold never really leaves, and the machine does not need me to run it. I am simply one of the routes the pulse took across the flat, briefly, low to the ground, from a caterpillar's sedge to a chick's beak to a raven's black wing, and now from my back to a hundred new borders.
+
+The pattern goes on without me. In the morning the frost will form on the moss, the pools will skin over, and among the newly sorted stones there will be small failures in the matching — perfectly the colour of wet silt, perfectly still, waiting for their shadow to pass.

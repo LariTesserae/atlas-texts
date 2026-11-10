@@ -1,0 +1,29 @@
+Before the sun has found the floor — before it will for hours — I am already on the north faces.
+
+I bead, thin as breath on cool stone, and if the cloth passes I run in a slow, bright line into a shallow ladle and then into a bucket. The child who comes for me does not wipe me away. She works around the dark fur low on the wall where the seep weeps from the shale, where I have taken the dampest line and stayed. If the fur is thick, the wall is good. If it thins, someone somewhere behind the stone will have to dig to find why. She knows that the way she knows her own door. I am what is left after the wiping, and what comes back by morning.
+
+At midday the sun drops straight down for a little while and the floor is lit normally, as if the town had been hung out to dry. I shrink then. I back into the stone. I keep to the north sides and the shaded channels and the cracks between houses where there is only a shoulder’s width of lane and no room for anything to be wasted.
+
+That is where I go next. Down the drains under the split slabs, where the rain that took a sheet off the faces in late summer is led away and the puddles in the lanes take a full day to dry in the shade. Under those slabs the woodlice turn over patiently, and I keep their undersides damp. I am in the moss on the channel edge. I am on the underside of the wood. I am the cool that does not lift, even when the bakers’ ovens are hot at the low ground and their smoke rises unobstructed for once.
+
+At the lowest level the seep weeps slowly and is caught in the shallow cistern. That is where the town keeps its clock, and I am the skin on the water there.
+
+A clear, greenish film. I close over the surface again after every bucket. The ladlers know their buckets by the patched rope, the chipped rim, the lime paint, and they know their turns the way a song is known, house by house. A practiced hand skims the top and does not try to kill me, because water in stone that has never been touched by anything goes stale. I feel the order in the stone before I feel it in the water: this bucket, then that one, then the one with the child not yet tall enough to reach the edge. To take early is to be remembered. I am remembered too, in ripple and skim.
+
+After the last bucket the rats come. They live by the cistern where there is always a damp corner, and they sip at the edge and break my skin with their whiskers. I close behind them.
+
+Behind the plain fronts I go sideways. From the lane a house may be a single blank wall, but inside it turns and branches into the stone, one room behind another, each cooler and quieter than the last. I follow the damp that way, into the far rooms where daylight does not reach and the oil lamps burn even at noon, small and yellow, making the walls look nearer. The moths beat softly around them. The farthest rooms are for the oldest people, for grain and wool that must keep dry and close — and yet they are never quite dry. A family will keep a deep room for a grandmother long after they have moved a terrace up toward the light that lasts a little longer.
+
+In those deep rooms I am on the timber props. They began as scaffolding and were left, as everything here is left, to become floors and beams. White threads creep on the damp wood that should have been replaced. The masons cut me back when they pass with lime plaster, white and stubbornly pink, and I return in the night when the drip finds the beam again. Salt blooms pale where the shale weeps, and the stone-cutters brush it away without thinking. I am on their hands a little, and on the dust that does not wash out.
+
+I am not alone in the walls. That is the rule here, and it is mine as much as theirs. A new wall must meet an old one. A tunnel may not break into a neighbour’s room; it must turn, and the turning is marked and remembered by people who may never meet the neighbour. I live at the turnings. I hear through stone: a bucket set down on the other side, sandals scuffing on steps a terrace up, a child calling once in a lane and quieting, the rhythm of picks at a face two houses away, muffled within a few walls like everything else. The dogs sleep in doorways where the shadow is and move a few inches with it. The pigeons coo in the blasting holes high up and whitewash the niches. On market days the plateau comes down with grain and salt and wool, and the traders speak low because loudness feels rude in the bowl, and I feel their new vibrations in the ramps. The goats never come down. Their bell is a faint thing far above the rim when the wind is right.
+
+At dusk the swallows come down and cut low across the bowl, twice and three times, and then up again to the plateau dark. I feel their shadow cross the cistern. At night the town falls to almost nothing: just the drip somewhere deep, and the wind at the rim far above, and me, settling into the cool.
+
+It takes me a long time to understand that the bead on the north wall, the fur on the seep line, the film on the cistern, and the white thread on the beam are not four lives. They are one thin life doing the same work in different places, held together by stone that is always cool to the touch and never wet in any generous way.
+
+At the edges the digging goes on. That is where I am newest, and oldest at once.
+
+Fresh faces are bright in section, limestone and shale opened within living memory. The air in the newest tunnels is perpetually moist, smelling of mineral and wet stone, cool on the skin. Nobody has arrived yet with a bucket or a sofa or a name for the turn in the tunnel. But the fungus is already there. The woodlice are already under the slabs. The moss is waiting for damp. I am already advancing, a hand’s breadth a day on a good face, into the room being made for somebody who has not yet arrived.
+
+Stone rings once, twice, at the edge of things. I am already at the turning, cut back and returning, making room.

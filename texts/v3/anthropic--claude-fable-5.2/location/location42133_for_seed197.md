@@ -1,0 +1,29 @@
+From the sedge flats the town makes almost no sound. You can stand forty paces off, in the low ground where the river used to bend, and hear only a thin steady murmur, about the pitch of a wasp held in cupped hands. In plain daylight the outline is easy to read: a pale green wall the height of two people, square openings, flat roofs behind it, and one four-storey shaft that looks like a tower. It covers the ground of a forty-house hamlet, and it is a single plant.
+
+The plant is a jointed cane with the habits of a gourd. It grows straight, turns its corners square, and where two runs meet it fuses and swells into a chamber. Every wall is two skins with a finger's width between them, each skin thin enough that a hand behind it shows as a shadow. The lowest courses are old, grey and woody, rounded by a great many floods, and the thresholds have been worn into shallow dips by generations of small feet. Above knee height everything is live membrane, taut and faintly damp. New growth appears only where something has fallen. The layout was finished long ago.
+
+Step through a gap in the outer wall and the noise closes over you like water over a diver. Frogs, cicadas, crickets, weaverbirds, and under them the wind fluting across forty-odd doorways, each tuned by the size of its room. The perimeter skin passes light and air and almost no sound, so nothing called here has ever left. Silt on the floor of the square stands in ridges and rosettes that rearrange when the chorus changes key. Dew is shaken off the walls as mist before it can run. Your teeth register the place before your ears sort it out.
+
+And the rooms are empty. Each holds a floor of fine grey silt cracked into plates, green daylight coming through the ceiling, and warm air the temperature of skin. No litter, no nest, no web across a corner. The lanes are the same. The plant has spent everything on surface and left the volume alone.
+
+The animals, and there are a great many, live in the gap between the skins. From inside a room you watch them as silhouettes: frogs pressed flat with their throats pumping, a file of crickets, the long shadow of a rat snake moving up through them without hurry. Birds weave inside the wall and come and go through slits. Each cane joint holds a thimble of condensation, most thimbles hold a tadpole, and there are thousands of joints. Between floods that is all the standing water there is.
+
+With so little matter in the place, sound does matter's work:
+
+- **It bears load.** The membranes are too thin to keep a shape and are held out by the pressure of the note inside them. On the east edge, three chambers whose chorus died have folded down like wet paper.
+
+- **It can be perched on.** Over the square, at head height, hangs the summed tone of the frogs in the four surrounding walls. Swallows sit along it in a row, on nothing visible, and spiders have anchored lines to it. When the snake thins one wall, the tone sags at that corner and the swallows shuffle uphill.
+
+- **It accumulates.** The oldest rooms, at the tower's foot, have been filling since before the base went woody. The doorways stand open on bare floors, and the air inside pushes back at you like a river at thigh depth. Snakes go in anyway. They hear through the jaw and the ground, and slide in underneath.
+
+- **In the tower it runs backward.** The echo arrives first. Bats roosting at the top hear a moth's reflection before they have cried, take the moth, and cry afterward, a short flat call down the empty shaft that seems to settle the account. A bat that skips the call is short an echo the next night and flies into things.
+
+- **It sets distance.** At noon, with the cicadas at full pitch, the square is twelve paces across, the smallest it gets. By evening it is fifteen, then eighteen. The hollow inside these walls is far larger than the oxbow that contains it, and only the calling keeps it drawn in to the size of a town.
+
+The animals behave as if they know this. Their shifts overlap. The cicadas do not quit until the frogs are up, and the frogs hold on until the first birds.
+
+The overlap fails once a night, around the fourth hour, when the air has cooled and the frogs tire early. For a few minutes there is something close to quiet, and the town opens. The far side of the lane draws away. The tower stands off toward a horizon the oxbow has no room for. A room three paces wide shows its back wall small and pale, as if seen across a field. Nothing moves, because nothing wants to be between places. Then one frog starts, and the wall comes back in jerks, a stride for each call, until the room is a room again. Not everything is always brought back with it. Some mornings there is a moth out in the middle of a small chamber, visibly distant and still flying, and it stays that way until the noon cicadas haul it in.
+
+Most warm afternoons it rains for ten minutes in heavy separate drops. Every roof is a drumhead, and the town contracts so hard that the lanes pinch and the swallows are pressed down almost to the silt. Then the sun returns, the skins steam and tighten, the pitch of every doorway rises a little, and the frogs retune to it.
+
+A few times a year the river remembers the bend and comes through ankle-deep, a brown sheet moving at walking pace. Water is the one thing that carries sound out. It leaves the lower gate loud. For a mile downstream the flood runs noisy with last season's frogs and cicadas dead since autumn, and herons come to stand in it with their heads cocked. Behind it the town is lighter and looser, a few paces wider in every direction, and the tadpoles in their thimbles are a week from having voices.

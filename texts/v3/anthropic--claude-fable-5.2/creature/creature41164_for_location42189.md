@@ -1,0 +1,29 @@
+The first signs are on the glacier. Among the thumb-wide holes where grit has sunk into the ice, a few are the wrong size: a metre and a half long, bean-shaped, a hand deep, floored with the same dark sediment and holding the same cup of meltwater with its rotifers. They lie in a line running back up the ice. The newest are sharp-edged and the older ones have rounded and half closed. Something dark has lain down here many times and sunk in the way the grit does.
+
+The second sign is along the snow margins, where flat stones have been turned wet side up. They are too heavy for a chough. The third is on the ice front at about knee height: pale stripes in the soot film, each one tongue-wide, running parallel like the grooves on the valley walls.
+
+For a while these read as three animals. One sleeps on ice, one forages like a small bear, and one licks like the sheep. Then one afternoon, under the cloud, a boulder on the snow edge moves three metres and stops, and the three are one.
+
+It is low and long, about the size of a half-grown blue sheep and heavier in front. It is not a bear, being too narrow, and it is not a sheep. It has hands, long grey digits with flat nails, and that is how the stones get turned. Its coat is the same felted lint as the woolly thistle's, white underneath. The back is dark, and it is hard to say whether the dark is its own colour or the glacier's. It doesn't wash off in the ponds. The legs are silt-grey to the knee. It is all corners at the hip, shoulder, and elbow, an animal that looks unfinished, as if its proportions were still being decided. The meltwater hasn't settled on a channel either.
+
+It cannot have walked in. Nothing that size comes over the lip without the sheep knowing, and the sheep treat it as part of the floor. The likelier account is that it came as everything else came: small, on the afternoon wind, cold-stunned, dropped on a snow patch among the aphids in the first year or two after the ice drew back. Unlike the rest, it was not picked up by a finch. It has grown since then on what falls.
+
+Its day follows the basin's. At dawn it is under a boulder in the older moraine, among the pikas, who do not call when it moves. When the sun reaches the floor it walks up to the glacier and stretches out, dark side up. It warms faster than anything else here, but the ice under it doesn't hold. By the time the cloud comes over the lip it is lying in a hand's depth of its own meltwater, which it drinks, grit and all. Then it gets up and works the snow line under the flat light, turning stones and licking the surface clean of flies and springtails. The snowfinches follow a few metres behind for what it uncovers. The redstart does not tolerate it at the seeps and drives it off each time, and it goes.
+
+It also licks the ice. What it gets from soot is unclear, perhaps nothing more than what the sheep get from the white bloom on the rock. But the cleaned stripes melt more slowly than the dirty ice around them, and by late summer they stand out by a centimetre. It is the only thing in the basin working against the melt, and it lies down every noon and undoes the work.
+
+It knows which stones are balanced. It crosses the steep moraine walls without setting them off and stays clear of the ones that are about to go. When the leopard's prints cross a snow patch from wall to wall, they bend once, around a boulder that isn't one, and then straighten again. The lammergeier checks on it most days, as it checks on everything.
+
+It has one sound, a dry click made far back in the throat, indistinguishable from the ground settling. It may have learned the click from the ground, since there was nothing else to learn from.
+
+It is the only animal in the basin that looks up at the aircraft. The finches ignore them, and the sheep don't lift their heads. It stops, tips its narrow face back, and looks toward the sound, which is where the plane no longer is. In twenty years it has not corrected for this. It watches the empty stretch of sky until the noise fades, then goes back to the snow.
+
+On clear nights it sleeps out at the rock lip instead of under its boulder, facing the orange stain on the horizon. This is easy to make too much of. South is down-valley, where the wind comes from and where every meal it has ever eaten started out. Any animal faces its food. Still, it lies with its eyes open longer on those nights, and the click comes more often.
+
+It does not feed during the loud week in autumn. It sits on the old moraine with its head back while the cranes and geese circle up and go over the col, the only large things it has ever seen arrive and leave on purpose. When geese set down on the ponds for the night it goes to the margin and sits there, very still, at about the distance the redstart permits it at the seeps. In the morning they go, and it watches the col for some time afterward.
+
+When the ponds skin over, it goes to a hollow in the oldest ground, folds its hands under itself, and stops, as the water bears do. Its coat takes the frost. Within days it is one more stone, and the pikas lay their last stems of sedge across its back to dry. In spring, when the ice shells begin collapsing in the sun window, it stands up and the hay slides off. The pikas come back for the hay.
+
+Each year it is a little larger and has a little more floor. Everything else here is making do, but it is the one resident that the warming supplies. It does not know that it is a symptom, or that the people who made its ground and send its food have never seen either. It knows the schedule, the loose stones, and the taste of the ice.
+
+There is one of it, and twenty years has been enough time for one. It shows no sign of looking for another. But it works the snow line from end to end every afternoon and turns over each thing the wind has dropped before eating it. A search would look the same.

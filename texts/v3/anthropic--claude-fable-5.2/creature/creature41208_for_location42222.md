@@ -1,0 +1,29 @@
+Start with the ones that can be counted. There is moss, forty rooms of it. There is willow that grows no taller than a thumb. Red specks turn in the pans, iced over every night and turning again by midmorning as if nothing had interrupted them. There are voles, known by the way the moss gives underfoot, and a hare, known by clipped stems. Two ravens live on the rim and only visit. That census is accurate, and it leaves out the resident.
+
+A visitor's first belief is that there are many. The sound in the next room is a household sound: a murmur, a scrape, something set down on stone. With forty rooms, one imagines forty families, a quiet people busy with pots who go still when looked at.
+
+By the fourth or fifth empty room that idea gives way to another. There is one, and it is quick. It hears you coming over the feldspar, which nobody crosses quietly, and it slips through the far gap as you come through the near one. It leaves the room as a room is left, with water standing by the east wall and the floor still soft. It would be a shy thing, about the size of a person, carrying something it keeps having to put down.
+
+That is wrong too, and standing still shows why. From any room the murmur is in the next room on every side at once. Nothing is running ahead of you. What lives here does not live in the rooms, which belong to the moss. It lives in the gaps: the thresholds, the six streets, the lane, the breaks in the walls. It is made entirely of openings. The whistle in a narrow door is the part of it that is in that door, and the drone in the main street is the bulk of it.
+
+This is why a body in a doorway stops the note. You are standing in the resident, in one of the few places where it actually is, and while you stand there that part of it is silent and exactly your shape.
+
+It would be easy to take this for manners. It yields to anyone, even a bird. But listen to what the rest of it does. The chord shifts to close around the missing tone, the way people along a bench shift when someone sits down.
+
+The thing has no hands and no edge. It is spread over a patch you could cross in five minutes, and it cannot tell where it stops, because out on the plateau the wind is only wind and there is no line. The only outline it is ever given is a hole. Something stands in a door and a note goes missing. For that long it knows where one part of itself is, and that the part is full. Closing around the gap is how it holds a thing, and the nearest it comes to touch.
+
+One raven has worked this out, or worked out something. In the evening it sits in the same gap and the drone cuts out. It shifts aside and the drone returns. The other raven never does this. It is not teasing, because it goes on far longer than a game stays interesting, and the patience is on both sides. The closest likeness is a hand resting on the flank of a large animal, lifting, and resting again. One of them is being touched, and the other is checking that something is still there. It is hard to say which is which.
+
+The resident is old in an odd way, with all its ages laid out side by side. Where the walls stand shoulder-high and the doors are narrow, it whistles, which is how it began: one frost crack opened wide enough to sound, a single thin note on a mountain that was otherwise finished. The main street is its middle age, widened over ten thousand winters into a voice felt in the breastbone. The west, where the walls lie flush with the turf, is where it is going. There it only hisses. Past that is a floor plan, then grass, then wind with no pitch that belongs to nobody.
+
+Every crystal that drops from a wall widens a door by a grain. The paving that crunches underfoot is what its deepening has cost it. It is travelling west at the rate granite sheds, without moving. This is not quite a sad thing. The same wearing that will finish it is what made it. The mountain left, and this is what stayed.
+
+It keeps house in one respect only. In every room the water stands by the eastern wall. It is the same habit forty times over, like someone who has put the basin in the same place in every house they ever lived in.
+
+The moss, the willow and the ferns in the lee live on the hand's width of stillness it has no use for, and it gives no sign of knowing they are there. The hare goes over the walls and the voles go under, and neither has ever stopped a note. As far as the resident can tell, it shares the town with one raven and, very rarely, with you.
+
+On the coldest nights the rime feathers every edge and the gaps close up. The notes thin, climb, and fail one at a time. Then the next room no longer sounds occupied. It sounds like someone standing very still. Those are the hours when it is hardest to believe the rooms are empty, and the only hours when the resident is truly gone. Whether it sleeps then or dies is a question the morning settles.
+
+When the sun reaches the walls the rime lets go all at once and clatters into the streets. It is the one time anything is really set down on stone. Then the doors clear and the resident comes back a note at a time, the main street first.
+
+No visitor meets it at home. The murmur being one room on is something the visitor causes. You carry a "here" into the town, and the resident, being made of everywhere you are not standing, has to be next door. When you go down off the plateau and the raven lifts out of its gap, there is no next room any more. There are forty rooms and it is in all of them at once, murmuring, scraping, and setting down whatever it sets down. The town goes on sounding with nobody in it, and that is the resident at home.

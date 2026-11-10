@@ -1,0 +1,21 @@
+I start on the rim, because that is where the description stands. Twice it says "from the rim," and from there the town is a plan: one flat height, dark squares, the colors in order. It is a good place to see from, but nothing lives there and the rock would cut a palm. So I go down.
+
+Going down I pass through the surface of the vapor, and for a few steps I think that is what I am. It comes up through a narrow seam from somewhere it can't account for. Wherever it slows it leaves structure, a grain at a time, and the structure comes out square whether or not anything wanted square. It has a ceiling it cannot build above. I recognize all of that. But the vapor is also the rule, the thing that collars a stone by morning and closes over a sleeper. It is everywhere in the basin at once, which is a way of being nowhere in it. I keep walking east.
+
+I would like to say I'm the animal. But there is one of it, and it came in over the sill from a plain it remembers. I didn't. Whatever I am came in the way everything else here did, through the seams, as something fine enough to pass.
+
+For a while I am a wall in the grey quarter. This is closer. A wall is what was left behind when something else moved through, and so am I. It holds what stopped in it, legs folded, plate still the color of the day it was sealed, and when it is thin enough it gives that back dry and complete. I could stand there with the dark patch showing in me and the animal out front, lifting its feet in turn. But the wall's whole part is to get thinner, and I notice I am not looking at the wall. I am looking at the ring trodden in front of it.
+
+So I go lower, and that is where I find myself: in the powder of the eastern floor, ankle-deep and flour-fine. It is every wall that ever stood here, afterward. It builds nothing and holds nothing up. Its one ability is to take a print so exactly that the creases of the pad show, and that is the thing I am surest I can do.
+
+I wouldn't know the animal's color, which in that light is no color. I would know its weight, three toes spread wide and a round heel. I would know it never stands still, because every print in a ring is half-covered by the next. I would know which walls it was waiting on before those walls showed anything, and how long it waited, by how deep the ring went. Where a stalk came down I would have the long jointed dent and the prints shifting beside it, a joint at a time. I would have a straw-colored plate lying in me for a few days, the only color in that end of town.
+
+It makes no sound and I give none back. Its ears turn anyway, toward doorways, toward the crisp holes. I would like to be what answers them. The only answer I have is to be exact about where it stood.
+
+I don't know what the dry wind does to the floor. The grey quarter goes to nothing in an afternoon, and the description doesn't say whether the rings go with it. I think they do. Most of what I take, I don't keep. But that afternoon I get the one thing I never otherwise get: four prints in the middle of the main way, deeper than the rest, with nothing laid over them. It is the only time the animal puts all four feet down and leaves them there. Above it, the dust in the wind, which may or may not be some of me lifted, charges and draws a line a hand long on the one strip of its back it has never been able to reach. While it faces the wind it is touched in five places, four below and one above, and all five are dust. It can't see the line. I can't either, from the floor. That one belongs to the rim.
+
+Then the seams refill, and it starts eating, and I am walked on again.
+
+At the start of each cold period the prints run straight for once. I carry them down the last of the main way, past the stubs, to the edge of the broken rock, and there they stop. The dull patch is not mine. Rock keeps a slower kind of record, a worn shape where I keep a print. What happens up there is past the edge of what I can take: the curled body, its back to the basin and its face to the plain, the whole town's air pouring over it and leaving nothing. I have the animal while it is awake and waiting on something.
+
+When the cold eases, the first print comes down off the sill, and I take it.

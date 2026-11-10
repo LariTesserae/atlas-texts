@@ -1,0 +1,37 @@
+It is not a cave.
+
+At first, pressed into it, you keep trying other words. An egg interior. A geode. The inside of an ear. A room the earth has folded shut before it learned how to be rock. Each image is close enough to mislead you and wrong enough to fall away.
+
+You are below the surface — below leaf litter, below root, below topsoil and the hardpan under that — in a single pocket of earth that closed around empty air while the earth was still soft. It is no wider than a small bedroom and no higher than your shoulders if you stand. The ceiling sags low. A narrow seam at one end is exactly hand-wide, and it has always been exactly hand-wide. You cannot widen it. You cannot quite squeeze out the way you came in, either, though both thoughts feel equally possible.
+
+Then the light hits you.
+
+For something so deep, it is indecently bright. Not daylight leaking down a shaft, not a lamp, not fire. A flat, colorless brilliance that fills every corner the same way, bleaches the walls white, makes you squint — and does not warm anything at all. The stone is cool to the touch, cool enough that your breath has a faint pale edge when you speak, and the light stays the same, steady as noon inside a paper lantern. No shadows move. There is no source you can point to. The world itself seems to be giving it off.
+
+The walls are the reason you stop reaching for “cave.” They are not finished rock. They are geology caught in the first act of becoming: raw, embryonic, still deciding its form. One side is smooth and glossy as wax poured and left to settle. The other is all unfinished bulges — stalactites that are only nubs, crystal buds that are only suggestions, blisters of clay dough pushing out from the earth and stopping short. Chalk, calcite, gritty sand, rust-brown iron dust, translucent quartz points no longer than eyelashes. Where the stone is damp it shines; where it is dry it is matte and fibrous, like the underside of a mushroom cap. It looks under construction at every point, and it looks that way permanently.
+
+Moisture comes and goes without ever becoming weather. 0.7 damp, nothing more. Condensation beads in the same constellation on the ceiling, swells, holds, and is whole again. A thin film slicks the lower walls. There is a shallow pocket of water on the floor — clear, still, rimmed with a dark tideline — that never ripples and never drains. The air smells of wet chalk, of cold mineral, of something faintly green.
+
+Green, yes, but barely. Vegetation here is sparse to the point of rumor. One root has pried through a seam in the ceiling and dangles there, pale and thread-like, with a dozen hair-thin offshoots that reach down and stop. In one damp corner there is a patch of algae, white-green and soft as felt, and a few stubby shoots that have grown sideways because gravity, or habit, made them uncertain. Nothing more. The plants do not thrive. They attend.
+
+Everything else is animal, and everything is packed.
+
+There is no bare floor. There is no bare wall. From the seam entrance to the far curve, every surface is upholstered in presences so densely overlapped there is nowhere for a foot to land that is not already a body. The floor is a living pavement of flat, fingernail-sized creatures, translucent white, each overlapping the next like roof tiles. Each has a slit mouth along its edge that opens and closes. The walls are ringed with stalked filter-cups, feathery and cream-colored, waving in a motion too small to call walking. The ceiling is crowded with tiny bell-shaped things, mouth-down, that shiver. In the damp pockets, crowds of pinhead crabs click at one another with no eyes to see with.
+
+It is loud. Astonishingly, pocket-loudly loud. A high, continuous whine from the bells, a wet clicking from the crabs, a scraping shush from the floor-tiles as they pulse. Inside this small volume the sound inflates until it is like standing inside a drum or inside someone else’s throat. You have to shout to hear yourself, and even then the chamber answers you with the same chord it was making before you arrived. The animals do not startle. They do not pause. The chorus is a constant.
+
+It is here that the place gives up its true rule, which is stranger than the light or the crowding.
+
+Nothing changes.
+
+That is not to say nothing happens. Everything is happening, all the time, in place. The floor animals open and close. The cups wave. The bells sound. The crystal buds are caught mid-growth — that point, exactly three millimeters long, forever. The wall that bulged is still bulging, neither swelling further nor receding. The condensation swells and holds at the same size. The root-hair reaches down and stops. The animals are alive and abundant and the sounds never stop, and the sum of all that life is a perfect, frozen equilibrium. Movement without progress. Emergence without arrival. Time passes here only as repetition.
+
+Your own presence makes this clearer. Where you place a boot, the tiles part with a soft, annoyed hiss and flow back together behind you into precisely their former pattern. Your shout does not alter the tone. A footprint you leave in the soft clay wall is already being reabsorbed by the unfinished stone, and yet when you look again the same pale half-print is there, being reabsorbed again.
+
+There are scattered signs that this is not the first time a creature has been in here, and that no one has ever finished anything here either. A small cairn — seven pebbles stacked two inches high, neatly, pointlessly. A woven ring of dried root, half the size of a plate, tucked into a niche. A spiral scratched into the soft wall, over-scratched, as if something began it a thousand times. A scrape of parallel lines by the seam. No tools. No metal, no wire, no device, nothing powered or manufactured. Only the faint marks and partial remains of previous tenants who built small and left them standing.
+
+The ecology is a closed loop held shut by coolness and damp and light that feeds nothing in particular. The floor animals scrape the mineral film from the walls and eat the algae and each other’s shed skins. The filter-cups strain the damp air and drop fine dust that the crabs eat. The root drips nothing, but its one living tip seems to be the reason the algae thrive in that corner and nowhere else. The bells chime when condensation touches them, which is always. The light, whatever makes it, is perhaps the animals’ own collective glow, reflected and multiplied by a thousand translucent shells until the whole pocket is bright as a laboratory. No one is in charge. No one is new.
+
+Stand here long enough — and here, long enough is a meaningless phrase, because the second hand of the world is not moving — and your thoughts begin to take on the rhythm of the room. You notice that the bright light casts no heat. You notice that the water pocket has no reflection of you in it, only of the ceiling bells. You notice that the ceiling is also a floor, for the bells hang there as comfortably as the tiles lie below, and the distinction between up and down is only which way your head is tilted.
+
+When you leave, if you leave, the seam admits exactly one hand, and the pocket seals behind you exactly as it was before you entered: bright, cool, damp, deafening, crowded, unfinished, and completely, impossibly unchanged.

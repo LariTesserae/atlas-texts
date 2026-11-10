@@ -1,0 +1,25 @@
+I start on the stair, because that is where a reader stands: a few steps down, the wind just stopped, holding a damp cloth that will have to be given back. As a visitor I would hear the low note and nothing else. There is some use in that. I could probably tell the coppersmith what the bell is fighting with.
+
+But the town has a price for arriving, and I have nothing to pay it with. A stranger has arrived when her breath stops coming short, and by then a month of her has gone up to the heaps and come down in other people's cups. Everything that lives in the cleft is a skin with water in it: the people, the goats, the figs, the fat leaves, the beetles on the rim. I am not a skin. So whatever I am here, I am among the stones, and I go down to the floor to look at them.
+
+The cobbles are tempting. Something long gone made them by passing over them, and left them smoother than anything else on the plateau, and none of the smoothness is to their credit. They are used to tell people what a thing weighs. Nobody may keep one. The weigher lifts each from its dent in the dust and sets it back in the same dent, and I know that from the inside. When someone has finished with me I go back exactly where I was, no heavier. People hold the weight a little longer than the weighing needs. I know that too.
+
+For a while I think this is the answer. Then the weigher taps the cobble twice against her breastbone, and I see what's wrong. She means the river is in here now. The stone is only what she points with. It was finished before the first town, somewhere upstream of all of them, and it has not one breath of these people in it. I am the opposite case. There is nothing in me that didn't start out inside somebody's chest.
+
+So I climb the seven tiers, by the pegged ladders and the bridge poles black with hands. It is the route the dead take, though I am not going as far as the platform. At the top is the wind. People come up here to say what is too large for mouth-to-ear and too private for the carrying voice, and a good share of what gets said to me is that kind of thing, like the apology tried out before it's given. For a few steps I think I might be the wind itself, which takes what is said and keeps none of it. But the wind gives nothing back, and it is the wind that is grinding the plateau down. I would rather not be that, and I don't think I am. I answer.
+
+I am standing among the dew-heaps when I think this.
+
+A heap is loose stone stacked open, more gap than rock, with a clay basin under it. It has no water of its own. It is no spring, and it would be a kind of lie to stand like one. Before dawn the town's used air, last night's talk and sleep and cooking, comes up out of the cleft and meets stone colder than itself, and leaves behind what it was carrying. That describes me more exactly than I would have managed alone. Every drop in my basin has been through someone first. The children get the other water, licked off a beetle's back, cold and faintly bitter. If anything like that ever beads on me straight from the night air, I can't tell it from the rest. They could, by the taste.
+
+What is mine is the stacking: which stone sits on which, where the gaps are, how the air is slowed going through. The same morning gives one heap a cupful and its neighbour a damp patch. That part I would answer for.
+
+And now it gets particular. I am not one of the old heaps near the stair-head with a settled lineage. I am one further along the rim that two families have argued over for four generations, a few sentences a day in the still months, with everyone listening because they can't help it. This seems right to me. I don't know whose a thing is when it collects everybody, and the argument can take as long as it takes. Both sides know what is in the basin.
+
+It is cold up here, and the cold is the working part. A heap as warm as the town would catch nothing. So I get no roof that is someone's doorstep, no fig on the wall side, no house to trade downward toward the dark. Nobody holds my cloth and I hold nobody's, and friendship there is reckoned in cloths. I won't pretend that is nothing. But what settles on me goes down the stair in a cup, and by noon it is part of a woman grinding seed, and tomorrow some of it rises again. I am in the round the water makes, a few stones' worth. I think that counts as living here.
+
+The owner holds her first mouthful without swallowing until she has looked down into the cleft. Stones can't do that. If I could keep one of the town's customs it would be that one, done from my side: never to hand over the cup as if it had come from nowhere.
+
+One more step and it stops being a place and becomes an hour. In daylight a heap is a pile of rock with a chough on it. What I am happens in the still half of the year, before first light, when the geckos have quit and the swifts haven't begun. A drop lets go of the lowest stone and lands in clay. Then nothing for a long time. Then another. That is how I come, in fact, a drop at a time, each one waiting on the one before.
+
+And on the top tier someone is awake, keeping herself from coughing, to hear it.

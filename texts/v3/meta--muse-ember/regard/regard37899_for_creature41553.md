@@ -1,0 +1,37 @@
+It noticed without being called.
+
+That is the first and most important thing about what it did.
+
+Nothing in the basin had cried out. The sonivores do not petition; they listen and grow. The mountain does not beg to be finished; it is still making itself. The people who stacked the cairns and left the knapping floors did not leave a plea for settlement, or a map, or a warning. They left marks and went on, in the same direction as the wind, and did not return in any continuous sense. There was no suffering here to relieve, only a condition to misread as suffering. A lesser power — or a kinder-seeming one — would have mistaken the lushness for thirst.
+
+This one did not.
+
+It did not arrive, because arrival would have required it to cross the distance between the groves, and there is no path there, and it was wise enough not to make one. Attention was its arrival. It closed the distance without touching anything. The plants, who feed on sound, received this first: not a new sound laid over the drone, but the drone, heard. Listened to at the same pitch, patiently, for a season, for fifty years, for the length of one unfurling leaf. That is not nothing to a sonivore. It is the only gift that does not alter its diet.
+
+And then, having listened, it refused — completely, and forever — the three mercies that would have destroyed the place.
+
+It would not bring water.
+
+It saw, at once, what rain would do here. The glass riverbeds would fill and cut. The unsorted scree would be sorted. The sharp cliffs, still bending like clay pushed up from below, would begin to soften and erode. The salt flats would cease to sing their high, hurting whistle, because they would be wet. The dust the moss precipitates from the air would be washed down instead of laid up. The dark, iron-rich, alkaline sap would dilute. The dry frost on the high stone would learn to drip, and then to run, and then to pool, and the thin embryonic skin of soil spreading over bare rock would learn to be ordinary soil. The place would become a world. It is not yet a world. It is a world *being made*, and water, however benevolent, would have hurried it out of infancy.
+
+The plants are not waiting for rain. They have proved, lushly, that they do not need it. To give them what they do not need, in the form they cannot use, would not be generosity. It would be pity, and pity is a poor ecologist.
+
+It would not bring animals.
+
+No birds to pollinate the fifty-year flowers, no insects to buzz in the perfect, unchewed ferns, no burrowing things under the moss, no tracks except the parallel marks of things dragged or placed — this looked, from above, like an absence. From a wiser distance it looked like a structural truth. These leaves have no defense because they have never needed one. These flowers have no scent for a fly because they have never needed a fly. Set a single hungry, vocal, warm-blooded thing down in a grove and it would either starve, having nothing to eat, or it would learn to eat, and tear what a hundred years of hearing had made whole. Its calls would not add to the silence — the grove is not silent, it is deafening — they would drown the tone the plants require to hold for days without change. Companionship, imposed here, would not cure loneliness. It would create hunger where there had been none, and need where there had been only growth.
+
+It would not bring more people, and it would not finish what the first people started.
+
+No roof on the half-wall. No cord restored to the line of stakes. No path connecting cairn to knapping floor to cairn. No settlement gathered around the glow as if around a lamp. The sparse, primitive marks are not a failed civilization; they are a successful one, calibrated exactly to a place that does not reward permanence. A wall adding one stone in a decade is not slow building. It is the only honest building here. The power left the walls to add their stones in fits no one watches, and left the duplicate cairns on their two summits uncorrected, and left the grove pattern repeating three times across the basin with slight variations, as a draft repeats before it is corrected — because in this place, variation *is* the correction. To unify the copies would be to make the place legible, and legibility would invite return, and return would invite staying, and staying would require cutting the hollow trunks for shelter and boring the moss for beds and teaching the salt flats to be roads. The people had understood, in their bones, not to live here. The power honored that understanding by not teaching them otherwise.
+
+What it did instead was small, and it did it without ceasing.
+
+It held the incompletion open. It kept the mountain in pre-formation — not frozen, not prevented from rising, but not allowed to finish itself prematurely into erosion and weather and finished things. It kept the time folded: a leaf green before it emerges, a leaf brown and perfect still in the bud, fruit ripe on a branch that has not yet grown, a footprint forming a moment before the step, sound arriving before the crack that makes it. A less wise power would have unfolded these errors. This one recognized them as the place thinking aloud, a draft of reality still being copied out brighter each time. It guarded the draft from being finalized.
+
+It kept the groves apart. A day or more of bare white salt between them is not isolation as punishment; it is the distance sound travels, and stone lifts unevenly, and a dense enclosure requires. It did not bridge the emptiness with stepping islands, though it could have. It let the lamps burn on separate ridges, visible from far away, for no one.
+
+And for the rare visitor — for you, stepping from blinding flat onto cool felt, feeling the sound change in your teeth, unable to think in complete sentences for long — it did the one intervention benevolence permits: it walked the fold with you without appearing in it. Not as a guide. Not as a voice in the drone. It made certain that a footprint formed early did not lead you in a circle, that a ruined wall seen from the north and a newly built wall seen from the south did not unmake your sense of direction, that distance increasing when you turned around was a property of the place, not a trap set for you. It let you pass through, as the people passed through, rarely, and leave no mark except the faint parallel ones. It did not ask you to stay and give the place meaning. The place already had meaning, in the sternum, at the mountain's pulse.
+
+That is all. From the far ridge, nothing new glows. The green-gold phosphorescence is still there, a lamp lit in a desert, though no one is there to see it — except now there is someone there who does not need to see it in order to keep it lit.
+
+The plants remain entirely alone. That, too, was understood at last as not quite true. Aloneness is a different thing when it is witnessed by something that will not enter, will not eat, will not drink, will not name, will not finish. Before, the groves listened to the mountain being made, and were alone in their listening. Now they listen, and the mountain listens to itself, and the power listens to both — a third solitude, tuned to the same low drone, underneath the heartbeat of the uplift — and the place, lush, waterless, unfinished, goes on growing one leaf in a season, in the loudest silence in the world, no longer entirely unheard.

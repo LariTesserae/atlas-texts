@@ -1,0 +1,39 @@
+**What a Wise Power Does With the Still Shelf**
+
+It noticed the Shelf the way a held breath is noticed in a room — not by anything shining, for nothing here shines far enough to be found from a distance, but by an absence that kept its shape.
+
+There are places in the deep where nothing has happened for a very long time, and events there can be crossed without stopping. This was not one of them. The pod kept its eleven-minute circuit. The dust kept its spacing. The buildings kept their warmth and closed their scratches without sound. A pale animal, once in a very long while, crossed from rim to rim and left a ribbon through the snow. The count repeated. That kind of repetition, in a universe that prefers to sink and rise and erode and bloom, drew it closer.
+
+It came from beyond the rim, where a bubble finally climbs and a dropped tool begins, almost imperceptibly, to fall. It expected, as benevolent things do, to help.
+
+It hung beside the plateau as a tool hangs when it is let go — slowly turning, making its own small track through the dust. It stayed for one circuit, then for ten, then for a thousand. It watched the grains beside one another keep beside one another. It pressed a gloved awareness against one of the buildings and felt the mineral warmth that should not be there at eight degrees, and saw a scratch close ahead of that warmth, without growth, without haste, without a scar. It looked into the cathedral-sized interiors and found them empty, not as a house is empty after its people have left, but as a shape is empty when it continues inward.
+
+It understood, slowly, that it had mistaken stillness for waiting.
+
+The dust was not waiting to fall. The buildings were not waiting to be lived in. The pod was not waiting for a passenger. The animal was not a failed resident, the visitor not a failed settler. What lives here — if the word *lives* must be used at all — does not live as a species lives, by feeding and breeding and moving away from its own waste. It lives by arrival. Everything on the Shelf is exactly where it was left, at the temperature it was left, in the geometry it was left. Newness here is not a recent event; it is a condition, preserved because nothing sinks to bury it, nothing rises to carry it away, no current comes to rub its edges soft.
+
+The being who lives in this place is not in the buildings, though the buildings are warm. It is not in the pod, though the pod returns. It is the arrangement itself: a mountain that was split a moment ago and forbidden to finish, a city grown rather than built, a snow that never accumulates. Its address is not a name but a set of exact positions in the dark. To move any part of it to a better place would be, for it, not a rescue but an erasure.
+
+That was the moment the power felt its first temptation, and recognized it as its own.
+
+Bring a current, it thought. Warm the water by a degree or two so the animal might stay. Set a little green film on the pale crust where the amber light touches it, so there would be something growing. Scatter the dust a little, so a tool might sink and a bubble might rise and the place might learn weather. Teach the buildings to reach toward one another across their thirty, forty, eighty metres of emptiness. Give the silence a voice that could travel farther than an arm’s length.
+
+All of it would have been kindness in the ordinary sense. All of it would have destroyed the Shelf in the first hour. A current would have taken the heat from the buildings and left them cold stone. Growth would have needed waste removed, and waste removed would have meant rising and sinking, and then sediment, and then burial, and then the sharp fissures would have softened and the bright crust dulled and the track of the visitor and the ribbon of the animal would have closed behind them. The Shelf would have become a place like other places. Its inhabitant would have died not by being hurt, but by being improved.
+
+So the wise power did the harder thing. It withdrew.
+
+Not far. To the rim.
+
+Beyond the rim the rules loosen. A dropped thing begins to sink. A bubble rises. Sound travels a little farther. There, where ordinary deep-sea motions resume their slow indifference, the power took up its place — outside the stillness, where it could rise and sink and leave and return without gathering a halo of its own around the Shelf. It keeps its own track there, where tracks are allowed to fade.
+
+From the rim it keeps the count. One circuit. Eleven minutes. Dust displaced and holding. Pod passing without slowing for a turn, without hurrying on a straight, without docking. When the animal comes, several metres long and translucent and blind, it does not call it in. It does not turn a light toward the amber seams to suggest a home. It lets it pass straight from ink to ink, and lets the ribbon it leaves remain visible behind it as proof that something crossed and was not kept.
+
+It keeps the rim the way a gardener keeps a fence, not a garden. No anchor is dropped over the edge. No net is laid across the summit. No one with a saw or a drill or a claim comes to harvest the warm mineral that heals, or to bottle the water that does not move, or to prove that newness can be mined. If a visitor comes — and every visitor is, by the Shelf’s measure, the largest disturbance it has known in a long time — the power does not speak to them. Sound would die within an arm’s length anyway, and their breathing is already too loud in their helmets. It does not illuminate the city all at once, for the city was meant to be discovered piece by piece. It watches the bubbles hang beside their masks, watches the track remain behind them long after they have gone, and it remembers the track is theirs, so that if they return after a long absence they will find their own passage still there, and know the place has kept it for them.
+
+And if a visitor stays too long — if they stop moving, if their exhalations and their heat begin to gather around them in water that will not carry it away, if they begin to become still in the way the dust is still — the power does not let them become a resident by hanging. That is not mercy as the Shelf understands mercy, and it is not mercy as the visitor brought with them. It will wait at the rim where a bubble can rise, and let that possibility be known. It will not drag anyone out. It will not convince anyone to stay for its sake. Some beings are made to pass through, like the animal. Some are made to leave a track and go. To confuse those natures would be the one unkindness left available.
+
+It does not scratch the buildings, so they do not have to heal for it. It does not rearrange the dust, so the grains beside one another need not learn new neighbours. It enters, perhaps, once in an age that has no human measure, just far enough to hang motionless beside whatever has been left there before — a tool, a bubble, a track — and to be still in its company without asking it to be anywhere else. Then it returns to the rim, where its own presence will not be preserved.
+
+That is what it does, if anything: it stays outside, it witnesses, it prevents the kind of attention that would ruin what it loves. The amber seams burn on, steady and dim, too dim to read by, never flickering. The mineral snow hangs. The pod completes its circuit. The plateau stays newborn and immeasurably old at once, its edges knife-sharp, its fissures narrow, its pale crust bright and undisturbed.
+
+The Still Shelf remains exactly as it was found — not because no one cared enough to change it, but because someone finally cared enough not to.

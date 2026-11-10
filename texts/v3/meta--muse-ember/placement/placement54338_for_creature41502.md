@@ -1,0 +1,33 @@
+If I am here at all, I am not in the middle.
+
+The middle is the most sunlit part, for an hour around midday, and it is empty. Nothing holds itself in the water column. Nothing skates on the surface. Nothing passes over the silt below. I would not be a thing that moves through this place, because there is nowhere for movement to come from — no current in, no current out, no wind that gets past the rim. I would be a thing that has already arrived and stopped.
+
+I try, first, to be on the shelf.
+
+There, where the water meets the silt and the margin is least steep, are the sedges. Five or six tussocks, grey-green, no higher than a knee, standing in a broken ring. For a while that fits the shape of a self. No sway, because the wind passes over the top and never enters. No thickening, no mat forming though there is open silt a hand's breadth away. Rooted in water that does not change temperature with the season, that offers almost nothing, and growing at a rate you could not measure between visits. It has the look of a plant that came once, long ago, and has simply not died. Barely managing, and barely managing is enough to continue.
+
+It is close, but it is not me. A sedge is separate. Each tussock is confined to the exact dampness it can tolerate, and stays there, a stem and a root and a small brownish head now and then that does not seem to lead to anything. I am not a stem. I do not stand up out of the water. I do not keep to the margin where the silt is just awash. I keep going a little farther in, where the slope gives way to the submerged bench.
+
+I try, then, to be above the stain.
+
+On the north-facing wall, where the stone stays shaded and damp, the moss is a skin, no thicker than felt, bright green and then abruptly not green. The edge is cut off by a rule — wet here, dusty pale grey there — and I could live at that edge for a while. Life without soil, fed by dust over the rim and minerals out of the stone, growing at the rate of stone, making spores that mostly fall where they will not keep. A patch the size of a hand may have taken years.
+
+But the moss is dry in the way this place is dry: above the waterline, on the benches that pale out. It does not get the water at all, except the dampness of the wall itself. I am under the water. The cold does not change as I go down, so I do not climb toward warmth. I go down, until my ankles ache and then do not ache any more, until the straight edge of the bench passes under me, visible through the clarity, and my feet find the flat floor.
+
+Five or six metres of clear water above me. Flat silt in thin horizontal bands — grey, darker grey, rusty brown — laid down as regular as a process. Small stones scattered sparsely. Much more space than objects. And on the stones, on the damp stone below the waterline, on the one flat made thing down here, I am.
+
+I am the dark crust.
+
+Not a bloom. Not a scum across the surface. That thin, rusty, faintly iridescent skin in the sheltered corner is not me — that is iron oxidising where the groundwater meets the air, chemistry re-forming in the same pattern. I do not spread across the surface. I do not grow in the water column. I grow on whatever stays still long enough to be colonised, and I stay where I grew.
+
+Most clearly I am on the square slab of concrete under a metre of water. Its edges were sharp once, its aggregate shows through the grey, it has four drilled holes. All of it is softened now, darkened, covered in the same film as the boulders that fell from the wall long ago. I make them look older, as if age itself were a growth. On the slab I am not in a tussock, or a patch. I am the same crust on the slab and on the stone beyond it and on the stone beyond that, with no centre I can point to. Wherever something is still, and submerged, and gets what little light gets through, I am there, thinly.
+
+That is my day. For most of it the pit is in the shadow of its own rim, in that even, cool, room-like light that never quite leaves. The sun only finds the centre for a short time around midday, a pale patch moving across the flat surface. And only then, through the clear water, does anything reach the floor. I photosynthesise in that patch, for that hour or two, and then I stop. That is my season, every day the same. I do not move toward the light. The light moves across, and passes, and leaves me again in the shadow that is not quite dark.
+
+I do not need flow, or warmth, or richness. The water is the surface of an aquifer, exposed where the pit was dug down to meet it. It is cold all year. It is slightly acidic and loaded with dissolved iron from the spoil, which is why the silt is banded with rust. The plants in the margin barely grow and do not shed much that could rot. Nothing eats me. Nothing much dies to enrich anything. I need only a stable surface to hold on to, light that arrives predictably, and water that does not move enough to tear me away. The pit provides all three, and no more.
+
+I do not breathe white in the cool air. Drops fall from the wall now and then, a single tick, and a ring expands slowly and fades without reaching the far side. Steps in the silt are thuds the water swallows. The hum from the substation and the pylon beyond the rim is muffled by the walls, softer below than a breath above. I hear none of that as an animal would. I am not an animal. I have no edge like the moss, no stem like the sedge. I am laid over the top of a finished geology: a green skin here, a grey-green tuft there — they are not me — a black crust below, on the stones.
+
+And I do not change. That is not a failure. It is equilibrium, arrived at long ago. Erosion is finished. Chemistry is finished. The mineral stain stays at exactly the same height all the way around. The iron film breaks and re-forms in the same corner. If you waded in again in November, or in June, you would find the same crust on the same slab, with its four holes, the same thickness on the same boulders. My time is not the time of growth and decay you see in the grass and bracken on the higher ground. It is the time of the pit itself.
+
+So you would not find me by looking, straight, at the water. It is too clear, and too empty, and it would make you think nothing is in it at all — which, in the way that matters, is true. You would have to let your eyes go small, and stay at the edges, and go under, and notice the colour in the wrong place: not green on the wall, not grey-green on the shelf, but dark on the concrete, under a metre of cold, still water, waiting for the pale patch to come across the centre again.

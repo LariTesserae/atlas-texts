@@ -1,0 +1,33 @@
+The people are the easiest to count and the hardest to find. There are forty thousand of them, and on most days you could stand in the middle of town and see three.
+
+Most came up from below as adults and can tell you what they were doing the year the stone under their kitchen was laid. They mention it the way people elsewhere remember a building going up. Some have a step they think of as theirs, a course that went down in a year that mattered to them, and now and then they walk out to stand on it.
+
+You can tell a resident from a visitor by the feet. Residents cross sheetwater with a short flat stride that barely raises a ripple, and visitors splash. Everyone here is first seen at a kilometre, as a mark on the horizon, so they know each other's gait the way other towns know faces. A greeting starts with an arm raised at five hundred metres, and then there are several minutes of walking toward each other with nothing to do. They are comfortable with that, as with most things that take a while to arrive. On still mornings a voice carries over the water farther than its owner can see, so outdoors they speak low, and privacy is a matter of knowing where the wind is.
+
+Ask why the buildings stand so far apart and you'll get several answers. Some like a horizon in every window and some like the walk. The older ones say nobody knows yet where the rivers will go, and it seemed wrong to be standing in the way.
+
+They can do almost anything, and that has to be kept in mind about them. They drew their houses out of bedrock and can lean a storm off its course. Anyone with setter training could cut a drainage in a morning, branched and graded and indistinguishable from ten thousand years of rain. The rule isn't taught to children because children are a danger. There is nothing to dig with, and the rock doesn't take a heel, as every child has privately tested in slush. It is taught early so that it's already in them when they are given hands that could.
+
+So most of the town's work is watching. There are surveyors and goose counters. There are botanists who walk the corners of the grid, and people who measure lichen coins they have known for thirty years and speak of by plot number, fondly. The setter crews watch too. One operator describes her job as nearer to keeping company than to driving. The setter proposes, she agrees or declines, and the stone continues. She has stopped asking it how.
+
+Falcons sit on the housing above her head. In the dry weeks the grazers stand in the mist right under the setters, licking the newest course, unafraid. Nothing there moves in a way an animal would recognise as doing something.
+
+By number, though, the plateau belongs to the shrimp. They hatch, breed and die within weeks in water a finger deep, and their eggs lie on bare rock all winter and go wherever the sheet drifts. They are the only residents who have been here for hundreds of generations. The oldest goose tradition is perhaps fifteen generations deep, and the foxes are on about their twelfth. Nothing on the plateau has an ancestor buried in it.
+
+A few people have died here, and most went back down, since there is no soil that wasn't carried. A small number asked to wait. Their ashes are kept in a long low building on the east side until there is a river, and the request is on file with the surveyors, which everyone agrees is the right office.
+
+The town keeps goose time. When a flock lifts, people stop mid-sentence because they can't be heard, and they have come to like being interrupted by the one thing here that will do it. The waders follow the shoreline, and the shoreline follows the wind, so a household can wake to find the shore at its door with the birds working along it. People in the tall buildings find wader wings on their ledges and leave them there. Every household knows whether it has a fox. Feeding them is discouraged and common.
+
+The nests matter more than they look. A ring of feathers and shrimp casings left over winter holds a little wet and a little dung and a few grains of lowland grit. In some of last decade's rings there is moss that nobody planted, a long way from any warm wall. The botanists visit these and don't touch them.
+
+The town keeps an unwritten ledger in which what it intended doesn't count and what got away from it does. The straw is put out on purpose, so nobody is proud of the straw. The voles came in a sack, which makes them a mistake, and when someone proposed removing them the meeting went the other way. The grid going ragged counts. The geese's gravel counts, because the geese carried it for their own reasons.
+
+By the same ledger the people have left themselves out. Nobody crosses by the same line twice if they can help it, which is why there are no roads. Children coming home from the lowlands empty their pockets of pebbles at the top of the escarpment, into a bin kept there for the purpose. Most of them ask why the geese are allowed. Nobody has yet been given a good answer.
+
+The surveyor who found the groove had walked the southern lip for eleven thaws. She found it with her palm, because the combed grain runs one way and this ran across it. She lay in the water beside it for an hour before she set a marker. She has said since that her first thought was that she had done it herself, with a boot, some earlier year. Nobody can settle that. The town has decided it can live with not knowing, and she isn't sure she can. She doesn't go out to see it. She still walks the lip after every thaw looking for a second one, because that one would not be hers.
+
+The children are the ones who complicate the ledger. For everyone else, the ground is something that happened during their lifetime. For a child born here, the stone under the house was there first, like any ground anywhere. They can still go north and stand on rock younger than they are, and they do, but it doesn't mean to them what it means to their parents.
+
+They have never thrown a stone. They can tell a goose flock's size by its sound. The first time they are taken below and hear a brook running over gravel, they stop on the path and have to be led on. Then they come home to a place where water says nothing, and it doesn't strike them as waiting for anything. They live here the way the shrimp do, without any thought of having come.
+
+When they are taken out to the southern lip, the adults stand at the ring of markers with their hands behind their backs. The children get down on the wet stone and put an ear close to the groove. It carries a current about as wide as a finger over a few loose grains. Whether that makes a sound is disputed. The children say it does, and the adults, who made everything else here, take their word for it.

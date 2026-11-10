@@ -1,0 +1,23 @@
+The country here is drained fen, flat and lower than the river that crosses it, and the place sits in it like a green lump, about an acre inside a ring dyke. From the field it looks like one enormous shrub. You hear it before you can make out any detail: a bang, then six or seven wheezing breaths, then another bang.
+
+Inside the dyke there is no ground. The floor is stems laid over stems, willow and alder gone horizontal, fig roots as thick as thighs, hop bine and bindweed and ivy stitched through everything, and moss and liverwort packed into whatever gaps were left. It gives slightly underfoot, like a mattress. Press your heel in and water rises around it, warm as a hand. Somewhere below, three or four metres down, is the peat the plants started in, and no part of them seems to need it any longer.
+
+The engine is in the middle. It is a horizontal single-cylinder gas engine, hit-and-miss governed, with a flywheel taller than a man and a maker's plate too scabbed to read. It fires once, coasts on the wheel's weight through several turns with the intake sighing, and fires again when the speed drops. The engine house it stood in is gone, except that its shape is still there. Trunks came up along the walls and kept to them after the mortar failed, so the room is now made of wood, with a doorway and two window gaps the trees have never closed. Bricks sit in the bark here and there like teeth in a jaw. The engine's bed stone was left behind long ago. The machine rides in the root mass and stays level, held the way a stone is held in a fist.
+
+The gas pipe runs down into the mat. The iron lasts for about a metre, and below that the pipe is a hollow stem of the same bore. There is a marsh smell at the intake, and that is all the explanation the place offers.
+
+The belt is a loop of bine with no visible graft and no root anyone could point to. It runs from the flywheel to a pump and on to a small dynamo. On the slack return it puts out leaves the size of fingernails, and the pulley shears them off, so the floor beneath is ankle-deep in green shreds. Where the shaft turns in its bearings, a cut stub of fig rests against the journal and bleeds white latex onto it, a little with each revolution.
+
+The pump was built to lift fen water over the dyke and into the river. The outfall grew shut long ago, and the water now goes up a riser that is iron at the bottom and trunk above. It is let out high in the canopy along branches grooved like gutters. From there it comes down everything. Every leaf drips and the trunks shine with it. It hasn't rained in days, and the whole grove is wet from the top. The water sinks through the mat to the sump and is lifted again.
+
+The canopy is thin enough that the daylight under it is ordinary, only greenish. A single lamp hangs from a bracket by the doorway, a carbon filament in a wire cage. It swells orange on each firing and fades through the coasting turns. By day you have to look for it. At dusk a few moths find it, and they are nearly the only animals here. There are some beetles in the sump. Birds cross the fields and go around the grove. Cattle graze up to the foot of the dyke and no further.
+
+It is the noise that keeps them out. The exhaust bark comes through the mat as well as the air, and the whole floor acts as a drumhead. You feel each firing in your knees, and the leaves all flinch together. Between firings come the valve clack, the slap of the bine belt and the water falling. To speak to someone you have to lean in and shout.
+
+A few other objects remain. Narrow-gauge rails emerge from one trunk and enter another two metres on. A sluice wheel stands on its spindle, turned a few degrees each decade by the wood that grips it. A coal shovel has been lifted to head height.
+
+After a while you notice the twining. Hops and bindweed wind in opposite directions everywhere else in the world. Here every climber winds the way the flywheel turns. The internodes are all one length near the engine and grow irregular toward the edges.
+
+One strip stays bare, a boot's width, from the dyke gate to the oil cups. Nothing grows across it, and nobody has been seen to walk it.
+
+Frost stops at the dyke. In cold months the engine fires once in a dozen turns instead of once in seven, and the dripping thins without ever stopping. The grove has not grown or shrunk in living memory. It ends where the thud can no longer be felt through your soles. A few paces beyond that, the hop shoots in the hedge twine the ordinary way again.

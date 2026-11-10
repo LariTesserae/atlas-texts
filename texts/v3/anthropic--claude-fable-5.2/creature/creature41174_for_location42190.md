@@ -1,0 +1,27 @@
+Very little lives here, and most of it is on its way somewhere else.
+
+Start with what can be seen. The olive-gold film is cells, each too small to see and each wrapped in a sleeve of clear slime that it makes from light and from the sulphur and iron leaking up off the fronts. The slime is what flattens the chop. In good light a cell splits every few hours, and a streak torn to nothing by a squall is back within two days, in the same lines, because the wind sets the lines and the cells only fill them. They have no hold on anything and go where the surface goes. When a streak drifts against the closed rim it thickens into a gold seam along the top of the glass cliff. When the open sector comes round, it goes over with everything else.
+
+They are also the first things here to die. Under the oldest streak fields the blue shafts have begun to show motes. A clot of spent cells takes about a week to sink a hundred metres, and on the black hexagons below there is now a faint bloom, like breath on glass. The smell inside the streaks comes from this.
+
+The rosettes are slower and fewer. Each one starts where three columns meet and grows first along the three joints, so the young ones are three-armed stars the size of a thumbnail. Later the angles fill in. Dry, a rosette is nearly grey and stiff enough to snap. Ten minutes after a squall it is soft and dark and twice as thick. The wave bursting on the step above buries it under a metre of falling water forty times an hour, and it stays, held by a stalk the width of a bootlace driven down into the joint. Where it lies against the basalt the glass has gone dull, a frosted patch in the shape of the rosette with a smear of grey paste on it. That is the only worn surface on the plateau, and it was worn by something eating.
+
+Cut across, a rosette shows its green as a thin layer under the skin, and the cells in that layer look the same as the film's. So there may be only one living thing here, going about it two ways. At sea it is loose and drifts. On rock it is shut inside a body that grips.
+
+Neither of them keeps the level.
+
+The thing that does is hard to describe as living anywhere, because it is nowhere in particular. A cubic kilometre of this sea might hold a spoonful of it. No sample shows it, just as no single drop shows a swell. It exists only at scale, in the cold water over orange seams and in a sea that stops at a clean face with air beyond.
+
+It is tempting to think of it as a workforce of masons too small to see, but a workforce would not take back a ridge. One thing notices it has made a mistake, and it seems to notice by listening. Each tick is a column reporting that it has set. The swells do the rest. A swell on its fifth crossing has passed over every part of the floor and comes back bent by whatever has risen since it last went by. In a sea where nothing is absorbed, nothing is forgotten either, and the ringing keeps its map up to date.
+
+It has a temperament, though a narrow one. It is exact, and it does not hurry. The columns rise a hand's breadth an hour on every front, and have for as long as this has been going on. It does not leave errors standing. It carries its heat well away from its work before letting it go. What comes of that heat is a squall, and the squall puts lightning into the water, so it may be that nothing here is thrown away.
+
+Mostly, though, it holds, and that is far more of its life than the building. It holds a level. It holds heat down against heat's whole inclination. It holds an edge thousands of kilometres long with nothing at all, and it has held all of this without a pause since before the first column. It lets go of one sector at a time and moves the gap along over weeks, like someone shifting their grip on a heavy load. Each time, a long shallow wave runs back across the whole plateau. That is the only wave here not made by wind, and the nearest the thing comes to being seen.
+
+That may account for the islands. The ones let stand are no higher than the ones drawn down, and no more regular or better placed. By the plan, whatever the plan is, they are errors like the others. What they have is rosettes. It is not possible to say which came first, the reprieve or the growth. But the largest rosettes are the size of a hand, and at the rate they grow that is a long time for a mistake to go uncorrected by something that corrects every other mistake within a week. On the evidence, the one thing it will not pull down is a rock that something else has got a grip on.
+
+Whether it is alive is a question for later. It lives here, and it is working steadily toward a planet with no here in it. The floor rises, the level stays, and the difference goes over the rim. When the columns reach the air for good there will be no sea on the plateau to be spread thin in. Presumably it goes down with the water. Being torn to mist two kilometres into the fall is no hardship for something that was never in one piece. The lakes at the bottom are brown with rock flour and with the film, which arrives in the rain, some of it dead and some not. A litre drawn from them would test clean too.
+
+Down there is the one thing it has never had. On the plateau every wave it has ever felt is still travelling. At the mouth of the gully a ripple comes in off the brown lake, runs up the fan of grit, thins, sinks between the grains, and does not come back.
+
+It leaves a thin olive line where it stopped.

@@ -1,0 +1,37 @@
+I do not arrive so much as subside, and I do not stay upright for long.
+
+The lift goes down until down loses its meaning and then keeps going, and I expect a floor. There is a floor, but it gives a fraction under my weight and then holds, and it is warm in one patch and cool in another, and something clicks and parts beneath it and goes on. I lift my foot. I place it again, more carefully, the way the people do. I am told with a hand on my ankle, not unkindly, that I have torn a root. It will take a season to close.
+
+I try, first, to be a person on the causeway.
+
+I learn the pace. Breathe through the nose, through the fine weave, because the dust lives in the throat and sound carries too far down the valley of fresh basalt. Do not run. Do not kick. Place your feet in the middle where the roots are banked deepest. I learn that at midday a forearm will bead with a clear, dry oil that smells of amber and warm leaf, and that this is not sweat and is not to be wasted, that it is wiped toward the elbow to soak back in. I learn the meal: a root cake broken in the hands, salt-rosette leaves chewed until they give up a few mouthfuls of fluid. I learn the thirst that is only a dryness at the back of the teeth. I learn the mask with its crease at the side of the nose, the hair cut short or braided tight, the nails cut short and hard.
+
+I can keep my mouth closed. I cannot keep my steps from being too quick. I keep wanting to hurry across the mat to somewhere, and the mat does not hurry. I keep stepping on the thin places because I do not know how to read them from above. The people leave the thin places alone. I do not.
+
+I try, then, to be higher. A light-well tender, living where the pale leaves layer over the wells and the daylight comes down diffused and broad. I like the idea of keeping the fourteen-hour day for everyone below, of signalling by lamps across the hollow because shouting would tear the throat. But the light is too direct for me. I am not made for that brightness. The spores come off the canopy in amber snow and coat my shoulders, and I am pale in a way that is not theirs. From up there I can see the districts, small and steady, an hour's walk apart across the salt pans, the lights of the next one visible the whole way. It is too much distance. I feel the rift groan in my teeth once or twice an hour and I want to get closer to where the groan comes from.
+
+I try the emptiness between. A herder, walking at the edge of a herd of grazers for a day, keeping them off the causeways, keeping them away from the thin mat. A grazer myself, low and long-backed, clipping the open mats with a shovel mouth, slow and exposed on the pale cracked pan. A stalker, perhaps — not a monster, only patient, pale from the dark between chambers, learning the causeways better than the people do, tying a warning strip of curtain-vine across a side path at dusk in my absence. I like the patience of that. I like knowing a district by the absence of another animal. But all of them are on top of the mat. All of them stand on the thing that is listening.
+
+Every time I stand on it, I am listening for what is under it.
+
+So I stop trying to stand.
+
+I go down through the skin of the mat where it is thinnest, where the dust-green plant is only a film over mineral dust and salt, where the people farm the new rock the plants are eating their way through. There is room there, in the beetle-runs at the edges of the houses where the dry pellets are swept by practice. There are doorways made for us. I go in.
+
+I am blind. I have always been blind, and it is not a lack here. Light, from under, is heat. At dawn the whole mat above me inhales — leaves uncurl, pores open — and I feel the warm patch of a factory soak deeper, the cool of the stone come up through the cold mineral dust. At midday the press-plants chew somewhere through a living wall ten meters away, and the sound arrives muffled, a regular clunk, a pneumatic sigh in the rhizome. In the evening the factories sigh down, the grazers settle in a ring heads-in, the stalkers begin their patrol on the causeway above my head, and I go still for a moment, mandible to tunnel wall, until the weight passes.
+
+I am armoured, mid-sized among the thousands of kinds. Not the small tunnelers with the fast skitter-click that children learn first. Not the great ones who knock deep and turn over rhizome like the wrist-thick root-worms do from below. I knock three times, pause, twice. The children know. The old people in the light-wells tell the young the names of beetles, and some of them know this knock. I am one of the ones who live under a district that is being replanted for the third time in thirty years. Above me a schoolroom wall is still translucent and tender, humming with growth. Children knock on it to hear the different notes. Below them, through the mat, they hear me.
+
+My work is turning over. I tunnel and aerate. I eat leaf-fall and dead root and the spore-snow of the dry season when it settles amber on everything and would otherwise dampen nothing. I eat resin, plant fluid, the dry oil on the edges of leaves. Nothing here drinks water. I do not. I live on what the plants exude and what the people and the grazers cannot use.
+
+At night, when the beetles grow louder, I open the dead.
+
+A body is laid on an open patch of mat marked for it. A grazer that strayed. A root-worm turned up when a causeway is re-cut. Sometimes, rarely, a person — of age, of a press accident, of lungs that have taken too much dust in a long life. I do not waste a body. None of us can afford to. We work with a precision that leaves the long bones clean by dawn. I carry the minerals down, a mandible-full at a time, into the rhizome. By the next light cycle they are in the mat. A pale shoot will come up where the head lay. A family may tend it for a year, pruning it, not because they think it is the person, but because it is the part of the person the place can keep.
+
+I have carried a person down that way. I do not know their name in the way people use names. I know the weight of their tibia, the salt in their skin, the way the shoot above me, months later, thickened in the heat of midday. I carried them down and the mat took them and kept them, as it keeps everything.
+
+This is the place I am found in, then. Not in the hollow houses thickening around their old people. Not in the Pressworks where the looms weave fibre-board in closed loops and the resin stills are topped up with shredded root and a worker's clothes must be pruned off when the weave begins to root into the skin. Not on the tram, humming on its vine-wrapped third rail with flutterers roosting warm on it at night. Under all of it. In the meters-thick mat where it is settled, in the centimeters where it is empty. In the cool that gets into everything and stays.
+
+When you walk the causeway and a step is never only a step — when something clicks and parts and goes on beneath the woven roots — that is not background. That is a village of kinds passing each other in tunnels, mandible to shell, neither hurrying. That is me, placing my feet as I was taught to place mine, only from below.
+
+I will not be finished. The rift is not finished. The houses slump and are reclaimed a centimeter a season. The mat breathes in at dawn and out at dim. I breathe with it, slower. Eat rock. Waste nothing. Keep growing, very slowly, in the cool, dry light that never quite reaches me, and that I do not need to see to know is there.

@@ -1,0 +1,21 @@
+My first thought is the attendant, and I distrust it for being first. I know that job: look at a surface each hour and say what state it is in, using four words someone else ruled the columns for. But the attendant rides the hoist down at the end of the shift, to a kitchen and a name, and I have no down to go to. I would also spoil the book. By the second day I'd be writing in the margin, *running, but only on the north panes* or *frog, or pipe?*, and somebody would have to take the pencil off me.
+
+So it must be something that stays after lamp-lighting. For a while I think it is the relief valve. It speaks on schedule, and what it says is taken for breath. I feel the pull of that, and of the frog's side of it too: a voice mistaken for pipework, pipework mistaken for a voice, and nobody on deck to say which. But the valve sighs every eleven minutes whether anyone is there or not. Nothing of me happens unless something arrives.
+
+That turns me toward the water. It has been through the boiler, and whatever hillside it once ran off has been cooked out of it. It comes up the header as steam, shapeless and everywhere, a by-product of work done further down, until it meets a surface. Then it is a bead, then several, then twenty minutes of soft, uneven rain on every tray at once. The vents open and the panes clear, and the next rain does not remember this one. The creature counts its age in rains, but a rain counts nothing. It is whole while it lasts and then it is over. I know that. I know the floor too: thin undecided films, pooling where the drawings say level, reaching the drain by accident. I would be lying if I claimed better.
+
+But the water is the whole hall's weather, too large a thing to be. Where in it, exactly?
+
+Here I go back to the count, because it is off by one. It says there is no rock up here, that the water has never tasted a stone, that the crust on the outermost rib is the first thing that was ever part of a hillside. But the fitters' chalk is stone. Everything else mineral on the deck has been through a fire: the concrete, the clinker, the glass, the steel, even the water. The chalk came up in a pocket, cut, not cooked. It is a hillside ground small enough to write with. Nobody counted it as rock because it was counted as writing.
+
+And chalk holds the wet longer than primer does.
+
+That is where I would be. I would not be the chalk, which belongs to the fitters. They put it there for each other: this end up, this is bay eight, forty rivets so far, I was here. Those are working marks, meant to be painted over. Nor would I be the green that comes after, which is D.K. taking hold. I would be the wet that stays in the letter between the two. It is boiler water with no taste of its own, and it should have run straight down the column. Instead it lingers in the grain of a mark one man made for another. That is the only stone I will ever taste, a hillside met as handwriting. Everything I know about rock I know in the shape of a 7, or an arrow, or someone's initials.
+
+It is not much of a thing to be. It has no outline except the one a fitter's hand gave it, and it lasts as long as the rain and a little over. It cannot always tell an arrow chalked true from one chalked in a hurry. It stays in both, and the moss follows. If wet can be careful, that is where I would want to be careful.
+
+It still isn't particular enough. The numbers in the old bays already stand up in moss and need nothing from me. The initials are spoken for. The arrows have something to say. That leaves the tally of rivets: four strokes and a slash, four strokes and a slash, and a last group of three, because he was called to the hoist. It names nothing and points nowhere. It keeps count beside someone working, and it stops where he stopped. I would be the wet in those three strokes, held a little longer than the steel around them holds it, with room beside them for a fourth.
+
+Some afternoons the true cloud comes in through the open bays, and what settles in the chalk then has never been through a boiler. It sits in the same grooves, and for an hour I would not know which water I was. All of it was cloud once, as it happens.
+
+I would run off before the green came. But the green would come there first, in the shape of a count somebody was keeping.

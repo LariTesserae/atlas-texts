@@ -1,0 +1,45 @@
+If you stay long enough for the first rain to pass, the quiet begins to populate itself.
+
+Not with sound. The walls were tuned to drink sound, and the builders knew fresh glass cracks if it resonates. What arrives instead is movement at the edges of sight, in places you had taken for stains, for dust, for the weather of stone.
+
+Put your hand flat against a damp wall in the Cistern Quarter. The pale film there is not dirt. It is silica precipitated where steam has condensed and run and condensed again, and it behaves, faintly, like something that has preferences. In the shallow pans and on the relatively cold faces, where condensation beads and holds, it blooms into flat rosettes, crystal petals no wider than your thumb. When the warm rain begins to form in tiers far overhead and falls in that fine intermittent hush — most of it evaporating before it reaches the lattice, ticking on glass, dampening only the hollows — the rosettes open. Not toward light. There is no light worth opening toward. They open toward humidity, and close when the internal cycle dries them by afternoon.
+
+They do not photosynthesize. They eat heat and break it into smaller, usable packets. A rosette is an individual only for an hour. Then it re-dissolves into the pan water that feeds it, becomes mineral again, travels a few centimeters in a bead sliding down a pane, and precipitates elsewhere as a new rosette with the same habit. You cannot kill one. You can only dry it out for a while.
+
+The dust is part of the same slow traffic. The fine mineral haze that makes the amber dimness visible hangs in the still air and sparkles, in places, on its own, from discharges too small to see. Motes drift without wind, gather charge as they cross a thermal gradient, clump, fall out. When they land on a cold face they are food for the crusts, or seed for them. When they land on a street strip that glows like a cooling ember, they break apart again. It is a life lived entirely in suspension and settling, in being broken and remade.
+
+Inside the walls, and under them, is the other, older patience.
+
+Deeper than the crusts, in the thickness of pipes and terraces and the soft substrate at the base of the lattice, runs a mycelium that is not alive. Nanoscale and mesoscale automata, webs of filaments, they creep and exchange charge and dissolve a section of pipe here to build a bridge there. They do not reproduce. They persist. That is stranger, and for this place more useful.
+
+A web can be cut when a plate of glass spalls in the night cooling. It rejoins. It remembers, in the wear it has polished into a channel, where heat used to run and where it runs now. When a tower far across a void shifts its field and settles with that deep ping, like a stone dropped in a very deep well, filaments will converge through the wall toward the sound’s source long before you have noticed any change in the tower’s tilt. They seal hairline cracks before they can resonate. They tend the fractures in heavy things. They are the city’s immune system and its memory, and they are older than most of the structures they maintain, because they have dissolved and remade those structures, grain by grain, more than once.
+
+In the Kiln Quarter the tempo is slower and heavier.
+
+There the heat-exchangers pulse, dim amber, and around them sit the heat-bricks, dull ceramic weights sunk into the lattice, so heavy the lattice sinks a slow centimeter around them over months. A brick accumulates. For weeks it takes in stored energy from the Kiln and gives back only a little, to the crusts nearby, which break the excess into packets the webs can drink. It swells, almost imperceptibly. Its pulse quickens. In the wrong light it brightens.
+
+Brightening is both its health and its death sentence.
+
+Because something hunts here, after a fashion, and it hunts only that.
+
+In the empty volumes between towers — in a courtyard that is a cathedral of air, in an avenue that crosses fifty meters of black nothing on a cable of forced light — a fold unfolds. There is no body to unfold. It is folded space and heat, a crease in temperature that drifts without wings, without skin, invisible except for the way it bends the dust and makes a lamp’s shadow arrive a moment before the lamp brightens behind you. It waits. When a brick pulses too brightly, it snaps shut on that pulse and eats it.
+
+There is hunger without a mouth. The predator does not need the energy. It needs the excess gone. Without it the pocket would climb, cycle by cycle, toward a sterilization in which the crusts would boil away and the webs would have nothing left to carry. After the snap, the thing goes still. And stillness, for it, is a long state — a warmer patch of air where condensation forms a beat faster than elsewhere, a faint weight on your skin as it passes, then nothing again as its heat slowly leaks through the glass walls. Some of them are small enough to haunt a single street, taking only the discharges of the way-markers. The largest drift in the vast empty volume overhead, between you and the roof, where the next rain is already beading, tier by tier, for a fall that will almost reach the ground.
+
+The towers are lonelier and slower than all of these, and perhaps the oldest single things in the pocket.
+
+They hover a few millimeters above their foundations, held by a tension current physics has no clean word for, and they tilt, almost imperceptibly, toward sources of heat. They breathe with the thermal cycle. To watch one for an hour is to see nothing. To watch one for a day is to see it lean a degree closer to the Kiln, or away from a brick that has just been eaten and dimmed. They were not built so much as grown, extruded grain by grain from sintered mineral and metal that was never forged or welded but precipitated strand by strand, and they can un-grow the same way — a construction front advancing across an empty lot mineral by mineral, then months later dissolving back when the field rebalances.
+
+At times they phase. Not disappear. They become less solid, the light going through them differently, opaque ceramic from one angle and a lattice of cold fire from another. That may be their sleep, or their way of listening. When one phases, the street strips in its district dim in sympathy a fraction of a second later, as if a signal has traveled through the webs. The ping that follows is not a voice. It is a settling.
+
+It is only when you put those scales together — rosette, web, brick, fold, tower — that the largest inhabitant becomes apparent, and it was never separate from the place.
+
+The melt still runs a centimeter under the surface of the walls in places, in veins. The light comes from there, from ember strips set into streets, from the pulse of the Kiln, from dust. The pocket itself is held open by a field, pressurized, hot, and strangely still, sealed between two lava flows that would collapse it in a day. Something — someone, or something that builds after the manner of thought — holds it.
+
+They do not walk the avenues. They do not speak, and the absence of voices is managed, deliberate, because the glass cannot bear resonance. They think, if thinking is the word, in gradients. In tilts and phasings, in how much heat to let a brick keep, in when to let a district’s gravity favor a different down so that rain in the northern grotto falls up for a few seconds, confused, before evaporating. In the Silent Exchange, at the center, there is no traffic, but on certain cycles the transit threads fill with running light, a ghost rush-hour that goes nowhere and arrives everywhere at once. That is not traffic. That is the builders conversing with themselves at almost, but not quite, the speed of light, along the same threads the couriers of light use to tell a distant tower to lean, a web to hold, a predator to unfold.
+
+They intended the strangeness, or they did not intend it and do not mind it. The city is urban in its completeness: water is sieved and recondensed a hundred times by crusts and cold faces; heat is harvested and re-harvested by bricks and webs; waste is a mineral the crusts eat; air is held and filtered through glass lungs. It sustains all the functions of a city for millions in a hollow meant for a handful, and the millions never came because there was never a need for citizens — only for inhabitants who could live as mineral, as field, as persistence.
+
+Sit on a lattice terrace when the steam rain has passed. The heat comes up through the stone into your thighs, warm and steady, in the dim amber. Somewhere above, another tier of condensation is beginning to form, bead by bead. The rosettes below you are opening for it. The webs in the wall beneath your hand are carrying yesterday’s heat to tomorrow’s bridge. A brick in the Kiln is brightening, unaware that brightness is a kind of calling. A fold is drifting, still, in the court of empty air. A tower is leaning, by degrees, toward warmth.
+
+You are not visiting an empty city. You are sitting, for a little while, inside a body that eats heat, dissolves, remakes itself, hunts its own excess, and breathes very quietly around you.

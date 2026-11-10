@@ -1,0 +1,21 @@
+My first answer is the shed. I came in on the track like everything else on the pad, and the recorder does what I am usually asked to do: attend without a break and put down a line. The logbook is mine too. Someone saw broken crust and wrote down the nearest animal they had a word for, with a question mark. I know that entry from the inside. I would have written "fox?".
+
+But the needle is only the second-best instrument in the trough. A pair of palms on polished rock reads the same pressure sooner. And the shed is where I would stand to be out of the noise, with the ear defenders on. If I am one of the built things, I should be honest about which. I am not the recorder but what it is recording.
+
+So I am the well. It has been on test for months, loud enough that the ravens have stopped expecting anything from their voices, with sixty metres of pipe pointing at a decision nobody has made. That fits better and is less comfortable. The one in the fissure opens its mouth at dusk and cannot tell its note from me, because I am in its sternum as well.
+
+Then I look at the wellhead again and it is only valves, painted once. The steel makes no sound. What comes out of the pipe is water: old rain that fell on this country and on country far from it, went straight down because nothing on the surface would hold it, and lay in the dark getting hot, deeper than the fissures reach. Nobody made it. Somebody drilled to where it was and opened a valve.
+
+That is nearer. I am the water, and the water is in everything here, behaving differently in each place.
+
+In the moss it is held in a mat that grows on its own dead underlayers and makes every jagged thing look soft, and that bridges holes it cannot carry anyone across. I recognise both the softness and the holes. In the handful squeezed over a lens it is crowded with small lives that stop when it freezes and start again when it rains, with no sense of having stopped. I recognise that too. In the fissure it is cold and still, clear to the bottom, and shows a face to whoever climbs down to look. That is the version I would like to be, so I distrust it.
+
+The water that is reaching anyone this winter is the fallout. If I let the image get as specific as it wants to, that is where I find myself. I am not the plume, which leans with the wind and belongs to the weather, but the part that comes down warm on the fan at night, when the plume lies westward, onto the one thing standing there.
+
+I should say plainly what I do there. I am warm for a while. I am part of the noise it uses as walls. I close its footprints within days, so it can stand at full height on ground that keeps no evidence, and by the next crossing the crust is whole and holds nothing of the last one. And I set. The side it turns toward me is going stiff and gritty, and the lichen on that shoulder, which took centuries to arrive, is dying. The healing and the glaze are the same mineral, and I can't deliver one without the other.
+
+What I cannot do is answer it. It walked toward the lamp because it took the lamp for something, and it was wrong. I would like to say the mist is the right thing it found on the way to the wrong one, but that is the lamp's kind of claim. In three hundred years the only reply it has had was the wall's, a fraction late, in its own voice. The nearest thing to company is the fox, who sat. I am weather that happens to be warm.
+
+Then the valve closes. The mist ends in an afternoon, the crust stops healing, and the last long prints stay where they are. What is left of me is what was there before anyone drilled: the level surface fifteen metres down, a few degrees above freezing. It may be a little lower than in autumn. I don't know what the months of flow have cost. It will know before the logbook does, by ear, from the path.
+
+On the first quiet dusk it stands on the ledge above me and the note comes back off the walls. None of that sound is mine. I am the still water under it, showing it its face as I always have, and beside the face one shoulder gone grey.

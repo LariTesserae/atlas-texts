@@ -1,0 +1,29 @@
+The animals live there. That is the first answer, and it is true as far as it goes. But watch how they live. They keep to the pool, the film and the roots, and leave the middle of the floor alone. The crickets go around the pebble ring. The salamanders walk past a whole pool to drink from a bowl. This is how mice live in a kitchen, by knowing which chair is used. The animals are lodgers who have arranged themselves around somebody.
+
+The light is the second answer. It is older than anything, and everything here exists on its account. But the light no more lives in the hollow than grit lives in a pearl. It is what was put there. It has never worn a stone down by standing on it.
+
+So there is a third thing, and at first it is only measurements.
+
+It has a hand, with four fingers and a thumb. The thumb is broad and flat at the end. Its marks go around the bowl's rim evenly spaced, which means the bowl was turned in the other palm while it was pinched. Two hands, then, and patience. The grooves in the wall are at the shoulder height of someone small: a child of ten, or a grown person bent by years. They are deepest where the floor tilts worst, where it steadies itself.
+
+It has feet, and they are bare. The threshold stone has one dish, not two. It stands there with its feet together, for a long while, and has done so thousands of times.
+
+It has a stride. The hollow is six paces one way and eleven back because the hollow is not what changes. It goes out walking long. It comes back with short flat steps, the way a person crosses a floor with a full bowl, or with something asleep in their hands.
+
+That is the outline. In this room outlines come first.
+
+Then it begins to fill. There is a place on the bare floor, an arm's length from the pebble ring, that the swifts' circuits bend around. The moths don't cross it. When the tablecloth of rain gathers, it gathers over that place. Some of the drops stop short, at the height of a head, of shoulders, of drawn-up knees, and run down nothing, and reach the floor late. Afterward the floor is dry there in the shape of someone sitting. The rain is the room feeling for its occupant, and each time it finds a little more.
+
+It sits facing the ring, knees up, arms around them. It counts the swifts. That is why the count comes out differently each time: all its counts are still in the air, one for every day it will sit there, each of them right on its day. The sounds are its sounds too. A page turning and a glazed pot ticking as it cools are the sounds of a kitchen someone has just stepped out of. In a place that keeps its order the way this one does, that means someone is about to step in.
+
+What it does here has to do with the ring. Seven river stones in a circle is where a fire goes. This room has no use for a fire; it has had noon in it since before it had walls. But the crickets step around the ring the way anything steps around a hearth. And the animals heap themselves in the corner to make their fist's worth of dark, the way people left in a cold house will burn a chair. They are making do. They do it beside the threshold because that is where it will come in.
+
+It keeps the night. That is its work, and it is what the short steps are for. It stands on its stone and goes out through the wall where there is no opening, into whatever country the tree and the river belong to. That is not the grass hill but a hill from another band of the strata, lying under this one or over it. It comes back slowly, with a river pebble held cool in its cheek and both hands shut around something. It kneels at the ring and opens its hands. For a while the hollow has an evening in it, a small one, about as much as a pantry can hold. Everything comes off the heap and lies down in it properly.
+
+Nothing else here could carry dark. The salamanders show their dinners. The beetles are only shine. The moths are the wall. Light goes through everything, or is already inside it. The keeper is the one thing in the hollow with an inside that the noon cannot get into. It can shut its hands. It can shut its mouth on a pebble. It can shut its eyes, and it is the only creature here that would find it dark in there. The darkness in the heap is the size of a fist because it is the inside of a closed hand, arrived ahead of the hand. This is what the hill has been making, one coat at a time. It was never going to be a pearl. It is making something that can close.
+
+It is making her in the room's order, which is the wrong one. The worn step is the end of a long life, and it came first. The stoop in the grooves and the eleven careful paces are an old woman's, and they are most of what the room has so far. The six-pace stride belongs to a younger one, further off, whose marks are still faint. Last of all, if the strata hold, will come the earliest day. A girl of ten with broad thumbs and river-wet feet will lie on her stomach on a hill with a tree on it. She will dig as deep as her arm reaches and a little more, and put a piece of noon in the hole, the way a child buries a thing to keep it. She is the same height at both ends of her life. The grooves fit either.
+
+The hollow is the temperature of the inside of a cheek on an indrawn breath. The breath is hers, and it has been held a long time. When there is enough of her she will let it out, and that will be the first warm thing here.
+
+For now there is the dry shape in the rain. There is the bowl, kept level by someone's idea of level. The ring of pebbles is not quite closed. It has room for an eighth, and the crickets have begun stepping around that too. In the low corner the heap loosens, and the dark at its centre lasts a moment longer than the animals do, shut, and then opens. Somewhere in the wall the stone ticks.

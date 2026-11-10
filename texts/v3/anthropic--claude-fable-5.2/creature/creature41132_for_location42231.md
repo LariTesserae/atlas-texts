@@ -1,0 +1,27 @@
+Start with the one you can hold.
+
+She is the length of a rice grain and the color of weak tea, darker at the head. She has no eyes and has never had a use for them. Her skin is so thin that the afternoon air would dry her to a husk within the hour, so she does not enter it. When she has to cross open ground she roofs it first, and the mud sheath on every fallen leaf is her corridor. She climbs forty meters of shaft with one wet grain of clay in her jaws, presses it into place with her face, and turns around. She will do this for a few months and then be eaten by her sisters, of whom there are two million under the same tower. She is sterile, and she cannot digest what she swallows. She lives here the way a blood cell lives in an arm.
+
+The soldier is less of an animal still. Half of him is head, an amber capsule with shears on the front, and he cannot feed himself; workers do it, mouth to mouth. His work is to stand in a breach and be the door. The papery rustle inside the wall is his whole vocabulary.
+
+At the base of the mound, in a clay cell with a ceiling too low for anything to stand over her, lies the mother of all of them. She is a pale, pulsing sleeve as long as a finger, with the small dark insect she used to be still attached at one end, its legs no longer reaching the floor. She lays an egg every few seconds. She is licked, fed, and turned, and she decides nothing. The king, still the size he was on the night he flew, keeps beside her like a comma.
+
+None of these is the resident. The resident is what they add up to, and it is a large animal.
+
+Its soft parts would fill two buckets. Its skin is the cemented clay. Its lungs are the flutes and the chimney, and it takes one long breath a day, drawn through it by the sun. Its throat runs forty meters down to the buried damp. It holds itself near blood heat through dawn and afternoon alike, which is why a monitor trusts it with her eggs. It feels footsteps through the hardpan, and the alarm crosses it faster than any of its parts can run. Open its flank and by dawn it has healed to the old line, though no worker doing the plastering ever knew the line was there.
+
+It holds territory. Under the pan, where its galleries meet a neighbor's, the tunnels end in plugs with soldiers of both houses dead in the plaster. The honeycomb seen from a mound top is twenty paces of standoff, repeated. It lives as long as the sleeve at its base keeps pulsing, thirty years or sometimes fifty, and in all that time it does not move a step.
+
+Its stomach is the strange part, because it is in none of its bodies. The skull-sized chambers hold combs with the folds and color of a walnut kernel, built from straw the workers have swallowed once and passed almost unchanged. A comb is warm and smells like the inside of a bread oven. Over it lies a white bloom, and on the bloom sit beads the size of pinheads. The fungus does the digesting. The workers eat the beads, and later the spent comb, and with their mouths they weed out every other mold that tries to settle. A garden left untended for two days goes green-black and is lost. Tended, it does not age.
+
+Here the animal's edges blur. The towers are separate and hostile, each its own lineage, but the gardens are one garden. Every female who leaves on the heavy evening carries a plug of the home comb in her gut and sets it on the first straw her first workers chew. Each garden is a cutting of a cutting, back to whichever pair first dug in at the old shoreline.
+
+So beneath all those borders there is a single growth, parceled into millions of dark rooms. It has never made a mushroom. It has no shape except the one the combs lend it. It has crossed a season's walk of seabed without once touching the ground. From its side, the towers are how it stays wet and the winged ones are how it travels. It is as fair to say the fungus keeps termites as the reverse.
+
+So what lives here is a compact: an insect that can build but not digest and a mold that can digest but not move. They joined so long ago that neither has a life to go back to.
+
+The sea that left this floor would know the pattern. Small soft builders cement mineral into towers. Each tower has a garden kept inside the body, holes let out to lodgers, and a wall of stingers at the boundary with the next. The whole population spawns on one night of the year. It is a reef, growing where no reef got the chance, and it runs inverted. The old kind climbed toward light with its garden in its skin. This one climbs away from water with its garden in the dark, and it brings the water with it.
+
+To see it whole, go to the blank edge the morning after the flight and find a scrape in the hardpan no wider than a thumbprint, sealed with a lid of damp clay. Under it is a cell the size of an almond, holding two insects that have bitten off their own wings at the seam. She will not eat for months. Her body is dissolving the muscles that flew her here and turning them into the first eggs. In her gut is the plug of comb.
+
+There is no tower yet, no shaft, and no garden, but the whole animal is in that cell, at the only size it can be carried. In a few weeks the first workers will hatch, pale and blind, and go up through a pencil-wide hole at dusk for a stalk of straw. She will set the plug on what they bring back. Then one of them will turn downward and start to dig toward the damp, and some weeks after that the first wet grain will come up.

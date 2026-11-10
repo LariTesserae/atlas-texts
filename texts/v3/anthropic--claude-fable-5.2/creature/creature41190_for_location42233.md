@@ -1,0 +1,29 @@
+Start with what they have in common, because the place has made them alike.
+
+Most of what lives on the tableland is the colour of the tableland. The fallout sees to that within a week of birth or hatching. The trails are pale because the feet are black. Everything has eyes too large for its head, or has given up on eyes and gone over to whiskers, feelers, and the soles of its feet. Nothing has a season, and nothing waits for dawn. They live in the joints of the pavement and the hollows under the tors, and they come out when the ground tells them to.
+
+The ground tells them through the hum. None of them has seen the works, and most have never been within a day's travel of the rim, but when the mills idle at the change of shift the hum drops, and every animal on the plateau feels it drop. An hour or two later the grain comes down. They keep the same three shifts as the men below, and they are never late.
+
+They also share the habit of looking up. Elsewhere an animal watches the horizon, since that is where trouble and dinner come from. Here both come from the ceiling.
+
+That is the general inhabitant, and it is accurate as far as it goes. But most of them hardly move. A beetle works a patch the size of a tabletop. A gecko keeps one crack for life, and a nightjar one flat stone. The bats travel, but only along a single line, east and back. Most of the pale threads are short, running from a pan to a crack and no further. The long ones, which run straight for a kilometre from tor to tor and touch every pan on the way, were made by foxes, and the fox is the only animal here that knows more of the place than the part it is standing on.
+
+Each fox holds a few tors and the pans between them. The holdings are better toward the east, where the warm air comes over the rim and the fall is thickest. The best is the last one before the edge. A vixen holds it now, and her mother held it before her.
+
+She weighs about as much as a bag of flour. Her ears are as long as her face, and they work separately, so that one can attend to a jerboa sieving grit across the pan while the other stays on the sky. Her back and feet are black. She is pale wherever her tongue can reach, and she spends part of every shift keeping it so. This makes her the cleanest thing on the plateau and the easiest to see, which matters less than it would anywhere else. Her kits are born the colour of cream and stay that way for about a week.
+
+Her den is a slot under the easternmost tor, floored with the droppings of the bats that fill the rock above her. It is the warmest hole on the tableland, and it ticks all day with the beetles that work the droppings. She eats those when nothing else offers.
+
+The brass pin is in this tor, low on the lee side, about level with her shoulder. She rubs her jaw on it every time she goes out and every time she comes in, as her mother did. Because of this it is the one bright object on the plateau. The surveyor stamped a number into its head, and she has worn half of the number away.
+
+Her round goes by the works. When the coke is quenched, she smells the steam before the column has finished rising, and she knows she has time to groom. An hour later she is at the third pan north of the tor, which sweats first. She noses the skin off the water and drinks from under it. At the fall she eats a few mayflies, because they are soft, and leaves the rest to the beetles. What she wants is whatever comes out to eat the fall. She takes jerboas by ear and geckos by patience, and when she can find a nightjar's eggs she takes them from the bare stone.
+
+At each tapping the seam beyond the rim goes red, and the rock above her den empties. Every bat from the western tors comes over as well, so that for some minutes there is a roof of wings a few metres above her. She hears none of what they are saying. She steps out and stands under the stream anyway, because the owls strike into it there, and an owl does not always hold what it hits. A bat on the ground with a broken wing is hers.
+
+She does one thing the others do not. When the lightning goes off in the pall, everything looks up. She looked up too when she was young. At some point she noticed that the flash shows her every eye on the plain, each pair a green mark giving a position and a height above the ground, and that for a moment afterward their owners are blind and holding still. So she keeps her head level and uses the half second to count them. When the dark comes back, she is already moving toward the nearest pair that stood at the height of a jerboa.
+
+The relining is the hard part of her year. The plateau's festival is her famine. With the furnaces banked, the warm column fails. The fall thins to almost nothing, there is no quench, and the pans dry. The light hurts her. Her pupils close to slits, and she lies up in the slot for most of each day. When she does go out, something dark and fox-shaped goes with her along the ground. She has seen it before, on perhaps fifty days of her life, and she ignores it. Her kits have never seen theirs, and they pounce on them.
+
+On one of those days she usually walks to the rim, since the rim is fifty metres from her door and it is the only time the air there is cool enough to stand in. The basin is laid out below her, with the stacks, the yard, and the cold ovens, clearer than she ever sees it otherwise. She gives it about the attention the surveyor gave the plateau. Then she turns back, because the hares are out on the flowering cushions with their heads down, and the leverets born for this week are slow.
+
+Then a whistle sounds, very small. The hum comes back into the stone, and she feels it in her feet before the smoke has closed. The first quench goes up. She rubs her jaw on the pin, wearing a little more of the number away, and goes north to the third pan to wait for it to sweat.

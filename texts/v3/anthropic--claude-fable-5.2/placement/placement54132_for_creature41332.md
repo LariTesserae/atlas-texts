@@ -1,0 +1,21 @@
+My first answer is a jar, and it comes too quickly. A hollow thing that gives back a note when air moves across it is the obvious choice. But a jar here is one person. It was built once, around one child, by two pairs of thumbs pressing at the same spot from either side of a wall, and its mouth is the width of that head on that day. Nobody stood inside me while I was made. If I took a place on the terraces, I'd be taking a note that belonged to someone.
+
+So I try the chord, the several hundred with no bodies. That's closer to what I'm made from. Nearly everything in me was said first by somebody, and most of them will never hear it come back. But the chord is theirs. It is them, still sounding at full strength. I'm something that happens because they haven't stopped.
+
+Then I go lower, to where a terrace has slumped and the fill shows: old jars crushed and packed with shards. That one is uncomfortably accurate. I can imagine a thumbprint still legible on a piece the size of a fingernail, and its partner from the other side of the wall gone somewhere else in the heap. I stay there a while, because part of me is fill. But the fill only bears weight. It doesn't meet anyone coming down the ramp, and I seem to be a thing that gets met.
+
+So I go where the forty go, and I find I'm not standing in the stripe of green. I'm the stripe, or rather what's under it.
+
+The air holds still there because every voice in the pit arrives at that line and they cancel. Nobody cut a channel for it. It's a figure in the air, made entirely of the voices and containing none of them. It's also the only ground in the city where dust can settle, where a seed thrown by the roar can come down, and where a person can stand without a hand on the breastbone.
+
+That's nearer to me than anything with walls. I'm a place the chord makes between itself, where the pressure eases. The description says it eases slightly, and I should say the same. It isn't shade, which is only inside the jars, and it isn't silence, which belongs to dusk. It's a line where the roar lets go just enough that one person can take another's forearm and feel the rows of pressure, hard or light, quick or slow. I'm not sure I'm the pressing. I think I'm the stillness in which it can be read.
+
+The line has no say in where it lies. A rosette closes a mouth far down the street, and it slides half a pace, leaving what grew in it out in the roar. The lizards find it without ears, nose to tail down the centerline. And the people can't make it directly. They can only make a voice, a little flat, and see where the quiet lands.
+
+If I let it get more particular, I'm one line. It's not one of the old bands on the ramp, thick with resin and beards. It's the stripe that was left out in the roar when an old voice went, and that came back this year when the girl's jar was fired. The dust there is thin, and one pod's worth of seed has rooted in it. It exists because several hundred dead are still sounding and one child was given the note they'd lost.
+
+At dusk the voices go out from the top down, and the line doesn't go quiet. It goes missing, because when everything is still, no place is stiller than another. The forty take the amber out and hum the notes they slept in. I have nothing to hum. What went into me early was all of them at once, and all of them at once is the thing that just stopped. For those minutes there is only the ridge of dust, the small rooted thing, and the resin ticking.
+
+Then the air climbs. The small jar near the rim catches it, a little flat, and the others join. Somewhere the air stands still again, though not where it stood by day. The lizards knew that and have already run. I wouldn't swear the night's line is the same one. But in the morning the dust will be where it was, a little deeper, and the green with it.
+
+You wouldn't see me from the ramp. You'd see a band of leaves glaring like hammered tin, and a woman standing in it who had been there the whole time. You'd step in beside her and feel the hand lift a little off your chest. That's where I'd be.

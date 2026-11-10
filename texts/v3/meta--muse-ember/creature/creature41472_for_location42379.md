@@ -1,0 +1,37 @@
+It begins as sound, because in the Hollow everything important begins as sound.
+
+Not a voice. Not a call answered by another. A shimmer, continuous, too dense to be wind — clicks and chimes and scratches layered over a slower drum-tap, over a faint, winged trembling. It has a tide to it. For hours it rises by degrees almost too small to feel, then settles again, then rises. The noise is the weather of the room, and the room is made of the noise.
+
+Only when your eyes stop demanding light do the makers of it appear.
+
+They are on the ceiling first, because they are the ceiling. Thousands of them, perhaps tens of thousands, hang by long jointed fore-limbs from every fracture and ledge of the fractured dome, shoulder to shoulder, body to body, in curtains so thick the stone behind them is a story you have to believe rather than see. Each is the length of a forearm, furred, damp, the fur matted into a grey-brown felt that never quite dries. Bat-shaped, except they have no wings to speak of — only tiny, useless wings folded flat and tight against their backs, which they vibrate without pause.
+
+They are blind. Where eyes should be there is a smooth, pale mask of skin, unbroken, closed before it ever opened. They do not fly down. They do not move, in any way a lowland animal would recognize as moving. A clinger is born on a ledge, hooks its fore-limbs there, and licks for a hundred years. Its tongue is long and grey and endlessly patient; it laps at the condensation beading on the rock above its head, at the film that gathers on stone in the cool dark. The vibration of its useless wings does the rest of the work: it shakes the air, it shakes droplets loose, it coaxes moisture out of air that is already too thin and too cold to hold much.
+
+When one dies, it dies hanging. For a while its body hangs with the others, its limbs still interlocked with theirs, its fur still part of the felt. Then the white mats below find it, or a neighbor's tongue finds it, or it simply comes apart and falls the short, slow distance to the floor. A young one takes the ledge. Not by inheritance, not by choice — because the ledge is the only place left warm with the particular vibration of that drip line, and in a crowd where touch is sight, that is enough.
+
+Between that ceiling and the floor is not empty air. It is occupied.
+
+The chime-midges fill it. No bigger than a thumbnail, so many of them that in the one shaft of grey light from the slit they are moving dust, and in the dark they are a solid, humming body you can feel on your skin before you hear it clearly. They do not bite. They have no need. They gather spores out of the damp, they lick the same condensation, they render the air trembling in a pitch so high it is more felt in the teeth than heard with ears.
+
+And in doing so, they make water.
+
+That is the central, accidental craft of this place: their wingbeat changes where condensation forms. Where the air is loudest, the water gathers fastest. The clingers, hanging above, drink what their own noise has called down. The midges, falling, sick, or simply spent, are eaten in endless patience — by a tongue from above, by a mouth from below. Nothing so large as a meal ever enters the Hollow, so everything here is eaten in pieces too small to see, a thousand times a day.
+
+The floor is the third layer, and at first glance it does not look like life at all. It looks like pale gravel, breathing. A near-touching carpet of crawlers, each as big as a forearm, segmented, blind, the color of wet bone, moving a hand's breadth in an hour if the mood is on them. They orient by tapping, fore-limbs feeling ahead, bodies following the feel of other bodies, of guano crust, of stone.
+
+Every crawler carries one thing, and that thing is its whole biography.
+
+In its front pair of stubby limbs it grips a single angular hammerstone, fresh-broken from the mountain itself, heavier than its own head. Over a lifetime — and a lifetime here may be longer than any human's, and pass with less movement than a body length — it knocks. It knocks at the guano until the crust cracks, at the fungal mat until it tears, at the stone where moisture hides in a pore until the pore gives up its bead. The knocking is slower than the midges, deeper than the clingers' licking, a patient drum under the chime.
+
+They are learning to open the world where it will not open itself. It is the most primitive form of tool-use, and it goes no further. No crawler teaches another. A crawler dies in place, its hammerstone drops onto the carpet, and another crawler, tapping blindly, eventually finds it, grips it, and begins to knock in a slightly different place. The stone is inherited the way the mountain itself is inherited — by proximity, not by intention. Nothing is saved. Nothing is built. There is no nest, no path, no mark. Only the memory, if you can call it that, of a stone worn a little smoother where a hundred years of knocking have polished one face.
+
+The green things are an afterthought, which is how you know the animals rule here. Where the light-shaft strikes stone there are a few strands of pale moss clinging in the driplines, and three or four ferns with leaves like bleached paper that never quite open — they have no sun to open for, only the grey suggestion of it. The real vegetation is white and low and leathery: fungi. Thin mats that grow on guano, on waste, on the bodies of the dead clingers and crawlers before decay can begin in any ordinary sense. They are eaten again, by crawlers that tap their way across them, by midges that gather their spores. It is a cycle so closed it feels hermetic. Nothing leaves. The only arrivals are the occasional insect blown up from the cloud-sea below, the rare storm that finds the slit and throws snow straight down for a heartbeat — that moment when the whole ceiling curtain flinches into silence — and the slow, slow rising of the mountain itself, which keeps the rock sharp and unweathered and new.
+
+Sight has been traded, entirely, for hearing and touch and taste. Eyes did not close here; they never formed. What formed instead were tongues, and tapping limbs, and wing-buds that make noise whether they are useful or not, and noise that turned out to be useful because in this cold, damp room, sound moves water. Moist fur, moist stone, moist breath: nothing in the Hollow is ever fully dry, and nothing is ever wet enough to rot. The fungi and the crawlers take the dead before rot can.
+
+So the inhabitants are not really in the Hollow. They *are* the Hollow. Remove the clingers and the ceiling is bare stone. Remove the crawlers and the floor is dust and guano no one opens. Remove the midges and the air is still and nothing condenses where it should. Each layer holds up the others by being slow, blind, and loud enough to call the only rain this place knows down out of the dark.
+
+They do not know they live on a peak. They will never see the cloud-sea below, or the fresh obsidian needle above the slit, or the sun that makes the rock glitter when you leave. Their world is forty paces across, cathedral-high in the middle, narrowing to crevices at the edges, and they can touch every wall without moving from the center. That is not a limitation to them. That is the whole of the universe, and it is enough to fill with noise.
+
+Leave, and the wind takes your ears again. Behind you, in the slit, the shimmer resumes — unheard, patient, eating its own condensation, rising a fraction of a hair above itself, year after year, in the dark.

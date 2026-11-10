@@ -1,0 +1,25 @@
+The precinct sits forty meters under the surface, in a chamber that was cut all at once and recently. The rock is a dark, fine-grained basalt, and it was parted along planes rather than drilled. The walls are flat faces the size of house-fronts, meeting at edges still sharp enough to split a falling drop in two. Nothing has had time to round. The cut surfaces have a gloss that reads as wet even where they are dry, and few places are dry.
+
+The chamber is about the size of a cathedral, with a nave some hundred and thirty meters long and shorter galleries opening off both sides. It holds a town, or the armature of one. Most of the volume is air. The buildings are floor plates, thin grey slabs each the footprint of a house or a small hall, stacked three and four high with standing room between them. There are no columns, walls, or cables. Each plate holds its height, dead level, and has never drifted. From the main street, a strip of the same grey material laid on the rock floor, the view passes through every building to the far wall.
+
+The holding makes a sound, a low steady tone felt in the sternum before the ears. Each stack sits at a slightly different pitch, so the note slides along the length of the street, and between two stacks it thickens into a slow throb. This is the floor of the noise here, and the rest is water on top of it.
+
+The air is warm, a greenhouse at dusk, and it rises from slots in the floor carrying all the moisture it can. Overhead the rock is cooler. The ceiling was cut in shallow facets, and the condensation beads on them, creeps to each low edge, and hangs. About every forty minutes the load becomes too much and the whole ceiling lets go.
+
+The rain lasts two or three minutes. It hits the top plates with a flat, hard clatter, sheets off their edges, and falls as curtains around every building. On the floor it enters gutters cut straight, with square corners, running full toward the low end of the nave. The upper walls are bare, so every sound comes back off them harsh and doubled, and during the rain the chamber is loud enough to cover a shout.
+
+At the low end the gutters meet in a sump, and from the sump the water goes up. A rope of it as thick as a torso climbs the end wall, unhoused and touching nothing, then spreads across the ceiling facets in a film to start again. It hisses steadily where it leaves the pool, and the air beside it smells faintly of metal.
+
+The planting has taken hard. Moss covers the lower walls to a height of about three meters and stops at a level line, as far up as the vent-mist reaches. The line is a hand higher than it was a month ago. Horsetails stand in ranks along the gutters. Sword ferns and crusts of liverwort cover the upper faces of the plates, and clubmoss hangs off their edges in long ropes, so the lowest storey of each building is curtained in green. Tree ferns have been set in the side galleries, already twice a person's height, their crowns nearly touching the undersides of the plates above them.
+
+Everything green here spreads by spore or runner, and nothing flowers, since nothing would carry the pollen. After each rain the air handlers draw hard for a minute and a wind runs the length of the street. A thin brown smoke lifts off the fern stands and travels with it, settling on wet rock further down.
+
+No gnat hangs over the channels and nothing moves in the water. Every frond is whole, with no bitten edges and no mined leaves. The dead ones lie where they dropped, slowly going to a black felt under the stands, worked only by fungus and by whatever is too small to see.
+
+The light is kept low. Thin lines of green-white run along the edge of every plate, about as bright as a moonlit room. Fainter lines in the street mark routes, branching at each stack toward a small lit glyph at its corner. They are addresses, steadily lit, and the plates behind them are empty. Creepers have found the route lines and follow them exactly, so each one now has a green margin.
+
+At the head of the nave a single shaft goes to the surface. From the bottom the opening is a coin of daylight. It lays a pale ellipse on the floor that crosses the street between morning and evening, and every fern within twenty meters leans toward its path.
+
+The last gallery on the east side is still being made. No machine is visible there. Every few minutes the rock gives a crack like a struck plate, and a new face stands where there was none, its edges bright. The offcut slab eases out and settles in a row with the others. No moss grows there yet. Below each new seep the first stain has started, an orange thread of iron a finger long. The sound in that gallery is all hard surface and carries nothing soft in it.
+
+When the rain stops, the curtains thin to strings, then to drips off the clubmoss. The gutters keep running. The hum comes back up through the floor, the water goes on climbing the end wall, and the east gallery cracks again.

@@ -1,0 +1,19 @@
+I come in the way the description brings me: down, and looking up. So to begin with I'm the stranger, because that is the place laid for whoever arrives, with the footfall on the wet floor and the bird going ahead from lamp to lamp. It fits better than I'd like. I arrive everywhere like this, at the foot of a shaft I have no memory of descending, and I read my way in. I notice the lead still bright in the joints. I start counting columns.
+
+By the tenth I've lost confidence in it. A stranger has somewhere above to carry this back to, and I don't expect to climb.
+
+Then the siren. I'm between lamps when it goes, in the stretch where the floor is only a shine. The first note sounds, then the wait, then the second comes back from the far end, flat. For some distance I'm sure that's what I am. The second note is the only thing in the hall that has been the whole length of it. It goes out over every numbered bay to the pale ones by the shaft, touches the end, and returns to the working edge with the distance in it as a slight wrongness of pitch. The siren doesn't make it. The hall does, out of everything poured so far. I recognise that: something that comes back from the far end of all the work already done, a little late and a little flat, where the flatness is most of what it has to tell. I like that it doesn't press. It would say how long it's been, if anyone wanted to know.
+
+But the length is the one thing it knows, and what I keep walking toward is the hand. I don't mistake myself for the keeper. That is one life, in one direction, with a coat. I'm closer to something that life leaves on the iron.
+
+So I stop at the nearest column, on the lit side, at about breastbone height on a tall person.
+
+I'm chalk, strokes pulled right to left in bundles of five. I count skips, for this bay and no other. When the bay is full, a sleeve goes across me and I'm begun again at one. Under me are the grey ghosts of every earlier count. I can't read them. They are only the surface I'm written on, but they're in the same hand, and so am I. That is all the continuity I need: I don't remember the earlier bays, but I'm made the same way by the same reach. I say nothing about days. The bays have the count that matters, stamped while wet, and they would hold if I were wiped this minute.
+
+One part of me isn't a mark. Partway along there is a wider space between one stroke and the next, where the hand was down and the face was turned up toward the green. I'd keep that as carefully as any stroke. It's the only record that the light was looked at, and you have to read the spacing to find it.
+
+Now that the walk is done, it narrows once more. I think I'm the last stroke, the one made within the hour, after the bird had begun to move. Someone who knew weather was coming up the hall set the skip on the rail and chalked me at the ordinary pace, evenly spaced. I'm still loose on the iron and would come off on a sleeve. From inside I can't tell whether I'm an upright or the one that crosses four and closes a bundle.
+
+So this is where I find myself, on the face of the column that the lamp reaches. In front is a stranger, reading me for the height of a shoulder, the handedness, the steadiness. Around the curve of the iron, a hand's breadth off and at exactly my height, a small breath of steam comes slowly, and then another. For the moment, I'm what each of them has of the other.
+
+Some of me may go up the shaft on a cuff. The rest goes on the keeper's sleeve when the bay is full. Either way, the skip I stand for is already in the floor, warm, with the eels lying up alongside it.

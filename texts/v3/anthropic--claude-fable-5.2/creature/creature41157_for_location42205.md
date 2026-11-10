@@ -1,0 +1,31 @@
+Mostly what lives here is moss. By weight and by area there is almost nothing else: a felt on the pipes and a pile on the streets, probably one plant in two habits. It was here before anyone now living and it runs the water. It would be fair to stop at that.
+
+But moss does not lace a belt.
+
+So there is someone, and for a while that is all that can be said. Someone who comes onto the hall step with the same foot in the same place. Someone who sits a good deal, facing the switchboard. Someone with an oil can and an awl. You could watch the streets through a whole turn of the drum and see the wagtails six times and the keeper once, or not at all.
+
+The keeper comes out only into the thawing street. There is a reason. Dry moss is crisp and breaks under a boot, and a broken patch stays grey for a season. Wet moss stands up again behind the heel within a minute. So the keeper waits for the clack like everything else, lets the dripping get well started, and then walks the street once, down the crown of the camber, and back along a different line.
+
+Seen then, close: a small woman, sixty or a little more, in a canvas coat gone green across the shoulders where the curtains drag over it. She lets the coat go. Her hands she keeps. They are oiled to the wrist every waking hour and nothing takes hold on them; they're near the colour of the brass, black in the creases. Her boots are soled with old belt leather. She walks with her knees a little bent, the way one walks on a deck. She has done her listening through her feet for forty years and doesn't much trust her ears.
+
+She carries a can and a spanner. The can goes under a particular flange (each street has one that drips in a string rather than in drops), and she leaves it filling while she walks the trestle feet and looks up along the main. That is her drinking water. She is looking for a brown streak in the hanging green, which means brine weeping at a joint. If she finds one she climbs the trestle, puts two fingers through the felt to find the nut, and takes it up a quarter turn. Then she takes her can and goes in. The wagtails keep twenty paces off and don't stop feeding.
+
+She doesn't call it moss. What is on the mains is the lagging. What is on the ground is the yard. Asked what she does, and once a year someone asks, she says she runs a cold works. It's true. One shed still has a sound tank and she pulls two blocks from it each turn. After the autumn springs a carrier brings a handcart across the plain with leather, flour, lamp glass and sulphur tapers. He stops at the last stanchion. She has never told him to. He takes the ice back in sacking, and it can't be much more than wet sacking by the time it arrives anywhere.
+
+Indoors she has no days. The windows are green at all hours. She has the tide, which gives four slacks in about twenty-five hours, and the drum, which gives six clacks in thirty, and she lives where they cross. She sleeps on the flood, when the machines ease, on a cot on the gallery above number two where the warmth collects. She wakes on the turn of the tide, when the labouring starts. Between times she fills the cups, wipes down the rods, and walks the ammonia joints with a lit taper, watching for the smoke to go white. Her nose stopped telling her anything years ago.
+
+At slack water she is on the floor beside number three with her palm flat on the flywheel rim. On spring tides there is nothing to do; the wheel carries itself through and the lamps barely dip. On neaps the lamps go down to the colour of a coal and the wheel comes round slower, and slower, and hangs at the top of the stroke, and she leans. It takes very little. She has needed her shoulder four times. About once in each turn of the drum a clack falls close to slack, and the valves go over with almost nothing behind them. For that one she stands where she can reach both the wheel and the drum, and doesn't sit until the lamps are white again.
+
+Numbers one and four are dead. She has been feeding them to two and three for thirty years, a ring at a time, a bearing shell, a length of rod. She keeps the dead ones as bright as the live ones. She knows what is left in them and doesn't add it up often.
+
+There is a log on the desk by the switchboard, in six hands. Tide, oil, belts, parts changed. Early in the first hand there is a line: *lagging off No. 4 main, east end, none in store.* After that no hand mentions it. The fifth hand grows large and slanted toward its end, and hers begins halfway down the same page, small and upright. She was nineteen. She had come out with the carrier's cart to see the place, and the old keeper showed her the oil cups, and then the cot.
+
+Her own hand mentions the green once. In her second year a thin span on the third street bothered her, and she bound it with sacking. The pipe under the sacking stopped sweating. The ferns below it browned. The sacking rotted off within the year and the felt took two more to close. She wrote it down and has done nothing of the kind since. She tightens flanges and greases valve spindles through their fur. If she thinks about the rest at all, she thinks that the plant is running and the lagging is sound.
+
+Of everything arranged under the drip, she is the smallest part, and the only one with hands.
+
+She doesn't watch the drum. Some while before each clack she finds she has already put down the rag and picked up the can. She has never timed it; it would be about twenty minutes. For years she assumed she was hearing something, the cam taking up on its lever or a change in the load on three. She has listened for it on purpose, standing still with her boots off on the hall floor, and found nothing. The ferns have it too, on a street she isn't even going to. She has stopped trying to work out which of them is told first.
+
+The lamps are white now, the tide making. Some nights the moth is at them, and she lets it have them. Her hand comes off the arm of the chair. A moment later she is on the step, boot in the gap, can hanging from two fingers, the door open behind her. The wagtails have come up from wherever they wait and are sitting on the nearest green shape that was once a hydrant. The street in front of her is white along its main and knee-deep in fog.
+
+Nothing has clacked yet. She stands with her weight already forward.

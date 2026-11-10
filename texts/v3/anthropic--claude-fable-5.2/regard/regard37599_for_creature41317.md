@@ -1,0 +1,27 @@
+It comes in without weight. That is the first care, and it takes some thought, because the body below has been shaped by only four things (load, flow, cold, and light), and those are the four ways it can be touched. So the power rests on no branch, casts no shadow on a leaf that lives on light, takes no water, and brings no warmth. It is the first thing ever to be here that is not the plant. Nothing will record how that meeting went, but it will have gone one way and not another, and the power wants it to have gone like this: something came, and nothing was taken.
+
+Then it listens. It stays through the pumping and the hail of snapping columns, and it is there when the surge comes: the hull-crack close by, then the same instant arriving from a kilometre off, from ten, from a hundred, for most of an hour. For the first time the agreement lands somewhere. The power does not mistake this for a gift to the creature, which has gained nothing. But something that was true and unheard is now true and heard, and the power thinks that is worth an hour.
+
+It has three questions, and it starts with whether anyone is in there. It goes through the body from the black leaves down to the glass, looking for a place where news gathers. There is none. What it finds is smaller. In the living sheath around each vessel, the state when the column holds differs from the state when it snaps, and the tissue works to get from the second back to the first. This happens millions of times a second across a continent. If that is feeling, it is feeling with no one to have it. The power cannot make more of it than that and will not make less. It decides to be as careful as if the answer were yes. Care costs it little, and carelessness, if the answer is yes, would cost a great deal to something that could never say so.
+
+The second question is the basin. The power can read the count, and it reads far enough ahead to look for a line that says *thin here*. There is no such line. There is also no line that says the canopy must hold everywhere. The branching angle has a tolerance, as any angle grown in wood must, and a tolerance multiplied across a continent and an age was always going to open somewhere. Whoever wrote the instruction would have known this. They could have closed it and did not, and they did not choose the place. So the stream is neither a failure nor a line of the schedule. It is an allowance. The makers left room for something they declined to specify, and left the where to chance.
+
+The third question is the makers themselves. The power looks for them, the way one knocks at a house before walking in its garden. No one answers. That does not make the garden the power's.
+
+Then it goes through what it could do. All of it would be easy.
+
+It could give the creature an ear. But then the creature would have the noise, all of it, with no way to stop. And to hear its own surge it would need somewhere for the hearing to arrive, a centre that waits for news. That would be growing a different creature inside this one, one more like the power. The power recognises the wish, sees where it comes from, and puts it down.
+
+It could give it a thorn, or a bitter sap, against whatever is coming. But a thorn is a judgement about neighbours made before meeting one. This body's whole practice is to become what the next layer stands on, and most of it is already past the reach of any mouth. What a neighbour could reach is the skin. The power cannot know that the skin would not mind, and it has no way to ask. So it does not arm the creature, and it does not pretend the matter is settled.
+
+It could put a seed where the silt will be. There is no silt yet, not even a grain. Whether anything will arrive on its own from beyond the margins, the power does not know, and whether to bring something if nothing comes is a real question. But it is a question for when there is a pocket to put it in. That is a long way off, and the power will know more by then.
+
+It could round the first edge of stone with a touch. It leaves that to the water. Everything on this plateau has been sent somewhere. The grain, when it comes, will be the first thing that lies where it happens to fall, and it cannot be that if the power places it.
+
+There are two things the power does.
+
+It stays. Leaving would be the surest way to do no harm, and the power knows that doing no harm and doing right are different things. Something unguarded is going to have neighbours. When the first root that is not this root takes hold, and later when the first mouth closes on a black leaf, the power means to be there, watching the sheaths around the vessels, to see whether anything in that body does what could be called flinching. If something does, it will act then, knowing what it is acting on. It sets no guard and leaves no marker. It keeps a watch.
+
+And it learns the count. That takes no time at all. Then it holds the number the way every growing tip holds it, alone. It cannot tell them it has joined. But there is now one player keeping the score who can hear the others.
+
+When the next surge comes, the power arrives at the number when they do. There is the crack, then the kilometre, the ten, the hundred. It listens to the whole hour. In the basin the stream runs on along its line, a finger wide, making no sound that can be heard beneath the roar, and the power hears it.

@@ -1,0 +1,27 @@
+The land here was mountains once. What remains is their floor, a shield of banded grey rock worn so nearly level that a dropped egg would not know which way to roll. It runs out for a day's walk in every direction that isn't sea, and stands barely a man's height above the low-tide line at its highest. The old folds are still there, but only in plan. Stripes of pale and dark stone loop and double back underfoot like the grain in a cut plank, a range seen in cross-section and polished by everything that has ever passed over it.
+
+It is never dry. Drizzle comes in off the water most days, fine enough to hang rather than fall, and the rock sweats a film of its own in the cold. Twice a day the tide arrives, not as waves but as a sheet, ankle-deep and quick, sliding across the flat for miles before it thinks better of it and slides back. The sky is a low lid the colour of the rock, and the wet rock gives the same colour back, so the horizon is a guess. The sun, when it shows at all, is a paler smear in the grey. Nothing casts a shadow with an edge.
+
+Nothing grows here that stands up. There is a brown slick in the pools and a scab of orange and black crust on the few knuckles of rock the tide doesn't reach. Everything else alive came out of the sea or eats what did.
+
+The plain is full of holes. They are round, smooth-walled kettles, some the width of a cooking pot and some wide enough to turn a boat in, each drilled straight down into the shield. In the bottom of each lies a stone. When the tide sheets in, the water spins in the kettles and the stones begin to roll, each going round its own floor and grinding it a little deeper. There are tens of thousands of them. The sound is one continuous roar, like a mill the size of a country, and it comes up through the shins before it reaches the ears. Small kettles ring high and the great ones groan. No two share a note, because no two share a depth or a stone.
+
+Over that sound lie the birds. They are squat and dark-backed, white beneath, with wings too short to look useful, and they nest on the ledges inside the kettles, just above the reach of the turning stone. There are two pairs to a small hole and forty to a large one, and all of them scream. They have to. Each pair's call is pitched to cut through the drone of its own kettle, and a chick knows the note of its home hole before it knows its parents. In fog, which is common, the adults come back from the sea blind and land by ear, circling low over the roar until the right note rises under them, then dropping in.
+
+In the widest basins the seals haul out in grey heaps, barking. Pale raider-birds work the rims on foot, heads cocked, waiting for an unguarded ledge. Flies breed in the white fouling until the rain washes it into the pools, where glassy shrimp-things swarm on it and limpets rasp at the brown film. On the flood comes the long seal, narrow-headed and alone. It slides inland in water too shallow to hide it, belly hissing on the rock, and takes birds off the kettle lips as it passes. The colony's pitch climbs wherever it goes, so its course across the plain can be followed with the eyes shut.
+
+At slack water the stones stop. For a few minutes there is only the birds, a thin and frantic sound without the roar under it, and the far white hiss of the sea's edge. Then the ebb starts the mill again.
+
+People come in the egg season, in skin boats, and stay a few weeks. Their marks are small and far apart:
+
+- **Cairns.** They stand waist-high and are capped with white quartz, so they show in the murk.
+- **Racks.** Lashed rib-bones stand in rows, hung with split birds drying badly in the wet air.
+- **Huts.** These are low beehives of stacked slab, chinked with guano-clay and packed a forearm thick inside with down, and the door is a stuffed sealskin pulled in after. They are the only quiet on the plain, where a person can hear their own swallowing and sleep.
+
+No one speaks outdoors. They talk with their hands, and their names are gestures. A tap on the shoulder means *look at me*. The old ones are deaf and seem not to mind.
+
+They take eggs and birds, and they owe stones. A kettle whose grinder wears down to a pebble goes quiet, and a quiet kettle is abandoned within a season, because the birds cannot find it. So the people carry cobbles of a harder, paler rock from somewhere up the coast, in sinew nets. They peck them round with hammerstones, sitting in the drizzle and turning each one in the lap. Before a new stone goes in, the worn remnant of the old one is fished out and weighed against it, hand against hand. The care is necessary because a stone of the wrong size changes the note, and when that happens the pairs circle their own hole for days, screaming at it, and will not land.
+
+On the rim of each tended kettle a ring is pecked for every stone given. Some rims carry one ring. Some carry so many that the oldest have worn nearly smooth, and they are read with the thumb.
+
+Toward the seaward edge the kettles widen, as the oldest ones do. Their walls thin and breach, and neighbour opens into neighbour until there are no holes at all, only a pale scalloped pan with drifts of coarse sand where the grinders finished themselves. The tide crosses it without a sound. Nothing nests there. The people walk it quickly with their hands still, and the cairns on it have no quartz. Every generation that pan is a few kettles wider.

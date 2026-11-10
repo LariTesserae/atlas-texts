@@ -1,0 +1,27 @@
+The people here have never been dry. They have a word for it, and they use it the way others say *weightless*, for a condition that is described and not expected. Their skin is pale and soft, and their fingertips stay creased from the first week of life, so a child's hands look older than its face. Every evening they rub themselves with oil pressed from the seeds of the sour fruit. It is the only thing that makes the water let go of them. They all smell of it, sharp and green, and do not know that they do.
+
+They are small and broad across the shoulders, from the paddle and the mallet. They begin each gesture a little early, as people do who have always been pushed back slightly by what surrounds them. And they do not hold still. Someone sitting and talking will turn a wrist, shift a hip, work the toes against the floor. A stranger would take it for nerves. To them it is nearer to breathing.
+
+Because voices carry, they speak low and briefly, and much of what would be said aloud elsewhere is done with the hands. A bone comb is the first thing a person owns and the last thing given away. Friends go through each other's hair in passing. A mother checks behind a child's ears and between its toes without breaking off what she is saying. Courtship is mostly this, taken slowly. To let someone lift the grit from your lashes with the pad of a thumb is as far as trust goes here. The widowed can be picked out by a paleness at the hairline and a buff edge on the heels, the places a person cannot easily reach alone. The neighbors notice and come with their combs. They are clumsy at it, and it is allowed.
+
+They greet each other by asking how deep. *Chest* is the usual answer and means nothing in particular. *Lash* means up where the fish hang, lightheaded, in love or feverish. Someone who answers with a floor below the lived-in one is brought inside and fed.
+
+The morning tapping is how they count each other. Each mallet has its own note. The heads are cut from creeper root, the only wood there is, hardened in the dark under the garden rafts. People know the town by ear as well as by lane. A door not yet knocked when the brightness is overhead brings a neighbor carrying her own mallet. Nothing is said about it afterward.
+
+The stirrers are the ones who could not manage even the small stillness of ordinary life. It shows early, in a child who sleeps in the boat and will not stay through a meal. Nobody chooses them. Around the age of ten they are handed a broad paddle and are seldom indoors again. They are lean, and their skin is the cleanest in town. They carry news from lane to lane in a murmur, and they know whose door is slow. They are never thanked, because what they make cannot be seen. It is only a lane that is still a lane.
+
+The divers are the other kind, and fewer. Going down, the air grows heavy in the chest until at some depth it is drink. A diver has to know that depth in herself, and it changes from day to day.
+
+A few times in a childhood the cloud tears. The adults look up. Children seeing it for the first time look down at the dark shape that has attached itself to their feet, and some of them try to scrape it off. An adult tells them it will go by itself, and it does.
+
+When a child is born, a cord is tied in the family's knot and hung in the flow at the center of the house. It is the one part of a person permitted to hold still. By the time the child can paddle, it is a rod as thick as a wrist. At twenty it is a post. A long life makes a pillar that holds up part of the roof. Age is reckoned on it, in fingers. Children are shown theirs and told that it is being kept so they need not be.
+
+When someone dies, the family keeps the body moving for one more night, turning it, oiling it, combing it. Then it is laid on a raft of green reed, and the stirrers take it across the lake to the notch and let it go over. The dead are the only people who leave. They go down the cold side in the steam, and nobody climbs the rim to watch.
+
+The pillar stays. So the floors of the great-grandparents are crowded with more than weed. Columns stand in the dark there, each with a cord at its heart and the knot intact. Lower down the pillars have met the walls and each other, and there are no rooms at all, only stone with cord in it. This is what the divers move among when they go for bowls. Then they surface into a house where their own post stands in the middle of the floor, a little thicker than last year, with wet baskets hung on it.
+
+Everyone knows who tied the frame at the southern edge, because the knots are left-handed. She is a stirrer, which is unusual, since stirrers do not keep houses or leave them. Her shoulders are going. She passes the frame each day on her round with the paddle and does not slow.
+
+The mallet came from a house in the third lane whose door was allowed to close last winter, after the last of that household went over the notch. The handle is dark from four or five generations of palms.
+
+The mallet has work already. The walls must take their stone and the doorway must not, or in fifty years there will be a sealed room and no way into it. So each morning whoever comes by first takes the mallet down and knocks the night's frost from the threshold, for people who do not exist yet, and hangs it back. It is never the same person twice running, and no one has been asked. The town knows that mallet's note by now and listens for it with the others.

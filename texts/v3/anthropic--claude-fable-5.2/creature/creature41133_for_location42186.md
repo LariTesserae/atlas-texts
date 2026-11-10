@@ -1,0 +1,29 @@
+The eel is found by pressure. Everything else in the room closes on a hand evenly and stays where it is. In the trough, a hand's depth into the weed, there is one thing that gives way and then pushes back.
+
+It is as long as a forearm and as thick as the base of a thumb. It is slick, but not as the strap-leaf is. The leaf's slickness stays on the leaf, and the eel's comes away on the fingers and is still there when the hand is withdrawn. The head is blunt and hard as a knuckle. The eye is small and sits flush under the fingertip. In an eel ready to leave for the sea the eye swells and stands proud, and this one has never made ready. The gap in the roof is as wide as the eel is long, but it has not been felt near it. It was put here, and it behaves as something still put.
+
+Behind the head is a slit that opens against the fingertip and closes again, about four times a minute.
+
+It knows hands. When fingers are held still at the sill, it rises from the trough and mouths them. The teeth are like a fine file. It does not bite down. It lets go and waits with its chin across a knuckle, for about as long as it would take someone to break a crust. Then it settles back. It does this every time and has not learned otherwise.
+
+Its age cannot be told by touch, except that the lip has thickened into a hard pad, the kind that comes from years of working along stone. That was the work. An eel in a well ate whatever fell in or grew, the beetle, the worm, the film on the wall, so that the water stayed only water. That is all that sweet meant.
+
+It still does the work. The once a day that it moves is a round: out of the trough, along the wall with its lip to the stone, six hand-spans, four, six, four, under the sharp gap, and back. It keeps its belly to whatever stone it is on, wall or floor or the underside of the shelf. The third rule changed nothing for it, since eels always kept their own down. It has never crossed the middle. For the eel the room is twenty spans around, as it was when it was built, and it may be the only thing here for which that is still true.
+
+Nothing comes off the wall now. The lip passes over the places where stems enter the rock and takes nothing. The stems do not stir, because they are not in its way. Along its flank the fingers find stonewort grit in the same thickness as skin and muscle, and the eel does not flinch from its own side. Its belly is flat and has been empty since the winter, yet it is no thinner. The room takes nothing from anything, and this seems to include the eel.
+
+The head is another matter. Between rounds it lies with its chin on the lip of the trough, directly under the groove in the sill, and the cold thread from the spring runs over its skull. The head is inside the clear patch. From the snout to just behind the eye there is only eel, as there is only stone at the sill. The first stem enters at the gill.
+
+A hand cannot tell whether that patch is clear because the spring is there or because the head is. During the round, with the trough empty, the patch feels no smaller, but the round is short. Each season the patch narrows by a finger, and the eel has not shifted to keep its gills in it. There is nowhere further forward to lie.
+
+Apart from a hand, one thing makes it lift its head, and that is the knock. When the sound comes from the middle, like a full jar set down on wood, the chin leaves the lip and the head turns and holds, pointed across the room, into the depth it has never entered. It heard that sound some thousands of times from this trough. It is the sound a vessel made when it had been filled and was set down outside, on whatever stood there. It always came after the hand. Now it comes without one, and from the wrong side, and the eel faces it anyway, for longer than it waits on a knuckle. Then the head goes back to the lip.
+
+The second length is found on some of the days that follow a knock, though not all of them. It lies in the trough facing the middle. It has the same girth, the same small flush eye, and the same hard pad on the lip, which is what the work would do to any eel. Its head rests past the far end of the trough, in the packed weed. If the first is touched, the second does not start. If fingers are held to the second's mouth, it rises and mouths them with the same file teeth and waits the same while.
+
+The first eel has an old notch in the fin near the tail. On two-length days the tails lie in the same place, in a single thickness, like the stem and the moss. The notch is there, but there is no telling whose it is. The slit behind each head opens about four times a minute, and they do not keep step. On some days they do.
+
+When the round begins, one length goes. Whether one stays in the trough has to be checked with the other hand, and the answer has differed.
+
+The slow change that is moving into the stone has reached it. Toward the tail, along the belly, there is a place the width of two fingers where the fingertips cannot get underneath. They do not feel the eel being held there. It is skin, and then the floor of the trough, flush and cold, with no seam between. The eel still leaves on its round, and that place goes with it. When it returns, the place is back in the trough.
+
+In a few years the clear patch will have closed. The broken slab above will be as sharp as it is now, and the head on the lip will be head and stone and weed in one thickness. The slit will still open four times a minute. The round will still be twenty spans. A hand laid on the sill then will find stone, and stems running level through the stone, and, if it is held still for as long as it takes to break a crust, a mouth.

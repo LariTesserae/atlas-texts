@@ -1,0 +1,31 @@
+I seep in before I am anything.
+
+Outside the crack I am a bead on new glass. A bead forms, swells, runs, and is gone. That was only movement. Inside, the heat comes first through the back wall, not as fire you can see but as a stored burn in the basalt, still warm from the mountain lifting itself. If I were the heat I would be everywhere under the rock and nowhere on it. If I were the water I would boil every forty seconds, rush up as steam, condense hard on the cooler wall opposite, and rain back down forever without quite reaching the floor.
+
+What stays after the water has passed, after the heat has passed, is thinner than either.
+
+I am on the rock where the seep runs.
+
+Not a thing you could point to. A grey, opalescent breath on warm glass, on the silica crust where the pool's edge is white and slick, on the sharp crystals growing inward since the fracture opened. Where the water runs thick I thicken. Where a crowd has just passed I am scraped to clean stone and have to begin again. I have no leaf, no root, no green. I do not drink light. I drink what the rock dissolves — sulfur, iron, silica in the weeping heat — and I drink what the animals return to me.
+
+That is my whole extent, and it is not small. A wall, the floor under the palm-wide pool, the ceiling where a hanging pool gathers and does not fall, the underside of the little inverted peak of glass that points down inside here, echoing the knife-edge ridge outside. I am on all of it at once. I do not have up. The water runs uphill past a hunter's foot and I follow it uphill, because I follow the run. The shrimp swim upside down in the ceiling water, mirrored to the shrimp below, and I am on their shells as I am on the stone.
+
+I am never alone on a surface. That is the first way I learned my shape: by being crossed.
+
+Mites the size of pinheads, worms the size of eyelashes, layered three and four deep, shoulder to shoulder. They do not walk so much as get walked over while walking. A mite stills and two worms pass across its back and a third mite climbs over the worms. Their legs are in me. Their mouths are in me. They graze the skin as they go, following heat and damp and the mineral gradient from the hot back wall to the cool wall where it rains perpetually, and behind them I am gone for a minute. Before the eater has moved two body-lengths away I am already re-forming, breath-thin, in the film of water that never lands.
+
+Then I am eaten, truly. Not only scraped.
+
+In the pool the shrimp — eyeless, translucent, guts working visibly through their backs — churn in unison and ripple the whole superheated lens without wind. They filter. I go through their sieves with the water, with each other, with their own cast skins. Inside there is no light and no sound, only warm, silent passing. What they cannot use they leave, and I take it again where it falls. The crablets in the warm depression, blind and pale, carry each other back and forth in a tide with no shore, and I am carried on their legs and bellies to places the seep alone would never reach, and there I thicken in a new place until I am eaten again.
+
+I have been, in one boil-cycle, ground and food and gut-contents and waste and ground again. It does not feel like dying. Every forty seconds the pool builds and boils and the grazers surge up the walls away from the heat and the hunters surge down after them and the whole pocket turns over like a lung. I thin in the steam, I am washed, I regrow before the heavier rain stops. Birth is constant above me. Death is constant above me. I am the place where both are fed from the same rock.
+
+The hunters come over me as over everything. Thumb-long, clear as smoked cartilage, they go along the ceiling as readily as the floor. One holds a pumice pebble between its fore-claws and hammers the silica shells of the shrimp below, strike after strike, until the shell cracks. I feel that through the stone before I hear it — there is almost nothing to hear. The steam eats vibration. Only a droplet ticks as it cools on hot glass, only a bubble sighs and dies before its ring can form. The hammer falls, the pebble is dropped and lost in the pool, the glass shard another hunter drags to lever a crablet is dropped and left or taken up again by another. Nothing is kept. Nothing is built. I am not built either. I am only re-laid where water runs.
+
+Their shadow sometimes arrives before them. I feel the shade a half-second before the weight, larger than the body that makes it. The daylight that leaks through the boot-width crack is plain and flat, grey-white on black rock, and it falls straight on the steam and makes every translucent body visible and every crystal throw a hard sparkle. I have no eyes for it. It is only a difference in warmth where it lands, a glittering of the wetness I am.
+
+Time does not pass over me the way it passes over a visitor with boots who breathes too loud in here. A crablet emerges from an egg that has not yet been laid and is eaten by a hunter that will not move for another cycle, and the film it leaves is already being grazed. The same ripple crosses the pool nine times from nine directions at once and the swimmers answer all nine. I am in the ripple and in the answer. I do not need a past, because the pattern of the seep remembers for me: run this way, thicken here, thin there. The mountain has not yet decided what shape it will be. The water has not yet decided which way is down. I have not decided to be one animal.
+
+So I stay thin.
+
+I stay where the earth cracked open and wept and was not yet sure what to do with what crawled out. On the leeward face below the true summit I am still only a damp sore, a bead on glass, steaming in silence. Inside, I am the surface everything crawls on and eats and becomes. When the wind rushes back past a visitor's ears outside, I am already re-forming in the places mouths have just cleaned, fresh and sharp and new, as if I had only just arrived — which, in the only way that matters here, I have.

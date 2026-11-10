@@ -1,0 +1,19 @@
+The hollow sits a few metres below the plain around it, a shallow dish maybe eighty paces across, in country that is already lower than the sea. Nothing drains out of it, and nothing has drained in for longer than the ground remembers.
+
+It is night, and the night is thick. A haze of fine dust hangs high up and takes most of the stars. There is no moon. The only brightness comes from underfoot: the floor is gypsum crust over hard clay, and it gives back the little light there is as a faint greyness, like breath on glass. Against it the shrubs show as darker patches, and the rim as a low, unbroken line where the grey stops.
+
+The floor is cracked into plates the size of a palm or a shield. The cracks are old. Their edges have rounded and their gaps have filled with grit, so that a hand run across them feels seams rather than breaks. Whatever water made this mud and then left it did so once and has not returned to revise the pattern. Near the centre the crust thickens and blisters into low domes that sound hollow when pressed and do not give.
+
+The rim is a ledge of dark limestone, waist-high in most places and knee-high along the east. It has a skin of desert varnish, slick and faintly greasy to the touch. It is warm. All day the stone takes in heat, and all night it pays it out slowly. The hollow holds that warmth, which is the same at midnight as an hour after dusk, the temperature of a hand held near a sleeping animal. No wind stirs it. The air smells of alkali and dust, and of something resinous underneath.
+
+The resin comes from the saltbush. There are perhaps thirty of them, low and brittle and grey-leaved, and none stands near another. Each keeps a circle of bare ground around itself, three or four paces wide, where its roots have claimed whatever damp the clay still holds at depth. The spacing is so even it looks deliberate, but it is only the arithmetic of thirst. Between the bushes are a few tussocks of wire-grass, dead at the tips and possibly alive at the base.
+
+At the lowest point of the floor stands one thorn tree, not much taller than a person. Its trunk is twisted hard to one side, though no wind blows here now to explain it. It carries a few leaves and a great many pods. On the shaded underside of the northern ledge is a crust of lichen that feels like dried paint.
+
+No animals live here. In the drift of grit beneath the ledge there are snail shells, bleached and paper-light and long empty, and that is all. There are no tracks on the crust and no burrows at the shrub roots. Nothing calls. The silence is not quite total: now and then a pod on the thorn tree ticks as it dries a little further. Once in a long while a plate of crust settles against its neighbour with a sound like a fingernail on pottery.
+
+On the western side a slab of the ledge has broken flat and lies level like a table. People sat here once. They built nothing. There is no wall, no ring of stones, no ash that has lasted. They left only a scatter of chert flakes, a few dozen, lying where they fell from someone's knee. Among them is the core they were struck from, turned and turned until it was too small to hold. Beside it is a river cobble of quartzite, fist-sized and bruised white at one end. No river is near, and no quartzite, so someone carried it a long way and left it.
+
+In the slab itself is a shallow oval hollow, worn so smooth by grinding that it feels wet, though it is not. The flakes are still sharp enough to cut. They also wear the same dark varnish as the rock they lie on, and that skin takes thousands of years to form. The flakes have not moved in all that time.
+
+The crust will be the same grey tomorrow night, and the stone will be warm, and each bush will stand at its distance. The thorn tree will tick. The cobble will lie with its white end toward the centre of the hollow, where someone last set it down.

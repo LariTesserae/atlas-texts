@@ -1,0 +1,29 @@
+The first answer is the bird, and it is a fair one. It is the grey of wet rock, round as a fist, short in the tail, and it stands on the basin rim dipping at the knee as if testing a floor. Then it walks in. It does not dive. It goes down the wall on foot, head first, wings half open and rowing against the push, and for ten or twelve breaths it is a small shape in the clear water under the white ceiling, working along a crack. It comes out with a beakful of larvae and has shaken itself dry before it reaches the wall.
+
+There are two. You would have to sit a whole day by the ledge of stones to be sure, because they are never in the fall together. The nest is a ball of moss pushed into a chink at the end of the wall's northern arm, where the last stone was set and no other followed. The moss comes from the dying side of the ring, never the living side. The two cannot hear each other, since a call would be gone a wing's length from the beak. So each has a white eyelid, and they blink it at one another across the saddle, and dip, and blink, and that is the whole of their song. The people with their five signs came late to an arrangement the birds already had.
+
+But follow what the bird eats. The larvae are no longer than a paring of fingernail, dark, each standing on its tail in a crack, held by a pad of silk, with the loose end spread into the current like an open hand. They comb the water. The water has nothing in it, except that each knock of the seven stones takes from the floor a dust too fine to cloud anything. The dark film on the walls grows on that dust and on the sun, and the larvae catch what peels from the film. And the stones were carried up the scree in people's hands. Everything alive in the basin is living, at a few removes, off the rough pile on the left of the ledge.
+
+So these are lodgers. Something else keeps the house.
+
+Look again at a larva: a thing fastened at one end, trailing in a flow, feeding at the loose end. Then go back to the lip of the col and look at the rain from the side.
+
+It is fastened at the top. The trembling line holds still, and choughs have crossed above it in every wind there is. What shifts is the foot. In a west wind the foot drags east and the moss ring goes after it, dying behind and greening ahead. In still air it hangs plumb and the roar evens out. It hangs from that line as the larva hangs from its silk, forty body-lengths of it, and its loose end is in the basin, working.
+
+That is what lives here, and it only resembles rain. Under cloud it falls no heavier. When real rain comes, it wets the rest of the saddle and changes nothing in the column. In winter the snow comes down all round it and it goes on through the snow as a dark shaft. The basin stays open, and the overflow builds ice in whichever direction it last chose.
+
+Water is only what it is made of. What it wants is on the floor of the basin. Rough goes in and round comes out, and the difference is what it has had. It takes corners. That is likely why it is found on this rock, which still has all its edges. The spheres on the right of the ledge are what it leaves. People sort them by size and carry some away, and that part of the arrangement is theirs.
+
+It keeps seven. With six the note begins, faintly, to lift. An eighth is thrown out over the rim by the next surge and lies on the saddle, chipped. At any time one of the seven is new and strikes with a crack, one is nearly finished and only ticks, and the rest are somewhere between. Under the water, under the weight on the skull, that is the one sound that is properly its own. Whoever goes down the rope chooses by ear, hands being useless after sixty breaths. They find the one that ticks and bring it up against the chest.
+
+Several times in an hour the stones bunch on one side, the bowl overfills, and water goes over the rim in one piece. That is as near as it comes to a breath.
+
+It has not learned anyone. A person in the basin is struck as the floor is struck. It has never leaned toward a climber or away from one. The only thing it has done about people is stay. In each of the four dimples it stood, finished whatever lay loose, and struck bare floor. The note it made then is not a cry. It is the sound of it working on nothing. Then the line itself shifted, the way a larva shifts its hold, and the column trailed across the saddle until its foot caught on something it could use.
+
+Someone once thought it could be penned, or at least sheltered from the wind that leans it, and began a wall from both ends. Partway through they understood that it stays for one reason, and the wall was left. It is kept the way a fire is kept: by feeding, and by somebody remembering. Whether it is alive is the same question as with a fire.
+
+The smallest spheres on the ledge are from before the rule was understood, when a stone was left in until somebody thought of it. It had worked those down nearly to nothing and was close to going. Nobody takes them, and grit has gathered behind them.
+
+And it is going down. The four dimples are shallow, because in those places it only stood. Here it has been fed without a break, and here for the first time it has a floor that keeps giving. The notched pole that once touched bottom hangs short by a forearm. Each set of seven leaves it a little lower. Of the five signs, one is *deeper*. There is a depth, not far off, at which nobody will be able to reach the floor and come back with hands that can close on the rope. After that the rough stones will be dropped in from the rim, by ear, whenever the note lifts, and no round ones will come out. The right-hand side of the ledge will stop filling.
+
+It will go on down with its seven, ticking, fastened to its line in the dry air under the choughs. The two grey birds will go on walking in under its edge and out again, blinking at each other across the noise.

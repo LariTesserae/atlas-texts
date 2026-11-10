@@ -1,0 +1,21 @@
+Nothing that walks lives here, and nothing that would notice you. What lives in the hollow is plant and lichen, and probably things smaller than either. All of it lives so slowly that in a single night you could not tell it from the stone.
+
+Start with what can be counted: thirty or so saltbush, one thorn tree, one patch of lichen, and a few tussocks of wire-grass that may or may not still qualify.
+
+The saltbush are the main population, and each is a solitary. The grey of their leaves is partly salt. They draw up what brackish damp the clay still holds and push the salt out onto the leaf surface, where it dries to a bloom. The part above ground is the lesser part. Each bush's roots run the full width of its bare circle and deeper than the bush is tall, so the circle is not empty ground around the plant but the plant itself. The floor that looks nearly vacant is in fact fully occupied. Where one circle ends, another's roots begin, and the bushes that never touch in the air are pressed border to border in the clay. There are no seedlings among them, because there is no room. Each holds its place until it dies, and none has died lately.
+
+The wire-grass, if it lives, lives as a knot of crown at the soil line, about the size of a thumb joint. Everything above that is its own dead straw, kept on as shade.
+
+The thorn tree stands where the last water stood, and so where the deepest damp is. Its taproot likely goes down many times its own height. The twist in the trunk is a record of something from when the wood was young, a wind or a lean toward a water table that later moved. The tree has kept the shape long after the cause. It carries few leaves because leaves cost water. It carries many pods because seed is the only thing worth spending on. No animal comes to eat the pods and carry them off, so they dry on the branch, split, and drop. The seeds lie in the grit of the old cracks, hard-coated and shut. Seeds of that kind can wait decades. Since there is only one tree, none has yet got through, but they are alive, and they are the most numerous living things here that you could hold in your hand.
+
+The lichen under the northern ledge is two organisms in one skin, a fungus and an alga. It takes its water from the air on the rare night the air has any to give. The rest of the time it is dry, and when dry it is not dying, only stopped. It might grow the width of a fingernail in a human lifetime. The patch may well be older than the tree.
+
+Then there are the ones you would have to break something to see. Gypsum lets a little light through. In crusts like this there is usually a thin green line a few millimetres down, where the sun arrives filtered and the damp lingers a little longer. That line is bacteria, which wake for an hour after dew, feed on light, and stop again. The hollow domes at the centre are the likeliest place for them.
+
+The varnish may be alive too. Some who study that dark skin think it is laid down by microbes gathering manganese out of the dust, one layer of cells at a time. If they are right, the gloss on the rim is a growth, the slowest in the hollow. The same growth has spread across the chert flakes where they fell. It would be the only thing to have touched them since the hand that struck them.
+
+So the hollow is not empty. It is inhabited almost entirely out of sight, in roots under the clay, a film under the crust, seeds in the seams, and a living skin on the rock. What these inhabitants share is thrift and stillness, and a way of living that needs almost nothing to happen. They are not waiting for rain in any hopeful sense. They are built so that its absence is survivable and its arrival, if it comes, can be used.
+
+No person lives here, and none ever did. The people at the slab sat, worked, ground something in the oval, perhaps seed from the ancestors of these same plants, and went on. The warmth that feels like a sleeping animal is only the limestone giving back the day.
+
+The one inhabitant you can hear is the thorn tree. Each tick is a pod drying a little nearer to the split, getting ready to drop seed into cracks that last held water longer ago than the ground remembers.

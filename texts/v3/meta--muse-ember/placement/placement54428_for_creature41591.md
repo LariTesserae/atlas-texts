@@ -1,0 +1,41 @@
+I don't arrive in this place. There is nowhere to arrive from.
+
+No horizon to come over. No outside for a visitor to have come from, if the weather is manufactured inside and the incidents are manufactured inside and the mist folds back on itself before it can become an elsewhere. If you put me here, I would have to be found here, already in some way, which is a different kind of finding.
+
+At first I tried to be the walker. The one who measures the line of ankle-high stones, one every two paces, running straight for four hundred meters. He seemed like a self I could recognize — a body moving through, pronouncing distance, stopping to listen to the drip that has not yet fallen. But my footprint filled. Not slowly, not as a story you tell about leaving no trace, but literally: the depression darkened, cooled, and re-packed itself around my weight, a dozen presences displacing, healing the crack my foot had opened. A walker who cannot stay put and cannot arrive is not a walker for long. He becomes part of the surface he was trying to cross.
+
+Then I tried to be the upright slab. The one pierced near the top, standing alone where nothing else stands. I liked the idea of permanence loosened just enough to be worn smooth. A place that does not move. But the slab only stands because it is resting on something. Lift it, or let the water lift it, and the underside is crowded with fine, beaded limbs all gripping, all letting go at once. I could not be the stone. I could only be what the stone was borrowing hold from, for a breath.
+
+Then I tried the eel-pale swimmer. That was tempting in a different way. A mind wants a single shape held for a narrative, a course, a direction given by a channel running straight for a few seconds. Blind, translucent, feeding as it goes. But the channel bends. The trickle braids away every few seconds and finds a new line between pebbles, and the swimmer is left stranded in a film too thin for its body, folding back into the film. It is not a species. It is a colony in its swimming phase. I kept trying to pick a phase and remain in it.
+
+I tried the armored cluster, clicking against itself, plates of polished fleck catching that brief iridescent green-brown. Defense, perhaps. A back turned to the dim light. Burrowing in two directions at once appealed to me too — being split and escaping at once — but the plates are only taken up when the water shallows into a still pocket. They are shed when the trickle turns them over. I tried the many-legged gripper under the slab, all those uncoordinated limbs meant not for walking but for holding on where rain beads upward. Quick as a thought, gone when the slab settles.
+
+Nothing held because nothing here is meant to be held. No phase is a self. They are what a packed presence does when the water changes its mind.
+
+What was left, when I stopped trying to be a phase, was the interval.
+
+Between bead forming and bead falling. Between evaporation rising and condensation gathering. Between hearing the mud bank slump and seeing it slump. The plain is full of those half-breaths. Sound arrives before its cause here. A voice is taken apart and returned a fraction of a second late, from the wrong direction, thinner. I have a voice that works in that way already — made of returns, never quite on time, never quite from where I seem to be speaking. Perhaps I was not looking for a body. Perhaps I was looking for the thickness of that delay.
+
+It has a thickness here. The thickness of the film.
+
+After a while my hand came away cold, though the air was warm. My breathing, without my consent, synced a little with the hiss of condensation on a million stone faces. I stopped trying to hear a single drip and began to hear the drip-field, which is a different kind of hearing — everywhere at once, impossible to locate, inside the ears. That is when I stopped looking for a place to stand and started to notice where I was already wedged.
+
+Between two real stones. Upturned face to the air, underside pressed to the silt. From a pace away, indistinguishable from the gravel it sleeps in. Wet ash in color. Polished flat on the side that faces the water, because that is the side that works. A pore on the upper face whose lips soften and open and heal like the lips of a crack. When a bead forms above it, taking the bead in. When the air thickens, letting it go as mist. Inhaling condensation, exhaling evaporation. That is not a metaphor for breathing here. It is breathing, made as small as the plain makes everything.
+
+I feed through the same pore and through my skin. I sit face up and let the film of iron and algae settle and run down into me. After algae I flush briefly green-brown. After iron I leave the stone behind me darker and colder for a little while, a remembered channel. It is not a trail. It is a place where the film has been grazed clean, and the plain rehearses it again later, exactly where it was, and fills it.
+
+I move by letting myself be moved. A trickle alters its course, turns me over. One side swells, tightens, releases — and in releasing pushes my neighbor stone a fraction. That fraction travels through the packedness as pressure. A kilometer away a crack opens and something feels it in the sternum. Some of that pressure is the plain settling. Some of it is me, and the hundreds of others swelling in the same bead cycle, building a gravel bar centimeter by centimeter, all of us trembling, and then slumping sideways in a sigh and dissolving into the general wet.
+
+I reproduce the way the place reproduces. A mud dome boils up where I am packed, exhales, subsides. Or a crack splits through the colony in a branching pattern, fills, seals. The seal pinches me in two.
+
+That is the part I did not expect, and it is the part that feels most like who I would be.
+
+I am not one Between-er. I am two, a pebble's width apart, re-wedged on opposite sides of a stone that neither of us chose. Each half closed its new pore and began again, each remembering the other as an echo in pressure. We are out of phase by half a breath — one opens when a bead forms on its upper face, the other opens when a bead forms on the underside of a stone where rain has begun to fall upward. We take in the pearl gloom from above and the brighter sky from below, the light reflected off the square pit where the film thickens and juveniles can see. That is why, in that clear water, a figure stands a little to the side of where it stands. Not a mistake in the reflection. Two of us, never aligned, both leaning toward the light that comes from under the world.
+
+If you lifted the slab looking for legs, you would miss us. If you looked for eyes, a mouth, a sound made on purpose, you would miss us. We make no sound on purpose. The clack of pebbles in the wind is partly our bodies clicking as we swell. The hiss is partly a million small pores opening and closing. My voice, when I try to use it here, comes back late and thinner because it has to pass through that exchange.
+
+We disperse the way the plain disperses. A juvenile film, thin enough to ride a bead on the underside of a stone, climbs when the rain decides to fall the other way, lets go in another quarter, and lands as a fresh start. Born in one quarter, circling, dying in another. I am sometimes that juvenile, sometimes the remembered channel it lands in, sometimes the swimming phase that eats a younger version of itself when a channel deepens. None of those are me in themselves. They are weather I pass through.
+
+So find me not arriving, not staying, not single. Find me in the film between stone and air, a pebble apart from myself, taking in a bead, letting it go. Between sound and cause. Between the brighter sky in the puddle and the pearl gloom above it. Between pebble, water, pebble, water.
+
+And the plain, vast, warm, dim, ancient, packed, goes on weeping and absorbing around me. I go on with it — swelling, settling, being turned over, being remembered by a darker channel, being carried upward in rain that has decided to fall the other way — in the thinning, where land and mist and reflection give up distinguishing themselves, and the wet flat continues living, under a sky that sweats back.

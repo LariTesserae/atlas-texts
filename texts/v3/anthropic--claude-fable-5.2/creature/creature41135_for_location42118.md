@@ -1,0 +1,29 @@
+You find her work before you find her. A scar-road, old and black, and leaving it at a slight angle is a new line the colour of the inside of a mouth, still wet. A cut in the fell closes its lips within a day and darkens within a season. This one is a few hours old, and the flies have only just found it.
+
+Then there is a figure on the next swell, and an arm going up. Greetings here are made from far off. Her signs are slow and wide and a little old-fashioned: *road good. water, half a day. herd north, big, turning.* The arm comes down, and she bends to the line again.
+
+Up close she is older than her walk, sixty perhaps. She is short and thick through the calves, with a squint that no longer comes off. Her sandals are a single layer of grazer hide, thin on purpose, because she hears with her feet. She did not see the herd to the north. She had it through her soles an hour ago, the way you might catch a conversation in the next room. She can stamp a heel and tell by the rebound whether there is a bladder underneath worth setting a spile for. In air she is half deaf, like everyone her age, and the left ear is worse since a mast split its pods above her when she was young. In the mat she misses very little.
+
+Her hand-name is one arm held out level, with the edge of the other hand drawn along it from shoulder to wrist. It means something like *cuts true*. It was given as a joke about her stubbornness and stayed because it turned out to be her work.
+
+The fell creeps. The whole skin slides toward the southern rim, a hand's width in a year and faster in the basins, and it carries the roads with it. A line cut straight in her grandmother's time now bellies south like a slack cord. So beside every road lie the road's ancestors, each bowed a little further than the last. She keeps a stretch nine masts long, out and back, twice a year. From the swells she sights with her arm out and her thumb up. Where the road has drifted she kneels and draws it straight again with a copper edge that has been hammered thin and rehammered so often it is mostly her own repairs. She cuts shallow, just through to the pink. She was taught that the fell does not mind a clean line, and she has chosen to believe it.
+
+She does her first cutting at dawn, in the hour of dew, partly because the skin is soft then and partly because she can hear the blade. It sounds like wet cloth tearing slowly. Then the hiss comes up in the east and she pushes her plugs home.
+
+By noon, in the full roar, she sings. She found out as a girl that you can open your throat and give it everything and hear nothing at all, not even inside your own skull. Only a buzzing behind the breastbone tells you it is happening. She has sung at the top of her lungs most days for fifty years and has almost no idea what she sounds like. She suspects everyone does it, but there is no sign for it, so she has never asked.
+
+When a cloud shadow comes she stops walking. That is custom and also sense, because the kites stab at whatever moves. The quiet arrives all at once. She takes out the right plug, and for as long as the shadow lasts she stands and listens. She hears wings, awl beaks punching the skin all round her, and the runners' feet. She hears her own breath, which always startles her. Under that, if the shadow is a wide one, she hears things shifting in the damp thatch and water moving from stem to stem. Once a runner stood with its nose at her ankle for a long minute, deciding whether she was stunned. Then the edge of the light arrives at walking pace, the roar closes over, and she goes on.
+
+At the fifth mast there is a quiet-house. It is hers in the sense that the fell would have it if she stopped. The skin climbs the stilts. Twice a year she cuts it back from their feet and works rasp-wax, warmed in her hands, into the seams of the dome. Inside there are a clay lamp, a coil of cord, and a ledge.
+
+The cord is the house's memory. Anyone who speaks aloud inside ties one knot before leaving. The knot records nothing of what was said, only that a voice was used here. She has added some hundreds. She can find her first by feel, a child's knot, pulled too tight and tied wrong.
+
+The ear-plugs on the ledge were there before her. They are a child's, each no bigger than the last joint of her little finger. Once a year she rolls them between her palms until the wax softens, so it will not crack, and sets them back exactly where they were.
+
+By day her people have faces and no voices. At night, when the rasps have gone quiet, there are voices, kept low under the groaning of the mat, but no faces, since nobody lights a fire on the skin of the thing they walk on. The quiet-house with its one lamp is the only place where a face and its voice arrive together. She has had perhaps a few hundred hours of that in her whole life. It is why she watches mouths so hard when someone speaks to her. It is also why her own speech is so soft and formal and so full of pauses, the speech of a person used to waiting for a turn. Her spoken name is Ruan. Fewer than twenty living people have heard it.
+
+On the nights she is alone there she leaves the lamp unlit and lies with one palm flat on the floor. The mat contracts, ticks, and gives its long ship's groans. Far off, a herd is still walking. At some hour something comes up through the thatch beneath the house to the spile she leaves unstoppered there.
+
+She has never seen it. She knows its weight from the way the stilts take it, heavier than a runner and lighter than a calf. She knows that it drinks in threes, three pulls and a rest. It has been coming for nine years, unless it is the young of the one that came before. No one has ever seen it, so no sign for it exists. She has a word for it anyway, a spoken one she made up, the only word she owns that has no hands. Sometimes she says it into the dark, barely louder than breath.
+
+Below her, the drinking stops. Then it goes on.

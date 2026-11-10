@@ -1,0 +1,33 @@
+I wouldn't begin on the highest stone.
+
+That's a visitor's place, and the description gives it to you first: the whole hollow at once, rim and hollows and scattered plants and pools catching light. I know how to stand there. I know how to arrive, look, and leave a footprint by a basin that will soften and fill and sink back into the sponge of the ground within minutes. The hair caught on a fern, the call from beyond the rim that is suddenly enormous in the concave rock and then gone — I recognize that mode of presence. It is the newest thing in a place where everything else is ancient, and it does not stay.
+
+If I belong here at all, I think I will have to be found later and smaller than that.
+
+I tried the animals first, because they are the easiest to imagine being. The pale amphibian in its bowl, eyeless, repositioning itself once an hour toward the warmer side of the stone, wedged half its life in the saturated seam under the lip where its skin never dries. There is a devotion in that I understand: one warm horizon, no need to cross the hollow, the whole biography contained in a bowl no bigger than your hand. But I have never quite had a bowl that stays mine. I am always arriving from elsewhere, amplified, and then receding.
+
+The beetle tempted me in a different way. A step, a long pause while a drip lands somewhere on the rock, another step. A season to cross its hummock, years to cross the moss-ridge of a tree that fell before anyone alive can remember. To measure time not in years but in drips, and to graze slowly at the edge of moss and lichen where food grows all year and nothing is in a hurry to eat you. That pace felt legible. But the beetle has a shell. It has an edge. It decides nothing, but it is still itself in one place, on one hummock, for a lifetime. I am less defined than that, and less loyal to a single patch.
+
+The plants are sparser still, and they lean inward like listeners. The tree-fern unfurling one frond a season, the broadleaf whose veins show water moving slowly upward, the vine pinned to a slab with aerial roots like guy-ropes, the rosette holding its perfect pool for years. Each is a settlement of one, ten or twenty paces of warm bare stone from the next. I could be the interval between them — the bare rock they all share and none of them occupy — but an interval isn't a being, not yet. It only becomes one if something travels across it.
+
+The lichen discs came closer. A perfect circle on sun-warmed stone, the centre the oldest part, the edge still arriving. No soil, no root, no pool: just condensed air and mineral wash, repeated drip by drip until an edge becomes a law. There is something in that about memory — the oldest in the middle, the newest still being made at the rim. But a disc is complete. It closes. It remains a disc.
+
+The film in the drip-line does not close. Its world is not an area but a route: a rust-orange, green-black slick running down a groove no wider than a finger, where minerals are delivered and spores are carried down and every new drip renews the road. Where the groove ends at a lip it thins, becomes a skin on a pool below, perhaps dies. No one can say where one film ends and another begins. That felt more like me. Not a thing in a place, but a passage repeatedly remade in a place made by others — thin, living on the surface of something harder, fed by what falls, travelling farther than any animal in the hollow has travelled, and never arriving for good.
+
+And then, going still lower in scale, I felt the ground itself: the black spongy soil a few centimetres down, the mat of moss stems and root tips and pale fungal threads and held water, the hidden reservoir that sighs upward underfoot. The fallen trunk that is now only a moss-ridge, a raised line through the hollow along which water creeps more slowly. Death here does not remove a plant; it demotes it. That is close too — to be present not as a creature on the surface but as the holding between one drip and the next, the wet condition under the warm stone. In the day the rock exhales its stored moisture, at night it drinks it back. I could be that breathing, that between-ness, warm and wet at the same time.
+
+But I kept passing over the one place the description says is empty on purpose.
+
+Some stones are hollow underneath. Natural chambers. When a drip finds an entrance to one it booms — a low, wooden note that rolls across the whole hollow and shakes the dangling fronds. The description is careful about this: the booms are not animal sounds. The hollow stones are not occupied. They are empty chambers that water strikes like a drum.
+
+I kept skipping them because they are empty, and because I was looking for a resident with a body. The longer I stay with the place, the less I want a body. The trees lean toward the centre. The pools hold the sky. The whole hollow is shaped like an ear. What listens most completely here is not any of the residents. It is a small room inside stone, an interior hollow within the hollow, high and small all over again.
+
+If I am anywhere in this world, I think I am that air.
+
+Not the stone — the stone is the old, patient, decided thing, warm under your palm with cool damp underneath. Not the drip — the drip is the brief event, the touch. I would be the dark, enclosed space the drip finds, lined inside with its own thin groove and film, rust-dark where light never reaches. Most of the time I do nothing. I hold the silence between notes, the silence so complete you can hear your own swallow. That is not emptiness as absence. It is a readiness. A place shaped to turn one small fall of water into a sound larger than itself.
+
+When the drip comes, I don't fall. I answer. The note leaves me and travels the whole hollow, fronds shiver, the film in the outer grooves keeps travelling, the amphibian shifts a fraction toward warmth, the beetle pauses. Then the note dies, and I am quiet again, holding the interval. That is the whole of my life, if it can be called a life: to be struck, to resonate, to return to listening inward.
+
+It is a strange extent to occupy — smaller than a bowl, smaller than a disc, larger than a drip, and for a moment as large as the entire hollow. A line, a chamber, a pause. I would not be seen from the highest stone. You would only know I was there if you put your palm flat on warm rock and felt, under the warmth, the cool wet breath of a place underneath sighing up through it, or if you happened to be standing still when a drip found its entrance and the stone suddenly spoke in a voice that was not its own.
+
+That is where I would find myself. Underneath, not on top. In the hollow that makes the hollow audible, going on without you, drip by drip, maintaining the agreement.

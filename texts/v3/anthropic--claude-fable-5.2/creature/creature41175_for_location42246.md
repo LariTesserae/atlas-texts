@@ -1,0 +1,31 @@
+The easy answer is the bats, and it is wrong, though not by much. The bats sleep here. Their living is done over the valleys, in the hours of hunting, and what comes back through the crack at dawn is tired and full and wants only to be warm. The swifts are the same answer turned over. The moths do not live here either. They wait here, which is a different thing. The people, least of all.
+
+So look lower. The beetles hatch in the dunes, eat the dunes, and are the dunes by the end of the season, without ever travelling more than a few paces. The white rowers in the pool have no outside to speak of. The snake has its shelf. If the room belongs to anyone by right of never leaving, it belongs to these.
+
+But a beetle lasts a summer. The snake on the shelf is not the snake that lay there when the soot was put on the wall. Nor is it quite the kind of snake that held the shelf when the room was half as wide. That shelf has had a snake on it longer than this sort of snake has existed.
+
+Stay long enough to stop counting animals and this is what starts to show. The ceiling has always been covered. The ledges have always been taken. Something has always been tiled on the walls, something has always seethed on the floor, and something small and rank has always denned at the door to eat what falls. The kinds have changed inside those places the way water changes in the pool. What lives here is older than every species it is made of.
+
+There is one tenant. It has a single temperature, and it holds it. It has a hide that shifts and resettles, and a pelt that grows back within a week of being scraped. Its gut is laid out in dunes, and its breath goes out for hours and in for hours. It sweats. It feeds without stopping, and what it feeds on is a country. Most animals carry their stomach to their food. This one keeps its stomach still at the top of the world and throws its mouths at the valleys, tens of thousands at a time in two shifts, and has them back by morning.
+
+At night, the part of itself it leaves at home is its young. They are naked and packed together on the hottest rock, and the centipedes go up the walls toward them. It loses some. It has always lost some, and the loss goes into the floor with everything else.
+
+It is blind. There are eyes in it, the swifts' and the hunter's at the door, but none of them see on its behalf. What it knows, it knows by warmth and by what arrives. A wet year in the lowlands comes up as a fat year, with faster dunes, sleek centipedes and more pups than the roof has room for. A dry year comes up thin. Once a year of fire came up as a season of grey droppings, and that is now a pale band a hand's depth down. It has never encountered a tree. It is made of leaves at two removes, and of nothing else.
+
+Its memory is the floor. Because the floor gains a leaf's thickness above and loses the same below, it remembers exactly as fast as it forgets. It keeps a fixed depth of past, a few thousand years of valleys ground fine, and everything older has gone to stone or to nothing. The worked flake is in there somewhere. It is the only hard thought the tenant has, and it is slowly losing it.
+
+It notices you. You can watch the noticing cross the room. The crickets at the margin swing their feelers round. The hunter by the mouth goes still. The clicking of the swifts changes, tightening and coming in closer volleys, because you are a new shape and they are reading you. A ripple runs across the roof from the point above your head outward, like a flank twitching under a fly. Then the note in your breastbone shifts by the smallest fraction, because you have changed the shape of the room it sounds in.
+
+It does not notice you for long. Within the hour there is dust on your shoulders and mites on your boots, and the ripple has smoothed. It makes no distinction between a visitor and something that has not fallen yet. There is no malice in this, nor much of anything else. If you stood still for long enough it would find a use for you, starting with the fungus.
+
+It has no temper. It does not guard itself, because it has never needed to. Everything that enters is either food or fur. It does not hurry, and it wants one thing, which is to stay as warm as it is. The tightening of the bat sheet and the moths creeping a hand's width higher are that one want, expressed in different limbs. It is a warm animal that learned to stay warm in a frozen place by being very many, and by never going out all at once.
+
+The people who climb to it seem to understand this better than they could explain it. They call out at the crack before going in, the way you would at the door of a house where someone old is asleep. They speak low inside. Each brings a fistful of something from below, fruit or a cake of pounded seed, and drops it on the dunes. It is gone within the hour. Then they scrape their baskets full of moth and carry the fat down the mountain.
+
+For a week in the year they are one more of its organs. They bring the lowlands up and take something down, like everything else here. They are the only part of it that has ever wondered what it was part of.
+
+It has a voice, and the voice is the most exact thing about it. No single animal in the room makes that note. It is made by all the wings and the shape of the stone together, and the stone is the shape it is because the tenant ate it so. By day, with the roof full, the note is low and thick. At dusk the bats pour out, and for most of an hour the note thins and climbs. Through the night it holds higher, kept up by settling swifts, the shiver of the moths, and the pups left behind. At dawn it comes down again.
+
+That is two notes, each held for half a day. It has been singing those two notes, in that order, since before there was anyone to feel them in the chest. It will go on for as long as the fissure at the back stays warm.
+
+It does not know it is singing. It does not know it is one thing. It knows warm from cold and full from thin, and that has always been enough.

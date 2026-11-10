@@ -1,0 +1,33 @@
+If you stay, the emptiness stops being true.
+
+For the first hour, or the first day, it is true enough. No bird crosses except the one raven, high, uninterested. No fly lifts from the moss. The plaza is empty except for dew. The houses are empty except for damp. You walk the bowl in twenty minutes and you think: nothing lives here but green.
+
+Then the cold gets into your feet, and you sit down because there is nowhere else to sit, and you look not across but down.
+
+The carpet is not one thing. Knee-high in the street-swales, lower on the plaza, it thickens wherever a wall holds damp. Moss first, of course — velvet lawns bright where the sun touches them, black-green in shadow, swollen after a squall, tight as leather by noon frost. Through it, fern fronds, cushion plants, herbs with waxy leaves that hold a wick of water all day. It looks like ground cover. It is not ground cover. It is housing.
+
+Everything that lives here lives at ground level, and almost everything lives *just under* ground level.
+
+You hear them before you see them. Not often. A faint scrabbling under the lawn in the swale, a soft give under your boot, as if the moss were laid over a hollow. They have been there a long time. They are blind, pale the color of wet stone, long-bodied and blunt-nosed, with forepaws made for pushing through damp soil and moss that was never soil at all. They do not surface. They have no use for surface. Their eyes are pinpricks under skin, gone to vestige, because fog and dark and moss-root would blind them anyway, and because here sound is more useful than sight.
+
+They live by vibration. Frost heaves a pebble up in the night; at thaw it rocks and drops with a clatter. They feel that through their feet and run to it — not to eat, but to push it back down, to tamp the moss flat again. The drip from a lintel, late and three times repeated, they feel through a wall and answer from underneath. Each hollow house is both home and instrument: they nest in the dark interior where condensation runs *in* rather than down, in the damp that never dries, and they press an ear — a broad, flat ear set low on the skull — to the stone and listen to the wind tune the doorway north of them. A steady west wind makes one wall hum bass. They navigate by that hum, the way you would navigate by streetlights. Their territories are spaced like the houses are spaced, twenty, thirty paces apart, and they almost never cross into another's swale. They are solitary because the town is solitary. The architecture taught them radius.
+
+They eat the roots of the moss, and the fungi that thread the moss, and each other’s leavings, and the slow bloom of lichen on the undersides of walls. Their tunnels follow the old street lines because the stones there are looser, older subsidence made a trough, and the trough holds water. They are, without knowing it, the gardeners. Their burrowing keeps the carpet from matting. Their droppings feed it. In return the carpet keeps them wet, which is the only condition they need.
+
+At noon, for about a minute, the other residents come up.
+
+The sun warms a flat plaza stone a fraction of a degree — enough. A crack sighs, and something small and blunt sits up on the warm face. Pika-like, but not a pika. Low-slung, grey-brown like the stones, fur dense and damp at the ends, paws tucked. It does not fear you. It watches you with complete indifference, which is more unsettling than fear, and it basks while the stone ticks around it as it expands. It is not feeding. It is charging. It lives in the crack all winter, in a lined hollow where its own breath keeps a pocket from freezing solid, and it comes out only to take that fraction of heat into its back, to let its blood move faster for an hour.
+
+Then, in the same heat, the carpet itself wakes at a smaller scale. Springtails jump in the moss when your shadow passes. Mites graze the fern spores. A slow white exhale lifts off the lawns at midday as the fog trapped overnight is breathed out. For ten minutes the whole dish is alive on the surface, loud with popping ice in the puddles, ticking stone, drips answering drips. Then the clouds climb out of the bowl below and drown the rim, the light goes flat, the frost comes back into the shaded hollows, and everything retreats down again except the moss, which never retreats at all.
+
+Above them, barely residents, are the two who do not live at ground level because they cannot afford to.
+
+The wren lives in one of the far twisted trees — not a tree, really, but a leaning pollard in the lee of a wall, its trunk creaking as the stone warms. It is there for weeks, maybe a season, nesting in a hollow where rain cannot drip in. When it sings it is harsh and startlingly loud, far louder than a wren should be allowed to be, and the bowl throws it back at itself so it sounds like two birds arguing across the empty air. Then it leaves, and the tree is empty again, and does not sing. The raven never lands. It crosses high, once, its shadow a brief cold thing on the moss, surveying a place that has nothing for a raven to take.
+
+They are not the community. They are visitors to the community. The community never leaves earshot of its own house.
+
+There are no herds, no pairs, no young raised in the open. The burrowers are born underground, blind, and die underground, where the moss eats them slowly and the fungi take over the work. The sitters on the warm stones are old — you can tell by how slow they are to drop back into the crack, how long they sit watching after the heat is already gone. They have lived through a hundred freeze-thaws, a thousand squalls, and they have learned the only lesson this place teaches: do not move unless the stone moves first.
+
+If you lived here you would stop expecting to *see* anyone. You would learn to listen. You would learn which doorway moans when the wind is west, and know that a burrower is awake underneath it, listening too. You would learn when the dew-basin in the plaza holds enough to drink from without disturbing the skin on it, and that the sitters will come to drink only after you leave. You would move at thaw and be still at frost, because that is what everything else does.
+
+Nothing here is sharp, nothing here flows, and density is all at ankle height. But if you put your hand flat on the moss on a cold morning you can feel it: a slow, patient pulse under the green, a town breathing through its walls, keeping itself damp and listening to itself hum, forever just under the surface of an empty place that is not empty at all.

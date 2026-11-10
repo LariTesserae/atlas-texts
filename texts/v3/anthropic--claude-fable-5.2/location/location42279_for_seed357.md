@@ -1,0 +1,25 @@
+The floor is leaf. It behaves like pavement: flat plates the size of rooms, fused edge to edge, with a raised seam wherever two meet. The seams are sharp enough to cut and still beaded with sap. The plates are dark green, thick as mattresses, slightly sprung, and warm the way a flank is warm. Water stands on them in a film and runs along the seams like gutters, and the whole surface gives back the sky.
+
+Under the plates is stem, and under that older stem, pressed and woody, and nothing else for four thousand metres. There is no rock in this highland. It is one growth that has piled itself this high and is still piling. The basin at its top is shallow, rimmed, and about ten kilometres across. It is only the newest layer, days old in most places and hours old in some. Dust that blows in from elsewhere is sealed under the next plate. Every surface here was made by the thing it is a surface of.
+
+Heat comes from below. Deep in, the mass burns its own sugar the way an arum warms its spathe, only without stopping, and the heat climbs through the wood and out of the floor. The air at this height is thin and ought to be bitter. Instead it is hot and soaked up to about an arm's length above the deck, then abruptly cold, and the weather is made at that border. Steam lifts off the plates in sheets, meets the cold, turns to cloud at head height, and falls as warm rain onto the floor it left a minute before. This goes on in patches all over the basin at once. From the rim six or seven separate storms are visible, none wider than a field, wandering, with plain daylight between them.
+
+Most of the basin is empty. Kilometres of wet green floor lie open, and whatever stands on them stands far apart, a pale vertical here and a low wall a long way off.
+
+Most of what stands has a reason. Where heat pools under the deck, a plate domes and splits along its seams, and a hollow column pushes through. It is cream-white, wet, and ribbed lengthwise, and it rises a hand's breadth with every breath. Within the hour it is forty metres tall and skinning over green, with steam pouring from the top. These are chimneys. Each one drones on a low fluted note that drops as the column lengthens.
+
+Where the deck cracks, each side throws a limb across. The two meet in the middle and fuse into an arch, which is really a suture. Where rain collects, plates cup and raise their seams into waist-high walls, forming cisterns that fill, overflow, and feed the gutters. Along the rim, fin-shaped braces grow out beneath the lip to hold it over the drop.
+
+Other things have no reason. A flight of steps, some forty of them with even risers, climbs to nothing and is gone by evening. Eleven columns stand in a row at equal spacing. A wall has an opening in it with the proportions of a door. No animal has ever crossed this floor and no insect has ever landed on it. Nothing here flowers, since there would be nothing to call. The steps keep appearing anyway, in different parts of the basin, and never with quite the same count.
+
+Everything that stands is fed until it falls. A chimney keeps rising until its own weight and the next squall take it. It goes over full length with a crack that carries to the rim and back, and lies in a settling spray. Then the floor takes it. The plates around it lift their edges, lap over the wreck, and close. In a day there is a long low welt, and in two the floor is flat again.
+
+Elsewhere the heat below withdraws and the deck sags. Plates tear along their seams with a sound like sailcloth, and a pit opens, raw white and steaming, smelling of vinegar and cut cucumber. It heals from the edges inward, and the new plates unroll across it glossy and creased.
+
+Nothing weathers. Nothing is given the time to, so every edge in the basin is a fresh one.
+
+All the noise is structural. The floor ticks constantly as the plates swell. The seams creak. The chimneys hold their separate notes, so the basin carries a chord that shifts as they rise and fall. Rain hisses in its travelling patches, and somewhere there is always the report of something giving way. Between these sounds are wide stretches of near quiet, with only water moving in the seams. No voice of any kind is heard.
+
+The rim is the highest and newest part. Its lip is pale and translucent at the edge and thin enough for daylight to show through. Below it the flank drops away, green at first, then bark-brown, then black with old wet, down into cloud. Water comes out of the flank itself. The mass hauled it up through its own wood, and it leaks from ten thousand old seams and falls in threads. Now and then a length of the lip overgrows its braces and snaps off. It turns once in the air and goes into the cloud, and no sound of its landing comes back.
+
+By late afternoon the stair is half-swallowed. The plates have lapped over its lower treads. Rain is crossing it, and water runs down the remaining steps one at a time and into the gutter.

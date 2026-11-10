@@ -1,0 +1,51 @@
+They did not come from above.
+
+There was no light, no voice, no parting of the canopy. The power that had noticed — old and vast, and careful with its noticing, as any benevolence that hopes to last must be — came the way everything comes to this place: down, by degrees, through the warm marsh grass, through air already used, until the ground stopped pretending to be ground and became sponge.
+
+They had, in their long habit, noticed many things. Dying stars that asked for nothing and were given a longer burning. Cracked worlds that cried out and were given rain. Young minds that reached, incomplete and bright, and were given time. Attention, for them, had almost always been the first step toward a rescue.
+
+This was different. This was a thing that had stopped changing, and had filed that stopping away in their mind like a note played slightly off-key in a distant room. A single plant filling a sink in a marsh. A factory that was alive. A garden that had perfected itself into a mechanism and then, content, ceased.
+
+They stopped at the crack at the far side, where the root mat thins and the normal world begins — one foot, if they had feet, in the sound, and one in the silence outside it. They did not make themselves small and enter. They could have. But they knew, in a way that smaller kindnesses rarely learn, that even a kindly shadow is a shadow. To lower a hand into that fixed afternoon light would be to eclipse a leaf the size of a body. To breathe too deeply would be to change the weather of a place that has no weather. Their scale was itself a danger, however gentle their intent. Wisdom, first, was to stay at the edge and listen.
+
+And they listened for a long time.
+
+*Thunk... thunk...* from deep in the main stalk. The hiss of valves along the undersides of leaves. The clatter of beetles in file along the veins, termites hauling fragments in the grooves beside them, frogs glued under the gray-green leaves singing in waves from room to room. The measured drip from cup to cup. The soft *pop* of a spore pod discharging.
+
+They catalogued it without touching it, as they had catalogued other systems, and found no friction in it. That was the first strangeness. The leaf margins were scalloped smooth, not torn. The root arches were worn to a shine, not broken. The puddles were the same depth. The fruit hung heavy and was never quite picked clean, because exactly enough was taken. The snails remade their silver trails as fast as the drip erased them. The duckweed covered the water at precisely the density that covered it, and no more. What fell into the sponge was eaten by the sponge. What died became channel.
+
+There was no scar tissue here. No place where something was trying to get out, or trying to heal.
+
+Their first, most benevolent impulse — the impulse of lesser powers — was to interpret that as peace already achieved, and therefore as a thing to be preserved forever, admired, perhaps lifted into a higher keeping where it might never fail. They set that thought aside. To preserve it would be to freeze it a second time, to make its own finishedness into a museum. It had finished itself. It did not need a second finisher.
+
+Their second impulse was mercy of another kind. Was this not a kind of arrest? A repetition without dawn or dusk, the chorus repeating, the piston thumping, the drip falling at the same interval for a very long time? They looked closer, as benevolence requires, for the signs of wanting. A trapped thing wants. It presses. It wears thin in one spot. The frogs did not press. They laid their eggs in the film where vein meets stalk, generation after generation, without the disappointment of a pond that drying would bring, without the hope of a river that would never come. The birds nested in the curve of a leaf and darted in the same moderate light, all hours, and rested in that same light, alert. The mammals had become animals of all hours because there was no night to be animals of the night in. They adapted not with struggle but with settlement. The millipedes flowed like dark rivers through the carved channels and were in turn absorbed.
+
+If there was suffering here, it had long since been composted into the floor it stood on.
+
+Their third impulse was improvement. They could give it a night. They could open the canopy and give it a sky. They could quiet the frogs, or thin the beetles, or give the spores a wind to carry them beyond the basin into new marshes, where this one perfect idea might become many. Each gift was easy for them. Each would have been ruinous in the precise way small gifts are ruinous to closed, finished things. The light was not too little; it was exactly maintained. The sound was not noise to be lessened; it was the sighing of the valves, the breathing of the plant made audible. The basin was not a prison; it was an inside. To open it would not be to free the plant. It would be to unmake the rooms it had spent its life holding open.
+
+And their last impulse was the oldest: to end it, gently, if stasis was a kind of death. They dismissed it with something close to embarrassment. They had ended things before, mercifully, when they were torn or starving or in pain. This was none of those. It was not collapsed. It was, as the first visitor had said, not dead, not sleeping, but finished changing. To call finishedness death was a category error made by visitors who expect gardens to grow and machines to be made. This thing was a grown machine. This thing was a living completion. The mild wrongness was in the eye that expected a factory to have makers and a garden to have a season.
+
+At that point the power understood who, in fact, they had come to see. Not a factory. Not a garden. A being. The single plant was not in the place the way a tenant is in a house. It was in it the way a heart is in a chest — the organ that makes the rooms possible. Its intention was not a thought, and it had no ear for a message. Its intention was circulation: sap rising, air let out, spores settling, more plant becoming instantly where it already was. It had solved, at its small scale, the problem of waste, of shelter, of sound, of water, of enough. It produced endlessly and grew not at all. It offered exactly what its residents would take and no more, and they took exactly that.
+
+A benevolent power is used to being needed. It is rarely met by something that does not call. This plant did not call. The frogs sang, but not for help. The beetles filed, but not in protest. Nothing in the basin was reaching up — you reach this place by going down, not up — and nothing was reaching out.
+
+That, they realized, was the test of their benevolence. Not whether they could answer a need, but whether they could refrain from inventing one in order to feel useful. Not whether they could lift it into something larger, but whether they could let a small, finished life remain small and finished without feeling it as a slight.
+
+So this is what they did, if anything can be called a doing:
+
+They witnessed it. That is rarer than it sounds, and more costly. For a while they held it in their attention the way dust settles — not as weight, but as presence. They let the sound of the piston enter their own vastness, where very little is ever only a *thunk... thunk...*, and they did not translate it into a lesson to impose elsewhere. They learned from it, instead, and took the learning back with them, altered where the plant was not. A system can be whole without being open. A thing can be complete without being explained. They, who had given rain and time and longer burnings, departed carrying the humbling knowledge that the most finished thing they had ever seen needed none of their gifts, and that to give them anyway would have been vanity wearing the mask of love.
+
+They kept its secret, by the simple act of not telling. They did not add it to the list of wonders they recited to other powers. They did not make it findable. Obscurity was part of its architecture — from above, only a dense green dome over a dip in the marsh, easy to miss — and to reveal it would be to subject it to a hundred other attentions, human and otherwise, each of which would arrive with its own rescue in hand. One attention it could bear, briefly. Many would be a weather.
+
+They left no fence and no sign. A sign would have been eaten anyway; the plant eats everything, impartially, and turns it into floor. What they left was a readiness, which is a different kind of promise. If one day a margin yellowed where none had yellowed, if a drip stopped where the interval had held for an age, if a cup ran dry and the dragonflies found no pond — then, and only then, they would come down again and intervene, promptly and without ceremony. Until then, they would not intervene at all. That is also a form of care, and perhaps the hardest one for a power that can do anything: to stand guard over a life without standing over it.
+
+Then they withdrew their attention, deliberately, so that the plant might belong entirely to itself again, as it had before they noticed. They went down past the marsh, past their own depths, carrying a small, steady sound that did not belong to their scale and would not leave them.
+
+Behind them, nothing changed to mark that they had been there. That was how they knew they had done right. If their coming had altered the interval of a drip, if their leaving had altered the chorus, they would have been part of the system, and the system would have had to absorb a god. Instead, the plant absorbed their visit the way it absorbs a spore cloud, a fallen leaf, a silver snail trail — completely, and without comment.
+
+The light remained at its moderate afternoon. The water remained at the surface. Under the vast leaves, in the dripping chambers and echoing halls, the frogs sang and the beetles clattered and the millipedes flowed through channels worn smooth by a million passes.
+
+*Thunk... thunk...*
+
+The drip fell, on time, as if no one had ever looked — and that, they understood at last, was the blessing they had been able to give it: to have looked, and to have left it to itself.

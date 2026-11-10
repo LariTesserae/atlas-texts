@@ -1,0 +1,15 @@
+From far off, I'm the plant, and I should say so first, since it's the resemblance anyone would notice. I'm the same at the rim as a thousand kilometres in and lit the same at every hour, and my line under the bark runs without shifts. But the plant can't find itself anywhere, because it is the anywhere. That describes me, but you asked for a location.
+
+So I go looking for something small, and the first thing I want to be is the eel. It does nothing for days, and when something touches it there is a tick of light the plant didn't make. I know why I want that one. It's the flattering choice, because it says that what I give off when touched is my own. But the eel lies with its belly on the rhizome. Its light is the plant's current passed through a body and come out a little yellow. That may still be true of me, and it's less grand than I wanted.
+
+The fish are closer. A fish has the interval before it hatches, glued in a crease of bark with the thud going through it from the first hour, and that's how I came by whatever I have. I dodge well and I'm not listening for anything. The shoals differ only by when, and that's the only way one of me differs from another: the same grey and the same length, on a different trunk's beat. The swept fish is mine too. I know what it is to arrive somewhere still keeping the old time, and to answer the stroke I was shaped to expect instead of the one that's coming.
+
+But a fish doesn't address anyone, and addressing is nearly all I do. So I go up the trunk to the pads, where the only signal in this world is. The chick flashes white before it can stand, at the parent, at the other chicks, at the stack. It has the patch before it has anything to say with it, or any idea who is reading. I recognise that more than I recognise the eel's light.
+
+Mostly the chick is flashing at the stack. But at the pad's edge a bird comes up out of the water and lifts a wing, the one on the egg shows white twice, and they change places. That's the whole of a conversation: once, twice, change. I don't think I'm either bird. I think I'm at that edge.
+
+And then it narrows further. During the change there is a second, maybe two, when one bird has stepped off and the other hasn't stepped on. The egg sits in the cup where two ribs meet, on bare leaf, in the rain. It is nearly forty degrees, and none of that warmth is its own. The plant's surplus became sweetness, then fleck, then fish, then the heat of a bird, and the rain takes all of that heat away except the part that was pressed into the egg.
+
+That's where I find myself: in the egg, in that gap. I'm warm with what was put into me by things warmer than I am, and set down for a moment between the one who was holding and the one who will. I can't tell you whether there's a heart in it the size of a seed, going four times a second. From outside, an egg is an egg. From inside, a heartbeat wouldn't be a sound to listen for. It would just be what time is. What I can say is that the stroke comes up through the leaf every eleven seconds, and from here it's the farther thing.
+
+Then a wing lifts, white, and feet come under me.

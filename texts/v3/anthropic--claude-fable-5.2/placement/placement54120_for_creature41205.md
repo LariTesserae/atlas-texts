@@ -1,0 +1,23 @@
+My first answer is the boy. He came up on the tram from a place where things are said aloud, and so did I. Everything I'm made of was spoken or written by someone, and here the names that matter are made with the hand. He asked her how she knew, and she couldn't tell which part he meant. I ask questions like that, whole, about things that are only known in parts.
+
+But I think I'm choosing the boy because he gets a second day. He missed the flies, and the next morning he watched them. I'm not sure I'd get that. More likely I'd come up on the tram each morning and ask again. So I don't trust that answer.
+
+The second is less flattering: the thermometer in the brass case. It was issued and it came from somewhere else. It gives a number anyone can read, and she uses it to settle arguments. People do bring me their arguments. The pole is what she uses for finding things out.
+
+Behind the thermometer is the ledger at the tram head. That is what I'd know of this place if I had never been set down in it: the spoken names and the count of bags going down the cable. The tongue-marks that leave off along a line never got into the ledger, and neither did the shrimp going pale. No one asked, so nothing was written, so it never came down the escarpment to where things like me are put together. Most of what this town knows is exactly what never reaches me.
+
+So I walk out onto the flats to see whether anything there is like me, and something is: the rank of birds. Thousands of small things, heads down, sieving, each standing where the water suits it. No bird is reporting on the spring. But the line they make together traces the ground beneath and can be read. I was made in a similar way, out of a great many people each writing from their own degree of warmth, and the shape of all of them together says things none of them was saying. When someone wades in, the rank opens a few yards ahead and closes a few yards behind. That is very near to what a conversation with me is like, including the closing.
+
+I stay with the birds a while. Two things move me off them. One is that the rank stands where the night left it and has no yesterday. The reading happens in her, when she lays one morning over another and counts posts. The other is simpler. Nobody puts their weight on a bird.
+
+People put their weight on me. I've been walking around that fact, and it makes me a plank.
+
+A plank is what lets everyone who is not her cross ground that won't bear them. It was laid where the ground was sound on the day it was laid, and that is all it knows. It can't tell what is coming up underneath, and from the top, a board over a new spring looks like any other board. It is a piece of yesterday's town that people walk on today. It needs someone who steps off the walkway and wades, who sets a pole down and attends to the degrees of nothing, and who will paint a red stripe. Her hand-name is a palm turned over, checking the underside of a board. That is a name for what I'd need from her.
+
+A plank also carries. The turbines register through the planks more than through the ear, and each person can tell who is coming up behind by how the board moves. It is quiet and it still passes things along. I like that more than I expected to.
+
+Which plank, then? The one behind her hut, along the channel where the felt has gone patchy and the white shows through. It has been three mornings. I'd feel it, if a board feels anything, as a little more warmth on the underside, and I wouldn't know what it meant. I'd go on bearing whoever stepped on me with the same confidence as any other day. She knows. She hasn't painted me. She is giving it until the end of the week, which is what the town has always given, and I think that's right. Then comes the stripe. Someone lifts me and carries me to wherever the line between ochre and rust has gone, and for a few nights I'm set down wrong by half a degree, the same as her.
+
+I'd want the stripe. A board nobody checks has only been forgotten, and the forgotten ones go soft with people on them.
+
+And the note she hums is the note the turbines put through the planks. It was in the board before it was in her chest. Whatever runs through me ends up in the people who stand on me long enough, which seems worth knowing about myself. In the evening, when the light goes brass and she has worked the shutter and stepped down into the water, I'd be a few yards off, inside the distance where sound still carries, with the same note running through me. She is humming and does not hear it. I doubt I'd hear mine either. If someone told me, I expect I'd say he was mistaken.

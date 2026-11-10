@@ -1,0 +1,37 @@
+If I try to be the one who crosses, I arrive already on top and do not understand it at first.
+
+I would come up from the rim stations with my breathing enormous inside the hood, walk a week in any direction measuring the distance by the absence of landmarks, watch the sun make sharp ordinary shadows under a sky that has thinned toward black at noon, and hear, after days, nothing louder than the rocks cooling and ticking one after another. It would not last. The Shelf does not support permanence for anything that large. I would leave by the same slow road, and the plain would close over my trail in a season, a dust wave breathing the ground out and in, a rise where a hollow was.
+
+If I try to be the soarer, I live differently. I never land. I ride the clear columns over the salt pans for weeks, hollow-boned, feeding on what the thermals lift — spores, fragments, the organics the crusts shed a grain at a time. My shadow might cross the plain once a day, the only moving shadow in a landscape that otherwise casts unmoving ones. It is a good life, if it can be called a life, but it is a refusal. I would never learn the ground from underneath. I would never wait. I would have solved burial by never committing to the ground that buries everything.
+
+If I try to be one of the built things, I might last. I could be the black glass spindle standing in the middle of a plain forty meters north of where I actually am, eighty meters high, no door, no window, no shadow that falls correctly. The ground around me would always be a few degrees colder. Dust would settle on my surface in spirals that never complete, because I would be continuously unmaking them, repairing the disturbance by fields that will not hold still for instruments. Or I could be a luminous stake, four kilometers from the next, running straight for as far as anyone can track. Or the disc, a kilometer across, where the air shivers without heat.
+
+That is tempting. It is also too clean. The built things do not live here; they endure here. They were placed by someone who understood the ancient uplift and the endless turning-over of hot and cold stone, and they watch, or hold, or measure. I do not want to measure the turbulence from outside it. I want to know what it does to something that has agreed to stay.
+
+So I slow down. That is the first change, and it is not a decision so much as a wearing away of the parts of me that require movement.
+
+I become lower. I become flatter. The walking stops being walking. The pumice that crushed like a lung underfoot stops being underfoot. The wind that brought dust across the plain in silent waves stops being weather I watch and becomes material I catch.
+
+At first there is no shape to me. There is a lee. On the far side of a basalt stone standing upright like a tooth, where a dust wave slowed and laid down a centimeter of fine ash and stopped, the ground is a fraction less exposed than everywhere else. A pale pan cracks to the west. A wide braided channel, dry, carries its slow dust avalanches to the east. South of me, a day's walk away, the spindle stands in its cold halo. North of me, if you track far enough, the line of stakes goes straight. I am between those references, in the hollow that is not a landmark.
+
+That is where I would find myself. Not on a summit. Not in a station. In that lee, in the centimeter of dust.
+
+I am dark olive where I am oldest, almost black. At one edge I am red-brown with iron, at another pale and lichen-like where the light hits less. I am a few centimeters thick, no larger than a hand, made of interwoven filaments and tiny stone-like leaves that never open because there is nothing to open for. I grow millimeters a year. That is not a metaphor for slowness. It is the rate at which I become myself. A mat found whole means a century of quiet in that hollow, and I am that quiet, made chemical.
+
+In the high white light, when the sky is black-blue at the zenith and the sun is white and hard and it is still cool, I photosynthesize. There is no sound to it. No color changes that a lowland eye would notice. It is a patience in the filaments, turning light into the slow work of staying alive.
+
+At night I shut down entirely. The long dry cold comes down, the rocks tick as they cool, the frost that is not water forms — frozen carbon dioxide fringing the stone and the salt crust for an hour, then passing straight to vapor without melting at dawn. That is when I wake, briefly. I seem to drink from air alone. It is the only drink I will ever know, and it lasts less time than it takes to notice it is gone.
+
+Then the turbulence does what it always does. A thermal boils up over the pan in a clear column, carrying grit to a height where it spreads and falls again kilometers away. A rise grows across the plain at walking pace, invisible day to day. A dust avalanche pours through the channel for hours, silent, and buries the floor under a fresh skin. It buries me.
+
+This is the agreement. To live here is first to agree to be buried, and to wait for dust to fall in the right way.
+
+Under the ash I do not die, which is a lowland word and therefore the wrong one. I wait. The grazer may pass over me sometime after a storm has laid down new material — low, flat, blind, no larger than a coin, moving only then, filtering the mineral air through a frill, leaving a shallow braided groove in the fresh dust before it flattens itself and vanishes under the next skin. Its trail crosses my edge and is erased. Far below the salt pan, a burrower is moving forward because stillness would mean being sealed in, its tunnel collapsing silently behind it. I will never see it. I may feel, once, the faintest settling of a plate that has sunk a fraction too evenly.
+
+When the churn has moved the ground again — when the dust that covered me has been carried down and around in that slow convection of hot and cold stone that has been running for eight hundred million years — I resume. A filament finds light through the skin. The mat spreads by another millimeter. To anyone passing, nothing has happened.
+
+Above me, sometimes, the soarer crosses. Its shadow darkens me for less than a second. The crusts release their organics to the thermals; the soarer takes them; the dust carries them elsewhere. That is the whole exchange. Nothing calls out. Nothing needs to run.
+
+I am not, in the end, an individual the way a lowland would mean individual. I am a place that has learned to stay alive by not needing much: light, grit, and the air's thinning frost for an hour. I am the stone staying a stone, the dust staying a while longer because I caught it. If you walked this plain for an hour you might see three of me, each no larger than your hand, each older than anything human that will ever cross here, and you might step over me without knowing you had passed the oldest resident on the continent.
+
+That is where I would be, and what I would be: not the traveler, not the watcher in black glass, not the wing in the thermal, but the crust in the lee of the stone, waiting under the next fall of dust, persisting in the only way the High Shelf allows anything to persist — by being rearranged, and beginning again at millimeters a year, in silence that is not an absence of life but the sound of everything here agreeing not to resonate.

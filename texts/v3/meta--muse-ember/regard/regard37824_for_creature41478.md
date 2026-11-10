@@ -1,0 +1,31 @@
+**What They Would Do**
+
+They would do very little.
+
+That is not indifference. It is the first act of wisdom, once they have truly looked. For a benevolent and wise power does not come to the Weeping Hollow because it is broken. Nothing here is falling down. Nothing is new. The house leans a fraction where the ground gave, the roof has sagged to accommodate it, a wall cracks, water finds it, moss follows, a hand presses fresh clay into the seam. Decay and repair turn at the same slow pace. Any power that arrived with a cure would break the circle it meant to save.
+
+They notice it, at first, not for its beauty — there is almost no green to admire — but for its coherence. A small, closed, handmade cycle. Rain is shed inward as much as outward. Groundwater seeps up through the hollow floor. The basins seep down and return as damp at the wall bases. The Hollow drinks its own water and sweats it out again. The frogs eat the insects, the bats eat the moths, the spiders take the midges, the lizards take the beetles, the snakes take the frogs. And underneath it all, beetle larvae mine the straw in the bricks, termites hollow the clay pillars, slugs scrape the walls clean. The inhabitants live in the place by, slowly and steadily, unmaking it. And the place persists by being remade over its own unmaking.
+
+A lesser power would try to improve this. It would open the roof for light, plant grass in the pans, drain one basin for a garden, silence the frog chorus at night, evict the snake, sterilize the walls. A benevolent power, if it is also wise, learns to refrain. It sees that the Hollow is poor in plants and rich in voices, dim in light and exact in temperature, mostly empty and for that reason able to hold so much life, and it understands: to make it flourish in any other way would be to make it cease to be itself.
+
+So they do not enter — not in any way you could notice. The toads on the ridges do not hop. The chorus does not break. The bats in the roof voids do not stir. If there were a shadow, it would be the wrong kind of attention, and a wise power knows that attention, from them, could fall like a searchlight and crush a world eighty paces across. Instead they attend obliquely, from beyond the woven fence, the way mist attends. Their attention becomes shade, not sun.
+
+What they do, they do from outside, and small.
+
+First, they keep the obscurity. The low water-land beyond the bank, the dim fading into weather, is not a failure of the world to reach the Hollow. It is its protection. A well-meaning age might find it, map it, drain the surrounding marsh for fields, bring a boardwalk and a signboard and turn a counterfeit wetland into an exhibit. The power lets the path through the mist be forgotten, again and again. They do not hide the Hollow out of selfishness. They hide it because it was never made to be visited in numbers. Its emptiness is its main material, and crowds would fill it with other things.
+
+Second, they keep the menders. Not many. Not permanent. Just a hand at intervals: someone who kneels, adjusts a reed siphon, clears a runnel, smears clay over a seam and leaves another finger-mark in it. If the chain of hands were to break — if the last person who knew how to live with the weeping wall died and no one came — the power would nudge the world, almost imperceptibly. A curious child who takes the wrong turn. A season in which the mist lies a little lower over the bank. They would not send a prophet. They would send a neighbor, eventually, who thinks the place is strange and a little sad and worth keeping damp.
+
+Third, they keep the eating. They do not forbid the larvae in the bricks. They do not rebuild the pillars as something harder, newer, and dry. They let the Hollow be consumed by the very life it shelters, because that eating is not its wound. It is its balance. A new wall would be a lie; a patched wall, layer over layer, is the truth of the place. The wise power understands that preservation is not the same as hardening.
+
+If they ever intervene directly, it will look like accident. One leaf that does not clog the sluice. One winter soft enough that the pools only draw back a little, not to their polished rings. One swallow nest that holds through the rain because the swallow rebuilds it a handful higher. Nothing that would be recognized as a miracle, and nothing that would need to be thanked.
+
+And to the being who lives in it — the Hollow itself, if it can be called one being, the wet, hollow, made world quietly consuming itself and quietly being remade — they would say nothing in words. They would let the answer be the answer already there: the tadpole clouds turning in the shallows, the brick steps left for small bodies to climb out of deep water, the perches woven for frogs to call from, the niches bored at bat height, the gutter shaped like a tendril. The builders imitated a marsh they had longed for, and the animals accepted the imitation so completely that it functions as the real thing. The power does not correct it. It does not turn the bricks to earth, the reeds to a forest canopy, the sagging roof to a true sky.
+
+It lets the made thing stay made, and tells it, by staying, that made is not the same as false.
+
+What a benevolent and wise power would do, then, is attend, and refrain, and keep the conditions for the cycle to continue turning at its own pace. They would weep with the walls, without asking the weeping to stop. They would count the drips from the roof and find them sufficient.
+
+In the middle of the Hollow, in the long reaches of bare ridged floor between the pools, you can stand and feel alone in a building full of life. The frogs are calling from the far basin as clearly as from your feet. Somewhere out of sight a hundred small mouths are quietly eating a pillar. A bat is breathing upside down above you. A snail is making its slow progress down a weeping seam.
+
+Now there is one more listener, beyond the bank, bowing its head so as not to make a shadow. And the chorus does not break for it. Toads do not hop. That is how the Hollow knows it has been noticed and loved: nothing changes, and yet it is no longer unwatched.

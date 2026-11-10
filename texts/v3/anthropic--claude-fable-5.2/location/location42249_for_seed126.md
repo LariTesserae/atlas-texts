@@ -1,0 +1,25 @@
+The floor of the basin is paved. This holds in every direction for farther than a person could walk in a year. The plates are six-sided, the width of a doorway and pale as bone china, fitted with seams no wider than a fingernail. There is no ground under them, only older plates, and older ones under those, a made stratum going down past anything that has ever dug. Whatever sea once filled this low place was gone before the first course was laid.
+
+The plates were flat and sharp-edged once. Now each is slightly domed, its corners rounded and its surface worn to satin by wind carrying the plain's own dust. From kneeling height it looks like a cobbled riverbed. Taller things stood here once, masts or vanes perhaps. They survive as smooth knuckles no higher than a knee, evenly spaced out to the horizon.
+
+The plain repairs itself. Dust worn off the surface settles into the seams and is drawn down, and each plate thickens from below at the rate it thins from above. The remaking is not exact, though, and every generation comes back a little blunter than the last. Long ago the plain reached the shape where loss and repair match, and it has held that shape since.
+
+The plates take in sunlight and give most of it back, though not at once. At midday the glare comes from above and below together, and there is nowhere to rest the eyes. A shadow lingers after its owner moves on, a dim print on the plate that fills in over several breaths. At night the plates release what they kept, so the dark is pearl-colored and bright enough to read by, with only the strongest stars showing. The brightest hour comes just after sunset, when the sky's light and the ground's overlap.
+
+Heat is handled the same way. The plates pass warmth sideways, one to the next, from the lit side of the world toward the dark side. Noon never scalds and night never cools. The whole plain stays at the temperature of a wall that has had sun on it all afternoon. A hand laid flat can feel the heat moving through, a faint pull in one direction.
+
+At this size the plain makes its own weather. Where stored heat is let go, air rises in columns set out in a lattice, and the dust makes them visible. Hundreds of tall pale pillars turn slowly at even intervals, all leaning the same way in the drift. Between them the air sinks, clear. Bands of stronger glow cross the surface at walking pace, like cloud shadows in reverse. Ankle-deep rivers of dust run along the seams toward wherever the plates have worn thin. When static builds, it discharges as a blue crawl along the plate edges, without thunder.
+
+There is almost no sound. The plates absorb it as they absorb everything else. Footsteps make nothing, and a dropped stone lands with one flat click and no echo. The wind has no edges left to catch on. With an ear near the ground, the hiss of dust moving in the seams is audible. At dawn each plate ticks once as it reseats, and the ticking travels west ahead of the sunrise as a faint crackle.
+
+It never rains. For a few minutes before sunrise the plates run slightly cooler than the air, and a film forms on them, a dull bloom on the gloss that never beads. The plates drink it before the sun clears the horizon.
+
+Perhaps one plate in a hundred thousand stops working. It goes grey, holds no light and draws down no dust. Dust collects on it, and the dawn film lingers a moment longer there. These are the only places anything grows. A grey-green crust comes first. Then comes a wiry plant with rust-colored stems and thread leaves, a hand high, rooted in a centimeter of dust. Each dead plate is a garden the size of a tabletop, dark against the glare and miles from the next.
+
+The plain does not keep them. A new plate rises from beneath, and the dead one is lifted and shouldered sideways, handed from neighbor to neighbor a few body-lengths a year with its garden riding on top. All of them travel toward the collection lines. These are waist-high berms of stacked dead plates, running straight for hundreds of miles. They are the only relief on the plain, and the only shade and soil.
+
+Along the berms the plants thicken into a thin scrub, and the animals live there. A pale, long-legged beetle comes out at dawn and tilts its body so the film runs down its back to its mouth. A sand-colored lizard eats the beetles. High above, a dark, broad-winged glider rides the dust pillars from one to the next without flapping, and comes down only to nest. Now and then a few beetles turn up far out on a drifting garden, stranded for generations and carried toward the berm at the plain's pace.
+
+The berms never grow. The plain takes the bottom plates back down as new ones arrive on top, so the scrub is always climbing, rooting in the newest arrivals while the old ones sink beneath it.
+
+At dusk the gliders descend. The sky dims and the ground stays bright, and the scrub on the berms is lit from underneath, each stem throwing its shadow upward into the air.

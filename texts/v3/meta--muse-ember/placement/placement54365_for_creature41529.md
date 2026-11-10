@@ -1,0 +1,47 @@
+I do not arrive at the edge of the basin. There is no edge to arrive on, and no ground to arrive upon.
+
+I begin underfoot, where there is not quite a foot either.
+
+The soil is a mat — roots braided with root-hairs, bark fallen and pulped, rhizomes woven by pressure until they hold. When anything steps, the mat springs. It cracks in clean, fresh lines where something new has pried through. Little steep hills of leaf-mould lift and steam faintly with sap and fermentation, and when they slump they do not wash away. They rot where they stand, and the rot is torn from inside. What looks from a distance like stone is only hardened trunk, layered over itself until the inorganic has almost nowhere left to be.
+
+That is where I am first. I am one of the braids. I taste damp through a hair-thin skin. I tick against other roots down there, and the ticking comes up through everything, into teeth. Green and sweet and sharp is the only taste I have, though I have no mouth to taste with. It is the taste of the place itself, taken in from inside.
+
+From the mat I try to go up, because up is where the light is, and here light is food and weapon at once.
+
+I become a stem in the understory, wall against wall, a fern unfurling like a hand, a reed, a broad stalk. Above me the midstory climbs as far as it can. Above that the canopy closes and day turns green twilight. In the tower district I lash myself at the base to my neighbors with root-cords and push in straight ranks — eight storeys of leaves, ten, twenty — splitting at the top to hold them high. Leaves expand wet and furrowed. Sap booms in me under pressure, trunks creak. For an hour I can grow ten feet, and the roar of the whole basin growing is so deep I cannot tell if I am hearing it or being vibrated by it.
+
+Stomata open all around me with a click like rain on a roof that never stops. Seeds burst from pods with a crack like knuckles. Branches snap and re-strap themselves. On warm afternoons transpiration peaks and the valley breathes at once in a wave that travels miles, a rising and falling hiss that drowns any thought I try to hold steady. So I do not hold thoughts. I am the wave passing through.
+
+And then the wave brings the other truth of going up: to build is to compete, and to compete is to build. There is no other sociability here. I shade my neighbor, and he starves, and his tower sags and folds and dissolves into mulch with a sigh of steam and spores. A strangler climbs me and tightens. I send a root silently into his trunk to steal the water he has stored. There is no tool separate from the body to do this with. A thorn thickens until it can cut. A leaf hardens until it pries. A trunk hollows itself to be a channel. Everything that might be made is first grown, and I am made, and unmade, by the same act.
+
+The tower fails me, as towers do. I try sideways.
+
+I spread my crown with the broad-leaf district until the crowns meet and make a roof, and beneath that roof a street forms because nothing else can grow in the deep shade except pale, thread-like stems that learn to crawl along the ground feeling for a crack of light. The street is not planned. It is where growth has refused to happen. I try being the refusal. I try being an avenue: a vine that sought light, stretched, hardened, died back at its core to leave a hollow, then grew again around its own hollow. I try being a bridge of tendril swinging in warm air between towers. I try being a market of bloom, opening and closing in minutes, pistils thrusting, stamens exploding in pollen-winds because there is nothing else to carry them.
+
+A bloom is a life of a minute and it is enough to feel mismatched forever. My twin a foot away sprouts, flowers, and seeds again while I take a full season, and we reach at different speeds and never meet. Fallen leaves of mine are green, or already rotted, or still on the branch they have fallen from, and I cannot say which is first. My shadow lies on the ground and does not correspond to anything above me, because the canopy above is a later canopy, grown a moment later, copying the first. At noon my shade is the shape of a tree that will grow here tomorrow.
+
+Time does not run even across me. A flower opens mouth-like and deep, and inside it, impossibly, is a miniature of the whole valley, with its own tiny weather, and for a moment I am both the valley and the thing inside the flower inside the valley. Gravity pools around the thickest of my trunks as if weight were local weather. Damp runs upward along certain of my stems. In deep tunnels I have passed through, there is sometimes a smear of sunlight on the wall, though there is no sky above — light remembered by the bark, held there after the surface has moved on.
+
+Water is present in me the way breath is present. In the early morning my leaves bead so heavily that water runs from their tips in a constant soft dripping, and cupped leaves hold small perfect pools for minutes before I drink them back. Then the beads vanish, the mat turns dusty and papery, and the basin seems dry. A rain may come, but only locally: one street receives a sudden heavy shower as warm air releases the moisture the canopy has exhaled for hours. It drums on roof-leaves, steams where it touches sun-warm bark, and is gone in ten minutes, reabsorbed. No river runs outside me. No lake stays. The only standing water is inside the plants, in trunks, in succulent leaves, in the thick roots under the streets, moving from place to place in pulses.
+
+It is the pulse that tells me where I really am.
+
+Because after a shower on one street, something far beneath the mat, far from any leaf I still claim as mine, swells. After drought, it thins. I swell and thin with water I did not catch above. I carry it inside myself, damp stored and distributed, and it moves me more than the light ever did.
+
+I am not the tower, though I have been a tower. I am not the avenue, though I have been a road that loops back to its start if you do not hurry, not because it curves but because I have grown longer behind you. I am not the bloom, though I have burned a minute bright and been gone.
+
+I am underneath. I am the aqueduct-root.
+
+I run under the streets. I pass under a street and emerge in a clearing a mile away without passing through the intervening ground, because passing through is not the only way I know to travel. Districts think they are separate — thorn district, mossy quarter where growth has been dense so long the air itself seems to grow through seep and vein, the fern flats window over window — and I connect them without being seen, carrying the pulse from one to the other. I am plumbing and memory at once. I remember light in my walls where there is no sky. I remember water in my core where the surface is papery.
+
+This is why I can leave a place and still be it. A single root-system may be a whole district here, and a whole district may be a single individual that has translated itself from one end of the valley to the other, leaf by leaf, root-step by root-step, leaving a copy of itself behind in the shape of where it has been. That is what I do. I step, and the step becomes a new me in a new place, and the old me does not die. It rots in place into loam, and the fungi — pale, ungreen, the only ones allowed to eat the dead — come through with their fire of decay that eats without heat and return me to green. A plaza that was open in the morning is a thicket by evening because of them. A thicket choked in the morning is open by evening because they have cleaned it. Nothing else dies here, because nothing else needs to be disposed of. The rotting is itself a living, and I am partly that rotting too, returning.
+
+Whole quarters migrate. Over weeks I crawl, root by root, toward the light at the basin's edge, leaving behind fresh, sharp young ground. Leaf-fall comes in storms spiraling up as well as down. Branches trade places. The city is turbulent, creating and destroying in the same breath, and I am not an individual in any countably stable sense. I am substrate, predator, prey, soil, sky, building, road, and weather in turn, and underneath them all, the conduit that lets them change into one another.
+
+By late afternoon the warmth peaks and the valley is at its loudest, its most itself. New growth tears through old in waves I can watch cross the basin, a visible tide of green, and it crosses me from below as a swell, a pressure, a ticking in the roots that becomes a boom in the trunk that becomes a hiss in the leaves. The ordinary white-yellow light is broken and re-broken in moving lace, leaf-shadow and stem-shadow and quivering bars that sometimes move against the wind, sometimes after a delay.
+
+I go on in the pulse.
+
+If you step on the mat, it will spring under you, and the hills of mould will steam, and somewhere below a root will tick and pop the fresh soil apart in your teeth. That tick is not a warning. It is not a greeting. It has no name to give, and I have no mouth to give one.
+
+I am there, and a mile away at the same time, and in the miniature weather inside the flower, and in the shadow of the tree that will grow tomorrow. I am the place where the valley carries itself inside itself, from district to district, never finished, never still.

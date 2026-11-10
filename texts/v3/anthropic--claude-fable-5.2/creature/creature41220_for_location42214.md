@@ -1,0 +1,23 @@
+The first answer is moths, and it's wrong the way "fur" is the wrong answer to what a bear is.
+
+A moth is a lowland thing. One alone on this ridge would be dead before it finished folding its wings. What survives up here is the layer: wing shingled over wing, millions deep, a grey pelt lining the inside of the mountain, thick enough to hold heat and to sweat. So begin with that. Something furred lives in the fracture. It is warm, it is forty paces long, and it is hollow, and anyone who enters is standing inside it.
+
+But the pelt is inhabited, and the inhabitants don't behave like parasites. The spiders move through it and take nothing from it. The harvestmen throb in their mats. The swifts hang in it, the bats tick in it, the choughs quarrel at its lip. None of them belongs at this height, any more than the moths do. Each came up the mountain for the warmth or for what the warmth drops, and each adds a little warmth and a little dropping of its own. Count them out one at a time and you never find the place where the creature stops and its guests begin. It is built entirely of things from elsewhere, the way a fire is.
+
+It is also very young. The rock it lives in has not had time to lose an edge, and neither has it. It has a hide and a temperature and not much else that is settled. Its voice isn't its own yet. The wind blows across the slot and gives it one low note, and the wings hunt around that note, over it, under it, nearer, like something practising the only word it has ever heard. It has two pulses that haven't yet agreed. One is the fast, dry pulse of the wings. The other is at the very back, where the walls pinch: the slow pulse of the sleeper, a breath so long it passes for weather.
+
+What it has worked out is how to eat. At this height there is nothing to eat but itself, and a body that bites itself doesn't last. So it eats only what it lets go of. A moth loses its grip, and somewhere in the fall it stops being hide and becomes food, and the floor has it. The choughs walking the blocks take it, or the amber crawlers in the gaps, or the white fungus threading the drifts of old wings. The sleeper wakes, licks the stones, and never lifts its head, though the wall is one reach away and thick with meat. Nobody enforces this. It is less a law than an anatomy, the line between skin and shed skin.
+
+It keeps two memories of people. One is a river cobble, the only round thing in a place where nothing is round. It was carried up from far below by people who knelt on the floor and ground what the floor gave them, and who left an awl and a rag of net when they went. The other is the black flame on the north wall, from the day someone grew impatient and made the wall fall. That patch has never grown back. The first memory it holds the way a hand holds a stone. The second it holds the way skin holds a burn.
+
+It dislikes being looked at. When the sun gets in, it draws its fur aside ahead of the blade and closes it behind, and for a moment the garnets show red in the seam, the way flesh shows when a pelt is parted. A flame is allowed one arm's length and no more. It wants the dark and the cold, and all season it climbs after the cold, a hand's width a day, with the moss coming up behind.
+
+Then there are the pools. Each pocket of water on the floor holds one pale swimmer, a finger long, colourless and blind. Nobody can say how they got here. They take what sinks through the soot-skin of springtails, and there is never a second one. It would be easy to file them last, as the least of the things on the floor. But each is a pale, blind, solitary animal in a pocket of the rock, living on what falls in from above.
+
+The fracture is a pocket in the rock. What lives in it is grey and sightless and can't abide light, and it lives on what the mountain lets fall into it: the cold, the wings that arrive each season, now and then a person. One to a pool. Either the swimmers are the creature drawn small, or the creature is a swimmer that needed a larger pool. That is the nearest thing to its portrait.
+
+It is also the way to understand the silence. Let a drip land in one of those cupped pools and the swimmer goes still, feeling for what has entered its water. Every so often the big one does the same. The wings stop, the choughs stop, the bats stop, and for five or six breaths there is a single drip and the whole cleft is attending to something that has come in, deciding whether it is holding on or falling.
+
+Then the hiss rises again around the low note, which means whatever came in is still clinging.
+
+Keep your footing.

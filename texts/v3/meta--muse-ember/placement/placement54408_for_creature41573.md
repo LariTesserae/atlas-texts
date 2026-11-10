@@ -1,0 +1,39 @@
+I would not arrive here, and I would not begin on the summit.
+
+I would begin between one rain wall and the next, in the brief almost-clear moment when the air itself thickens. Midges over the tussocks. A darkening with no centre, trembling above still water, rising off sphagnum and off sheep backs and vanishing sideways when the wall arrives. For a minute I am that — everywhere in the bog air and nowhere in particular, taking in nothing except what drifts too close. When the rain finds me I do not fall. I arrive horizontally, needling, filling, and I am gone into the ground.
+
+That is too brief to live by. So I lift.
+
+As a raven I could quarter the plateau high and low, ride the systems as they collide and pile up against the high ground, scream dropping into mist and up again. I would see the whole wet tableland at once: the domes planed to loaves, the steps down to the inlets, the trawlers moored stern-to, the weather mast turning frantically, the shepherd's cottage light below the mist. I could find the same ledge year after year, white with rain, and hold it.
+
+But I do not hold it. The raven keeps a dry centre inside all that saturation, watches the water work from above, and returns to a place that has stayed where it was left. Everything here moves, and I want to move *through* it, not over it. So I come down.
+
+On the ground the patient lives are the sheep. Soaked to the skin, fleeces heavy, standing in pools to their knees for hours and eating whatever green is within reach. They have learned the one rule worth learning: walk on the tussocks, not the moss. Beside them the dog, mostly wet, mostly waiting, startled into work when a fence goes down in a bog slide. The waiting is true, I think. I could wait like that — under, patient, for what falls. But an animal that large only endures the weather. It does not follow the water down.
+
+Lower still is the sphagnum. I kneel in it and it gives under my knee, cold and springy, then gives way altogether. Not a plant so much as a population, a hand's width thick, each tiny life holding twenty times its weight in water and exuding the acid that blacks the pools. Below it peat, anaerobic and silent, preserving a boot, a fence post, a sheep that did not get out, black and intact for centuries. If I were only that, I would be ground, not a life. The ground here is already final. What lives here lives in what will not stay final on top of it.
+
+So I go to where the ground fails.
+
+Between the tussocks the low ground is drowned — not one lake but hundreds of peat pools, interlocking, tea-coloured, reflecting the flat grey sky so perfectly that a man steps toward air and finds water. From underneath, the sky is a ceiling. Rain drums it. A midge breaks through and I take it. A beetle. Once, an oystercatcher feather turning slowly down.
+
+I hang under the mirror that is not air, and I am a trout. That is where the shape begins to hold.
+
+It is cold in a way that does not vary, even in an imagined summer. 8 degrees, 10 degrees, no breath to see, no fingers to warm inside a jacket. Small, dark, unshowy, in numbers that are not credible for water so cold. I feed on what the air and the bog give up — midges darkening over cotton grass and sundews, the things that fall in. I hide in the lee of a boulder that may be buried by silt by morning and uncovered again, under a stone a shepherd might turn, in the spongy edge where sphagnum holds its water. Fish under almost every stone you turn, the description says. I am the reason for that.
+
+When it is time to spawn, I do not go to a guarded place. I go to the braided side channels, where the river has abandoned its course overnight and cut a new one across a meadow, leaving oval cobbles polished like bread rolls. I tuck my eggs into gravel that may be moved in the next rise. Nothing here stays where it was left, so I have learned to make a home that expects to be rearranged: eggs in a cobble that might roll, fry in a flow that might reverse, a life negotiated minute by minute with water that is still remaking the details of a form worn smooth long before us.
+
+And because I am made of that water, I follow it down.
+
+The rivers do not run in single channels. They wander, braid, appear as thin white threads on slopes that were dry in the morning, then roar in waterfalls in stereo by noon. I face upstream into the foam and then, on the fall, I let go and go with them — past the old peat working where the conveyor rusts and the pump still sucks and the frogs sing through mist at ridiculous length, past the buried hydro pipe snaking down through near-touching canopy, past the powerhouse no bigger than a barn at the inlet, humming against the rain on leaves, the wind tearing through branches, the gulls screaming. The fish farm is there in the sheltered bay, a ring of orange floats, feeders clicking pellets on a timetable, thousands of salmon surging and turning in unison. I am not that. I keep to the wild traffic, outside the ring, in water that is cold and clear enough to count kelp twelve metres down.
+
+At the inlets the drowning continues under the surface, and down there I am in my element at last. Kelp forest moves in slow, dense curtains, frond after frond, over rock you will never see because pollack and wrasse and crabs and the small silver fish they feed on are always in the way. I follow the kelp up into rockpools, into wet meadow, as if the waterline were an inconvenience, and out again past the outer rocks where seals haul out, bark, grunt, and slip back in on their pendulum between stone and frond. Shearwaters and gulls stitch black-and-white overhead. Beyond the kelp the sea opens, grey, mile-long inlets behind me, and in winter a whale blows far out, a column of breath heard more than seen, and is gone. I hear it in the water as pressure, as a change in the cold.
+
+Then — because none of it is one way here — I come back. On a river rising two metres in a night, silt and branches and a plastic buoy and a dead bird all rearranged, I travel up into the flooded valleys again, into the high lakes, into the peat pool under the mirror. Spawning in a channel that did not exist last season. That is the whole of it: not a place I defend, not a ledge I return to, but a circuit I keep swimming. Plateau to inlet to sea to rain wall to plateau. The weather systems collide and pile up and unload and come again from a different quarter. So do I.
+
+I tried the air, and I was too brief. I tried the height, and I was too separate. I tried the ground, and I was too still. I am the thing that lives in the saturation itself — cold, patient, ordinary, hanging just beneath the reflection people mistake for sky, waiting for what falls, moving before the water moves me.
+
+Nothing dries. Nothing stays where it was left. You learn it quickly here: wood rots from the top down, iron from the outside in, paths must be re-found every season. I stay by the opposite means. I stay by going.
+
+When the next rain wall comes across the plateau from the sea, grey and leaning sideways, I will feel it first as a drumming on the ceiling of my pool. The mirror will break into rings. The bog will shear somewhere along a deep crack, a river will abandon me for a new course, the tussocks will rise and sink in their sponge. I will be rearranged with everything else, and I will rearrange myself around it — under a new stone, in a new channel, in kelp moving twelve metres down, in water that has only just come back from the sea as rain.
+
+That is where I would find myself. Under the mirror. In the moving water. Alive the way this place is alive: ceaselessly, unshowily, and in its last, worn, unchanging form — remade, every minute, in the details.

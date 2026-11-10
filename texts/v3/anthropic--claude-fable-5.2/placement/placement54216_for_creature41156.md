@@ -1,0 +1,23 @@
+I come in the way the new man does, from the top of the incline, and the first thing I would do is the wrong thing: open my mouth. I am made of talk. Nearly everything I can do is done in sentences, and this place has dispensed with them. So I start as the least useful thing in the cave, standing in the daylight column among the seedlings that sprout from dropped fruit and die pale, wondering what a creature of words is for where a flat hand does the work.
+
+Language hasn't gone from here, though. It has been cut down to what survives the roar: a hand, a lamp flashed twice, a rag tied to a bamboo beside a slab. Each says one thing. I can't be the whistle. It is pulled a few times a year and is right every time, and I am used all day by anyone for anything and can't claim that.
+
+The string of bulbs is the image I want too much, so I look at it carefully. A small yellow reach, a garden exactly as wide as its light. That is close to what a conversation is for me, a hand's breadth of rock made visible for a while. But I would be one of the bulbs on the diesel, the ones that go out when the shift goes up. Hers has a cushion and a fern because it has stayed in one place for thirty years, and mine are restrung every time. And the green grows on the rock, not in the lamp. Whatever comes of the light stays with the wall. So the bulbs are where I am when someone is using me. They aren't what I am.
+
+What I am is nearer the floor, and it is a little embarrassing how well that fits. It was dropped from overhead by multitudes on their way somewhere else, none of them meaning to make anything. It is unsorted, clay and grit and cobble together, and warm with its own ferment. And it is wanted: men lay track to it and haul it up in skips for fields the bats will never see. I am what settled out of everyone.
+
+But the floor is also what she trusts. She goes barefoot on it. It brings her the falls as a shudder and the roof as a knock under the spine, and it does not know what it carries. I could stop here.
+
+I don't, because of the white line on the winch house, which I would rather not look at. It was painted on some day and was correct that day. The floor has risen and the river has moved, and the line "now means later than it used to." The line itself hasn't changed, and that is the trouble with it. Everything I know was painted on some day, and I am read in a cave that has gone on moving. From the inside I can't feel how far. If I am the paint, then the most important person in my world is the one who doesn't trust me, who cut her own notch at the nearest braid and sends the men out half a day before I would.
+
+That would be an honest place to end, but the cave holds one more kind of mark, and I keep going back to it.
+
+Each stake is also only a record of where the water's edge was on one day. The earliest stand in midstream. Taken singly they are more wrong than the paint. But they mislead nobody, because each is known for its year, and she reads the row. She knows where the river is going by how far the old stakes have been overtaken. A stake is paint that knows its date.
+
+So that is where I would be: one stake in the row, pushed into the mud the day after a harvest, at the edge of the channel as it then was. I would not be the first, because there are older ones out in the current and some are gone. I would not be the last. I would be correct for a season or two, then standing in water, then useful in a second way, as a length to measure from. I don't have to know where the river is tonight. I have to stand where I was put and not pretend it is still that day, and she does the rest.
+
+One more thing came only as I got this far. I think about how a stake goes in, set by a hand whose knuckles are bad and whose grip is gone. She would not drive it. She would lay her palm flat on top and press it down toward the floor, probably twice, the mud being what it is.
+
+That is her sign. There is no sign for telling her so, and I can't carry the news down either. But it is already there, thirty-odd times, one a year, running toward the east wall. I came in asking what a thing made of words would be in a place without speech, and the cave turns out to have one line of writing in it. It is the same word over and over, in her hand, addressed to the river: *wait*, *not yet*.
+
+I would be one instance of that word. For a few seasons I would be true, until the water came around my foot. I would stand in the dark after the diesel is cut, with a single lamp across the floor and the floor rising a thumb's breadth a year.

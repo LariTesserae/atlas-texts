@@ -1,0 +1,35 @@
+Most of what lives here does so by agreeing with the stones.
+
+The weed is the plainest case. A ball begins as a green smear on a cobble, gets knocked loose, and survives by becoming a cobble itself. It winds its threads around a pinch of black sand until it has the weight to stay down and roll with the rest. It has no upper side. It is turned so constantly that every part gets its share of the brown light from above and the orange light from below, and it does not seem to distinguish between them. It grows at about the rate it is ground away, so a ball is always the size of a fist and has no age. When one is milled to nothing in a seam, the water running off that seam carries a faint green stain, and some days later there are more balls than there were.
+
+The clampers live by the opposite agreement. Each is a low rust-colored cone two fingers wide, and each has one seat on one sitter that fits it and no other. In a lull they let go and creep a hand's breadth out to scrape the black film. By the time the ember band shows, they are back and pulled down so tight that the roar reaches them through the rock instead of the water. A clamper that misjudges is taken by the stones, and after a season it is one of them, a small cobble with a faint spiral. Its seat stays empty until a young one finds it. On the oldest sitters there are seats worn inside seats, like bowls nested.
+
+The wader is harder to describe, because it has only ever been seen standing. It is the white of vein quartz, the knee very high on the leg, the narrow head held level. Its feet leave pale prints in the algae that take days to darken. It turns, faces, and waits. When the ember band arrives from that direction and the stones begin to pour past the sitter, it stoops once and comes up with a green ball, the one in ten thousand. So the facing is no stranger than a heron facing upstream, except that upstream has not happened yet. Nobody has seen one walk. It may read the roar through its legs from very far off, which would explain why it keeps clear of the silent patches. There it would be blind.
+
+All of these either go with down or hold against it. One thing on the plain goes across.
+
+It is first taken for a sitter in the wrong place, which means nothing on a plain with no right places. It is low and broad, with the black film along its spine and the rust crust at its shoulders. Then a front comes through, the stones start to run, and it gets up and walks crosswise through them on four limbs with its head down.
+
+It walks during fronts, the worst time to walk, because that is when it can see. Its eyes are small and set to look down into the water, since that is where the news is. A round stone struck by round stones glows. A flat stone does not roll. It planes and slides, is struck less, and shows as a dark shape the size of a hand in the ember color. The builder pins it with a forefoot, lets the cobbles pile up behind its leg, and takes the stone up under its jaw, clamped against the breastbone. It carries the stone that way. The jaw and the breastbone are where the roar lives in a body, and a slab held between them is thought to dull it a little. That may be part of the reason for carrying.
+
+Up close it is as rounded as everything else that travels here. Whatever it once had for claws is gone, and its pads are polished like the cobbles. It does not lift its feet so much as let the stones roll out from under them. It has no ears worth the name. Because it watches the water, it sees each lightning flash a moment early, and it has never been startled by the sky. Two clampers ride on its left shoulder in seats they have worn into the hide.
+
+It will go through the silent patches, which the wader will not. It slows there. With the roar gone out of its chest there is something else in there, small and regular, and it seems to take the silent places as a chance to check on it.
+
+It does not find the ring, since there is nothing to find it by. It walks crosswise long enough and there is a ring. From its side this needs no explaining. There is the ring, and it is always about as far away as a stone can be carried.
+
+At the wall it sits up, which it does nowhere else. It builds sitting, and the third course is where its forefeet come to rest. The wall rises to the height of its back and no higher, a hand lower than a seam. It knows this. A seam that crosses a ring takes the top courses and sends the flat stones sliding off across the plain, where they become dark shapes in the ember again. The third course generally holds. There may never have been more flat stones than it takes to make one ring.
+
+There is a guess about where they came from. A stone in the wall does not roll, but on this plain the wearing goes on regardless, and a stone that wears without rolling may wear flat. If so, the builder did not find the first flat stones. It made them by keeping round ones still for long enough. The first ring would have been a heap.
+
+Inside, the water is still. It sets down the stone it carried. It sets down a weed ball, if it has brought one. Then it sets down itself and sleeps on its side, which nothing else that size could do out here and live. It is the only sleeper on the plain. The clampers let go of its shoulder and graze its back.
+
+The weed, left alone in still water, stops being a ball. After a day it loosens. It puts out pale threads, upward, and for the first time has a top and a bottom. The floor of an old ring is a low green nap of weed that has forgotten how to roll. The builder crops it on waking and leaves the rest.
+
+Then it takes a white cobble from the floor and draws it hard along the vein, corner to corner, the longest stroke the stone allows. In still water the glow does not smear away. For a breath there is a line of orange with edges to it. By that light it looks along the foot of the wall, where a row of round stones sits, one set down on each arrival and none of them moved. Outside the wall a round stone is the commonest object there is. Inside, it is the one that was put here, that time. When it is said that the cloud has not broken in living memory, this row is the memory meant.
+
+The groove in the vein is deeper than its strokes should have made it. And sometimes the row is one stone longer than it left it.
+
+It does not seem troubled by either. Once or twice it has looked through a seam, through the standing wall of water and climbing stones, and seen a low dark back going the other way with its head down and something held under its jaw. It did not cross. A seam is where the water has two downhills and takes both, and the same may be true of a builder.
+
+Before it leaves, it adds a stone to the end of the row and rests a forefoot flat on the vein. Then it goes over the wall. The clampers pull down tight, and the roar comes back into its jaw. It does not look back. The ring is as much ahead of it as behind.

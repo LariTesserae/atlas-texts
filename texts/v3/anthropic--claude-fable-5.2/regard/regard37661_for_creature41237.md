@@ -1,0 +1,31 @@
+What comes, comes on the level. It has watched the hawk from a long way off and knows what anything overhead costs this place, so it crosses the dome at the height of the sand pans and settles on the rim without a shadow. Nothing stops, and the plate stays wet. This is the first thing it does for the hollow, and for a long time the only one.
+
+It stays one full round of the year, through the cloud mornings, the dry weeks and four storms. It hears all of it, including the larger share. The bats at dusk are louder than everything else in the bowl combined. It hears the hollow sink by a tone as the tanks draw down. In the worst week it counts the orange frogs that slide into the water they sang from, and the count is forty-one.
+
+It looks at the plate without touching it, and learns roughly how the thing works and nothing about why. Intent does not keep in an object the way an edge does. Whether it was a dish or a dripping tap, the difference has worn off by now, like every other edge on the dome.
+
+It gives more attention to the pedestals. Whoever stood here while the floor was a hand's breadth higher was at least as able as the visitor, may well have been as kind, and very likely meant to come back. The visitor takes this for the most useful fact on the plateau and makes a rule of it. Nothing done here may depend on the doer staying.
+
+The rule disposes of most things. It could send a storm up the cliff in the worst week of every drought. The hollow would shape itself around that storm within a few thousand generations, and then one year the storm would not come. It could stand guard over the pegs. Both are the offer the plate already made.
+
+It could stand the fourth peg up, which would take no effort. The ring would close, the plate would presumably do properly whatever it was set to do, and the wet line on the uphill slope would not appear again. It leaves the peg in the sand. It leaves the beads alone, and the parrots alone with the beads, having found no way to make that arrangement safer that did not also make it somebody's job.
+
+It could open the plate and make the water free. It spends longest on this, because of the forty-one. What decides it is a pair of parrots on the north lip. For a year it has listened to them scream into each other's faces with their eyes half shut, and it cannot find the place in them where the screaming hurts. The loudness is not the injury. On every other pan of this dome a thirsty animal goes quiet, gets into the shade, and nothing answers. Here whatever is dry cries out and is answered, to the millimetre, every time. The visitor has seen a great many places and very few where that is true. The trouble is narrower. In the weeks when the hollow has least, it is charged most.
+
+So it does two things. Both are in the dome's own stone, and both are of a kind the weather might have got around to.
+
+On the western rim, where the dry-season wind comes over, there is a joint in the quartzite. It opens the joint into a slot as long as a forearm, with one lip undercut. When the wind is above a walking pace the slot sounds a single held note, about as loud as thirty frogs. The wind has always been on the rim and has never been loud enough to count. Now it counts. The plate cannot tell a slot from a throat, and through the afternoons of the dry weeks, when the wind is steadiest, a thread of the film on the plate is water nobody paid for.
+
+It tunes the note to the hollow at full tanks, the pitch of the morning after rain. Most of the year the note sits inside the chorus and cannot be picked out. As the tanks draw down and the frogs sink, they sink away from it. It stands clear above them, the one voice in the bowl that is not hoarse. The night the storm comes they climb back up and cover it.
+
+The second thing is on the far side of the gap, on the line the floodwater takes across the dome before the hot stone has it. There it opens another joint, a hand wide and an arm deep, lying under its own overhang. After thunder it fills, and in the shade it holds water for weeks, not a day. It is too narrow for a wing. The swifts and bats must still come to the plate and pay, and the hollow goes on being fed. But a shrimp can live out a long life in it, and a frog can get into it, along with anything else that is small and has nothing to say. For the first time since the pedestal was level with the floor, there is standing water on this rock that is not measured against a voice. If the plate ever stops, the slot will still catch what real rain there is. That would not carry the hollow, but it might carry a seam of frogs.
+
+It does not know whether either cut will matter. The measure would be taken a few thousand generations on. The count in the worst week might be lower than forty-one, or a female cicada somewhere on the three trees might keep her wings still and live. It will not be here to take it. Both cuts have edges, and nothing on this dome keeps an edge. In a few hundred thousand years they will have rounded off into two more shallow pans, which seems to the visitor about the right term for work done by a stranger.
+
+On its last evening it stays for the bats. They come out of the seam in the south wall, the frogs reach their peak, and the plate runs over on all sides at once. For one year the hollow has had an audience that was not a dish. Nothing in it knows this, no frog was less thirsty for it, and the visitor does not pretend otherwise. It listened because the thing had been calling since before the lizards were lizards, and no one had ever heard the top of it.
+
+Then it leaves the way it came, low across the rock, before the moon is high enough to give it a shadow.
+
+In the next dry season the hawk comes over. Everything stops within half a second. There is the wind on the rim, the dry ticking from the pegs, and from the west one held note. It is the only part of the hollow's voice the hawk has ever heard. On the plate a dry margin appears at the edge and widens inward, a little more slowly than it used to. The hawk drinks, and leaves.
+
+After a minute a frog tries a note, a full tone under the wind, and the others come in beneath it.

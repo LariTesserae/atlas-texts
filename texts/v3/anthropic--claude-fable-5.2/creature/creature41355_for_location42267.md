@@ -1,0 +1,25 @@
+Start with the ones you can count, because they will tell you where to look. The martins have the upper vault, the bats the gaps below them, the frogs the groove, the eels the foot of the wall. They are lodgers of the stone. Every one of them holds an edge and keeps its back to the same thing. What lives here is what they keep their backs to.
+
+It can be measured. It is as wide as the oculus and as tall as the room, a cartwheel across and an ash high, with its foot in the pool. At dusk you can see its side, because the bats going up and the martins coming down draw the same line with their inner wingtips and neither crosses it. It doesn't lean or drift, and rain falls through it without bending.
+
+At first it seems to be only an absence, the place where nothing is. Then it seems to be the echo. But the echo belongs to the wall, which does the throwing. The middle is where everything thrown lands. Every sound in the dome is made at the edge and arrives at the center a breath late, from all sides at once. A frog heard from there is not to the left or the right. It is everywhere, evenly. A bat cannot steer in that, because it would be like flying inside another animal's head.
+
+That is close to the fact. What stands in the column is a hearing. It has no front or back, because nothing reaches it from one side only. It has no mouth. The low note is not its voice, only the wind sounding it, the way breath sounds the air in a jug. It is the one thing under the dome that does not live on midges. All it does is receive what the room does, whole and one breath late.
+
+The lateness is its whole character. It never has the call, only the return. It has never been present at anything. It knows the room as the room was a breath ago, and it cannot keep even that, because the next arc of frogs is already arriving on top. Its memory is one breath long. Everything else here remembers better. The slate keeps the groove, the clay keeps the thumbs, and the causeway keeps three generations of timber. The oldest tenant has the shortest memory in the building, and has been refilling it since the last course was laid.
+
+It began then. It did not come in off the fen. When the walls were waist-high and open to the sky there was nothing in the middle but weather. Somewhere in the upper courses, as the ring of sky narrowed, sound stopped leaving and started coming back, and what came back began to meet. The builders must have heard their own hammerstones answer from the center of the floor. They kept laying. They put in no hearth, no bench, no grave and no post, and I think this is why. Anything stood in that room would have been stood inside someone.
+
+In its first centuries it must have been vague. A dry-stone vault leaks at every joint, so its edge would have been soft and its lag smeared. The martins have been sealing the upper third with mud and spit ever since, one cup at a time. They will not touch it, and they have been finishing it. It is more definite now than its makers ever knew it.
+
+It has states. In dry weather it is tall and slack, and when the wind sounds it the note is almost too low to hear. After rain the floor comes up through the joints and it stands between two discs of sky, the one above and the one mirrored below. The rising water shortens it. The note climbs, and it tightens.
+
+At a certain pitch the frogs stop. I don't know what they hear in it. Perhaps at that height the note fits the wheel they have been turning and the wheel would finally close. They withdraw all at once, and for one breath nothing arrives in the middle at all. Then the silence arrives, late like everything else, thrown by the wall from every side. It is the only thing the hearing ever receives that is its own shape. I can't tell whether that is rest. The frogs don't leave it long.
+
+The heron knows something. A heron understands a thing that stands in water and waits without moving. It comes to the mouth of the channel, looks down the length of the floor at the grey column, and comes no further, as it would not crowd a larger bird at a pool.
+
+If you wade to the center, you are not approaching it. You are standing in it. It does not move aside, having nothing to move, and it closes over you. You are the rare thing in its life that makes a sound from inside. It takes your breath and gives it back from everywhere a moment after you have finished, having kept it as long as it keeps anything.
+
+I think this is what the causeway was relaid for, three times over. People came out across the cuttings to stand where they were heard completely, and to hear how they had sounded just now. It does not answer, and it will not know you once you have gone. But while you stand in the pool it attends to who you were a breath ago, with the same attention it gives the frogs, the drip and the rain.
+
+Then you bend and wade out through the cold channel. The last splash you make arrives in the middle of the room after you have left it, and is the only part of you it keeps.

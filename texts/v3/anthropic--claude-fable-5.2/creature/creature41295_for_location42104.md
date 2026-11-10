@@ -1,0 +1,21 @@
+At first it reads as more garden. In the largest quiet ring there is a heap the color of the dusk, long as a curled body, furred rust-red along its upper side. The strap-leaves lie in heaps like that. Then its flank rises and falls, about once for every four times you would expect.
+
+So it is an animal, sorted like the others. It lies in still air with its throat down and its jaw against the cushion, the same posture as the lizard. But the lizard has no hand, and this has one, tucked under the cheekbone. The thumb is broad and flat at the tip, and it would fit the prints in the plugs.
+
+She is small, or has become small. She fills the hollow exactly, because she made it by lying there. She is dry, like everything here. Her skin has the bone color and dull shine of the wax stalks, and she smells of pitch and orange rind, because the amber oil is all she has taken in since the slab. She has never broken a stalk for it. She eats the joints the stalks let drop and the moths that fall from their rows, and nothing else. Her hair has gone the gray of the moths and breaks instead of growing. It lies around her head in the same curve as the dust.
+
+The dust settles on her as it settles on anything that stays in still air: glass grit, moth scale, frass. The felt has started on the dust, along her shoulder and hip. When she gets up and crosses bare glass, the note shakes her clean, so the depth of the felt on her tells how long it has been since she last rose. It is deep now.
+
+She does not hear. The note took that long ago, and it left her what it left the lizard. Through her jaw she gets the crickets filing in the stalks and the beetles turning at the end of the band. She cannot feel a moth fall. She can feel the one that climbs out of the felt under her cheek to replace it.
+
+When she does rise, she walks her band end to end, like the beetles. She keeps one hand out, feeling for the place where the air starts to shake, the way a person feels for a wall in the dark. She crosses open glass flat and fast. At the center she can stand, and when she raises her hand the ceiling beards touch it.
+
+She came in as someone who checks. Every made thing in the room is an instrument for catching change. She closed the crawlway with wet clay, the last wet thing ever to enter. She struck blades off the ledge and laid them at the edge of a garden band to see whether it would creep. She cut the flute to the room's pitch, so that if the note ever drifted, the flute would be heard. She scratched one stroke on the wall for each sleep.
+
+The instruments reported nothing. The growth neither crossed the blades nor drew back. The flute, blown, stayed silent. After forty-odd strokes she noticed that the tally was the only thing in the room getting longer. Everything else here is paid for, a joint for a joint and a moth for a moth. Nothing was falling away at the other end of the tally, so she stopped it. She had not lost count. She was balancing the count.
+
+One other thing in the room is not replaced, and that is her. Nothing waits in the felt beneath her to take her place. She has handled that the only way the room allows. She uses herself up as slowly as she can, breathing a quarter as often and rising less, and she takes only what has already fallen.
+
+It would be wrong to call her a keeper, since the room needs no keeping. She is the one thing in it with thumbs. The moths are held in place by the air, and the lizard could not pull a plug if it wanted to. She could do it on any waking. Whether she set the plugs or found them, she has laid her thumb on them and never pressed. It was vigilance once. Now it is only where she lives, as the moths live in their rows.
+
+Somewhere after the tally stopped, she began sounding the note herself. It was already in her breastbone, and she let her breath go out along it, low and reedy and exact. Like the flute, it cannot be heard, even by her, and she does not know when she is doing it. If she ever fell off pitch, there would be a slow throb between her and the room, and she would hear herself for the first time since the clay was wet. That has not happened. The flute lies on the bare glass where she last put it down. She no longer needs it to check the room, because her own chest does that with every long breath.

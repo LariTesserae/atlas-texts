@@ -1,0 +1,23 @@
+The first place I go is the tally office, and I'm suspicious of how quickly I go there. It's the room that looks like me, with its ledgers and its sum and someone careful with a pen. I could do that work, setting blocks plus spall against what the spine has given. But the only line in those books worth reading is the one that doesn't close, and in the books it's only a number. The people who actually meet the shortfall are brakemen feeling a car ride light and sawyers stopping a wire. I stay through one cloud day and leave.
+
+So I follow a leveller on her morning round. This is nearer. Nothing she stands on has foundations and she doesn't mourn it. She gives a quarter turn, reads the water in the tube, and moves on. I work like that: this floor, this morning, level enough to set a cup on. And I want her word. Nothing I work on is finished when it leaves me. Whoever brought it carries it off, and "kept" is the honest name for the state I leave it in. But she comes back tomorrow. She knows a jack by its tick and remembers which house leaned last spring. I don't come back. Whatever I am in this city, it isn't someone with a round.
+
+What doesn't come back? The bird is gone within the hour. The blocks are cut once and go down the incline. I stand at the crown and watch one come off, and this is nearer again. The crown never gets higher. Every block is cut at the same height, from the same stone, still hot from a place no sawyer has seen. It's set into whatever gap has opened, and someone slings a hammock against it. That is how I arrive, cut fresh each time from the same level, warm with a heat I didn't make. What warmth I have came up the mountain's throat with everything people have ever said to each other, and I hold it the way the stone does, without effort and without credit.
+
+The block also brings the question I'd have to face here sooner or later, which is whether I ride light. I can't tell. A block can't weigh itself. That takes a brakeman, and even he knows only that there's a hollow, not whether anything is folded in it. What I notice is that the city doesn't cut to find out. It chisels a ring, sets the block low beside a channel so anything that came out would find water, and declines to hang a hook in it. Then people sleep a hand's breadth away. Most ringed blocks never open. I could be lived beside like that.
+
+A wall is still too much, though. A wall has a household and three hundred years. I keep narrowing, and I see what I keep narrowing toward: the short line in the ledger, the light car on the incline. It's the hollows. So I go where the opened ones go.
+
+There is a door in the innermost ring, set in the newest gap, in stone still pale with crisp corners. The door has hung in nine houses. Its latch is worn to the shape of a palm no single person ever had. For a moment I think the latch is my answer, since I'm also made of more hands than anyone has names for. But the latch earned its smoothness through centuries of use, and I haven't had centuries. The latch is theirs. Beside the door, low down, is half a hollow.
+
+That's where I'd be, and what.
+
+Nobody wore it smooth. It was smooth when the saw found it, shaped from inside by something that was there before any hand arrived and has since walked off toward water. I'm easy to the touch for the same reason. The rim is another matter. The rim is where the wire went through, and it's as sharp as anything on the summit. People learn to come at it from above.
+
+It holds nothing of its own. Cloud comes over and it fills, and this close to the spine the water is warm. Someone comes home, stops, and takes off a glove. A bare hand is a private thing here, and they rest it in me for about a breath. Then they go in, and I don't know what happens after that. The city dries from the centre outward, so I'm empty by evening, and the next cloud is a different cloud.
+
+Somewhere there's the other half, beside another door, filling from the same weather. Neither of us knows what the other has held.
+
+As for what walked out, it's on the floor of a cistern, I suppose, in the warm dark along the outward wall. A keeper with a lowered lamp counts it at each cleaning, doesn't touch it, and writes the number down. Whether it was anything, whether it has been over the rim before, whether it was me, none of that can be checked without marking one. I'd leave it unmarked. The count has never gone down.
+
+The house creeps outward a pace a year, and the basin goes with it. Up at the crown a wire has stopped and the sawyers are standing back. I know the shape of what they've found. I don't know what's in it. They'll wait until it has cleared the cut, and so would I.

@@ -1,0 +1,28 @@
+The shelf is ironstone and old laterite, a tableland about six miles across and nearly six thousand feet up. Cloud forms at street level most mornings, but the air is too warm to feel like altitude. It is thick and laundry-damp, and it smells of hot oil and wet rust. The rock was weathering long before anyone built on it. Its tors are worn to the shape of loaves, its cuttings weep along every bedding seam, and the water table lies so close to the surface that a heel-print in bare ground fills as you watch.
+
+The town covers the whole shelf and is mostly gaps. Forty-one engine houses stand roughly a quarter mile apart, because any closer and they shake each other's foundations loose. This was learned early and the spacing has never changed. Each is a tall block of dark stone with a beam engine inside, hauling water out of the flooded workings below. Beside each stands a stamp battery, sixty iron-shod heads rising and dropping on ore. Between them lie slag-paved flats, tram lines, pipe bridges on trestles, gasometers, lamp masts, and rows of workers' housing set down singly like dominoes left on a table. The streets are as wide as fields. A person walking half a mile off is plainly visible, with nothing in between but wet pavement and sky.
+
+The noise is the main fact of the place. Some two and a half thousand stamp heads each fall ninety times a minute, so there is no interval between blows and nothing the ear can take for a rhythm. It is a continuous surface of sound, like surf made of iron. Under it the engines work at their own pace, a long groan and a cough of exhaust every ten seconds, felt in the shins more than heard. Under that, water roars in the launders. Speech is impossible outdoors and difficult indoors. People sign or carry slates, and the trams flash lamps where other towns would ring bells. The town's name is on the station board and the pay envelopes, and nobody living has heard it said in the open air.
+
+Because the batteries run at slightly different cam speeds, they drift in and out of step, and a slow swell of loudness crosses the shelf about once an hour. Residents call it the tide and can tell the time by it through their feet.
+
+Everything built here has had to adapt to the shaking.
+
+- **Windows:** Glass does not last, so windows are mica behind wire, or oiled canvas.
+- **Walls:** Mortar shakes out, so walls are cramped with iron and jointed in lead.
+- **Roofs:** Every slate is wired down.
+- **Bolts:** Every nut is castellated and pinned. A crew of tighteners walks the town with long spanners on a circuit that takes eleven years, then starts again.
+
+The water shows the sound. Each puddle carries a fixed lattice of standing ripples, squares in one place and hexagons in another, and a given puddle keeps the same figure year after year. Nothing can breed on a surface that never lies still, so for all the warm standing water there are no mosquitoes. On the tailings flats the silt has sorted itself into ridges and nets a hand high, long since crusted hard. When cloud comes down into the streets, the noise knocks it out of the air by driving the droplets together until they fall. Each battery sits in a circle of fine warm drizzle at the bottom of a clear hollow in the fog. From the reservoir embankment in the morning, the batteries can be counted by the holes in the cloud.
+
+There are places where the sound cancels. They are called stills, each a few yards across. They are not silent, but a raised voice can be understood there. Each is marked with white posts and usually has a bench. They are also the only places anything grows: moss, a strap-leaved fern, now and then a fig seedling. Everywhere else, seed is shaken loose before it can root, so the town's green is a map of its quiet.
+
+The stills creep a few feet in a decade as engines wear and are re-bedded, and the benches are moved after them. Rust-ringed bolt holes in the slag show where a bench stood two generations back. A smear of browning moss trails behind each still, and a thin new growth runs ahead of it.
+
+Animals are few. Grey herons stand in the settling ponds, hunting by sight in the trembling water. A small pale frog lives in the launder margins and has no call. It signals by lifting one hind foot and spreading the toes. Swifts cross high overhead and do not come down.
+
+At the western rim all the pumped water gathers in one stone channel and goes over the edge. It is rust-orange, blood-warm from the condensers and faintly steaming, and it falls four hundred feet beside the inclined railway. It has cut itself a polished, stained notch, and the lowland river runs orange for miles below. It must be very loud, though no one standing beside it could tell.
+
+In the north-east, three engine houses have been stopped since their shafts were given up. A rough disc of moss and fern has spread around each, figs have split the walls, and the flats between have gone to sedge and open pools. The frogs are plentiful there. People walk out on rest days to talk, and their voices come out hoarse and too loud. The water in that quarter rises about a hand's width every ten years. Everyone knows the figure, and no one is easy about how green it has become.
+
+At night the arc lamps come on along their masts, each with its halo of drizzle, and the puddle lattices glint under them. A tram crosses half a mile of wet slag, flashing its lamp, and the ground goes on beating at the same rate as before.

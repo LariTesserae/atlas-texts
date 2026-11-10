@@ -1,0 +1,25 @@
+The first sign of it is a gap in the sound.
+
+On a strong run the top layer of the pavement ticks along the whole flank of the valley, and in one place, about the size of a loaf, it does not. The stones around that place rattle. The place itself holds. A hand feeling its way over the cobbles would find one more cobble there, cold, egg-shaped, wedged shoulder to shoulder with its neighbours, and would pass on. The seal's whiskers have passed on more than once.
+
+For most of every tide that is all there is to it: a stone that keeps stiller than stones do.
+
+It has the shape of the flints for the reason the flints have it. The sand has been at it all its life. But a cobble is worn on whatever face it happens to turn up, and this is worn in two places only, at either end of its long axis, where the shell is polished as smooth as the bowl of a spoon. Between them its back is dull and pitted. It has two polished ends because it has two fronts. To turn around in that water is to show the current a flank, and a flank is something the current can get under, so it gave up turning. Like the ripples, it reverses. It sits tilted, low end into the flow and pressed down into the gaps between the stones, high end to the lee, long on one face and steep on the other. Six hours later it is tilted the other way.
+
+Under the raised edge the water slows and curls back on itself, and what it was carrying falls out: flocs, cast skins, shreds of weed. A fringe comes out from under the shell there to take them. It is pale and soft and divided into many blunt fingers, and there is one at each end. On any tide one fringe is locked into the pavement and the other is feeding, and at the turn they change over. It does not choose among what arrives. In winter, when the peat ledge calves and the blocks tumble off shedding leaves, some of the leaves come round into the eddy with everything else, and it eats those too. A part of it was once oak.
+
+When the current throws sand against it hard, a few blue-green sparks go off in its wake, as they do behind a boulder.
+
+It is old. How old cannot be read from it, because the shell grows from underneath and wears from above, and the two rates are about equal. It is the size it has been for a long time.
+
+The wolffish knows what it is. A wolffish's teeth are made for hard things, and are shed and regrown every year for the purpose. Across one side of the shell runs a double row of dents, long since healed over and sanded smooth at the rims, spaced to the jaw of a smaller fish. It was the same fish, years ago, before its head filled the crevice. The two have not been within reach of each other since.
+
+It moves only when the current stops. As the skin of sand sinks out and the cobbles go quiet, it unlocks, rises about a finger's thickness on both fringes, and walks. It has ten or fifteen minutes. In that time it covers two or three meters of pavement, and it touches every stone it crosses, round after round after round, with the grey film settling on its back as it goes. Then it finds a gap that fits, lowers itself in, and tilts to meet whatever is coming. On one set of tides it works a little north along the flank, and on the next a little south. Where its path would pass the wolffish, it bends. It ends the year about where it began.
+
+A few times in its life the fringe has closed on something that was not round. It stops then. Everything it has ever touched has been turned over until no corner was left on it, itself included, and this thing has one side that narrows to nothing. It draws the fringe along the edge. One of the fingers parts cleanly. It draws the fringe along again.
+
+Then it settles on top of the flake and stays. It stays for dozens of tides, through runs and slacks, without walking, until a gale shifts the pavement and takes the flake under. Nothing else holds it in one place that long. The reason may be simple. A flake does not wedge the way a cobble does, and it leaves a small hollow beside it where the falling load collects. But while it sits there, the flake is the one stone on the flank that the sand cannot reach, and the edge is still keen.
+
+Perhaps four times a year, at a slack no different from the others, it does one more thing before it settles. It lifts the whole shell clear and drops it on the stone beneath. One knock. Then it waits, in the only silence the valley has. Most of the single knocks heard in the valley are boulders. Not all. Now and then one comes back, from far down the flank or from the other side of the sand waves, where it could never go. It does not go toward it. Whatever passes between the two of them after that is let out into the still water, and the tide does the travelling.
+
+Then a grain rolls over on the crest of a ripple. It is already down, low end to the new current, the fringe that fed now gripping and the fringe that gripped now lifted to the lee. The sand rises around it. Along the flank the cobbles begin to tick, everywhere but in one place the size of a loaf, three meters from where the silence was before.

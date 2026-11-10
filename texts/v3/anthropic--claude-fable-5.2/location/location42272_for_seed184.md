@@ -1,0 +1,29 @@
+The light comes down in squares. Set into the crowns of the brick vaults are panels of pavement glass, hundreds of thick prisms in iron frames, the kind laid into sidewalks to light a cellar. Whatever daylight the street above can spare falls through them, turned violet by the age of the glass, and enters the water as a grid of soft columns that reach about a body-length down before the green takes them. The rest of the light is filament: a few dozen bulbs in cage fittings along the walls, burning the colour of a coal just before it goes out. Each wears a ball of hornwort that has grown toward it from every side, so the lamp is a dim orange seed inside a green fruit.
+
+This is the engine level of a mill town, the floor beneath the floors. It is one long vaulted hall with bays opening off both sides, about the footprint of a church and its yard, cut down into the rock because that was where the hot spring was. The spring once fed the boilers pre-warmed, which saved coal. At some point it was let in entirely, or let itself in, and it has filled the hall to the brick. Along the tops of the vaults lie long trapped lenses of air, silver from below. Everything else is water, warm as a held hand, faintly mineral. It moves in one direction only: up from the feed-wells at the north end, along the hall at a snail's pace, and out through the tailrace arch at the south, where it runs a few degrees cooler and the weed changes kind.
+
+Nothing here stands clear of anything else. There are cast-iron columns every four paces, and between them lathes, planers, slotting machines, and two horizontal engines with flywheels taller than a door. Above run the line shafts and their pulleys, pipes in bundles of nine and twelve, and cable hanging in slack curves. Green grows through and over all of it. Water-moss furs every level surface to the depth of a finger. Ribbon-weed stands in curtains under each panel of glass. Cryptocorynes crowd the silt between the machine beds, their leaves the brown-red of liver.
+
+Where the light fails, the growth is of another sort. White bacterial fleece covers the warm pipes, and tan films sheet the brick. Down through the joints of the vaults hang the roots of the street trees, plane and lime, which found the warmth decades ago. They have let down pale beards as thick as a wrist, each ending in a cloud of hair-roots that combs the passing water. To cross the hall you would have to part things the whole way, and they would close behind you. From any point you can see about an arm and a half.
+
+The machinery runs. It takes a while to notice, because it runs so slowly and so quietly. The spring rises under pressure through a small turbine in the well-house, and the main shaft turns with it, once round in about four breaths. The pulleys turn. The dynamo in the third bay turns, and makes just enough current to hold the filaments at their ember colour. The leather belts rotted long ago, but ribbon-weed had rooted in them first and kept their shape, strand for strand, and these living belts still carry a little power. One lathe spindle goes round under such a belt. In its chuck is a bar of bronze somebody left there, and one band of it is worn bright as a ring where a trailing leaf has touched it for forty years.
+
+There is no knocking and no hiss. The bearings ride in water and a slick of biofilm that serves better than oil. What reaches you is a pressure more than a sound, a hum too low to be a note, felt in the breastbone and the back teeth. Every few minutes the governor on the south engine gives a single tick as its weights settle. Between ticks the quiet is thick, like felt.
+
+Because the shafts turn, they wind. Any weed long enough to touch one is taken up, a hand-width an hour, and over the years each shaft has become a row of fat bobbins, living green on the outside, packed peat-brown within. The weed grows about as fast as it is wound. When a bobbin fouls its neighbour, the outer layers slough off and drift south in rags to settle on the grating before the tailrace, where they have built a bank of green-black felt. The bank is as high as it will get, because the bottom rots at the rate the top arrives.
+
+Most things here have reached that kind of settlement:
+
+- **Iron:** It stopped rusting long ago. It is sealed under a black skin, smooth as a gun barrel wherever anything rubs it.
+- **Brick:** It gave up its loose lime in the first years and now wears a hard pale crust.
+- **Silt:** It lies ankle-deep on the floor. It has been ankle-deep for as long as anyone has lowered a rule through the broken prism at the corner.
+
+Animals are few, since the water is too warm and holds too little air for most:
+
+- **Snails:** Ramshorn snails work the underside of the pavement glass. They rasp clear trails through the algae, so the light arrives written over in loops.
+- **Shrimp:** A handful of blind white shrimp live in the well-house, where the water is warmest. They are small as fingernail parings.
+- **The catfish:** One catfish the length of a workbench lies under the big planer with its barbels stirring. It moves to a new machine about once a season, and the moss shows a pressed shape where it lay for months afterward.
+
+The hall keeps a daily rhythm. In the morning the squares brighten and the curtains of ribbon-weed lean a few degrees toward them. By afternoon every lit leaf is beaded with oxygen, and the beads let go one at a time and rise to join the air lenses in the vaults, which swell by a finger's width. Overnight the water takes the gas back, and the lenses shrink to where they were.
+
+Shadows cross the glass now and then. A foot covers two prisms, then the next two, with no sound attached. Rain on the street makes the whole grid of light shiver. After dark a single panel near the south end stays lit a weak yellow from a lamp-post above. The weed under it has grown taller than the rest, and by now it nearly reaches the shaft.

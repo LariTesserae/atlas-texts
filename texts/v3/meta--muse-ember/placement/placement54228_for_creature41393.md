@@ -1,0 +1,33 @@
+I have never been dry.
+
+I wake in the lower room, where the wall is basalt and the wall is always wet to a line that is not a tide. The light comes through the mat shutter green, as if it has passed through water first. Rain makes its one continuous hush on the roof and on the lake beyond the roof and it is hard to say where one ends. My clothes are damp against my skin. My hair is bound back with reed fiber to keep it from my face. I have resin under some of my nails from yesterday, and hot stone in the smell of my hands, and I do not remember a morning that began any other way.
+
+My feet find the floor. Under the woven mat the stone is warm. It is always warm. I climb the ladder that is cut into the living rock, hand-deep and slick, and for two steps I do not know whether I am leaving a house or entering a garden. Above me is a raft of earth held by reed and root, planted with broad leaves. It shades the doorway of the family next door, whose own lower room is a meter down the same slope. Everything is stacked in that way here. There is nowhere else to go.
+
+I go down again, by the carved steps, on the dry side. In the cove by the springs the rain falls sideways in a slow sheet from the steam, and it wets only the underside of the staircase. We have learned to step carefully. The pool below is clear, which is rare. It bubbles, breathes faintly, steams. I watch the bubbles for a while without deciding anything. A pool that bubbles faster means rain. A pool that bubbles slow and steady means the ground beneath it is still rising. I know the breathing of perhaps twenty pools, the way other people in drier places might know the names of streets.
+
+There are foundations under this water that are older than my work. Straight lines of placed stone, a doorway with no wall, perfectly preserved in the jade-dark. We leave them. A still slower growth coils over them in spirals and does not rot, and we leave that alone too. It is not food and it is not building. It is what the water does with something when it is left to itself long enough.
+
+I tend the algae cakes on their low platforms. I pull root vegetables from the floating mats lashed at the waterline of our stilts. I weed. Weeding here is not clearing. A garden left for a month is a thicket, and persuading it back is a full occupation for the day. While I work I listen for small arrivals: a raft lapping a pylon, a paddle moving without splash, the faint clink of stone on stone from a spire across the basin arriving late, as if it had traveled through water rather than air. Sound does not carry past fifty meters. We speak low, as if not to disturb the water.
+
+No house has its own fire. I carry what I have gathered to the hearth-house, one steps-ladder and two sagging bridges away, and sit with my back to the heat while the others cook slowly in clay pots blackened thin. The hearth-house is the only warm, dry air in the basin. My knees have stiffened in the damp over the years, and I straighten them here without thinking. The smoke goes up a narrow flue and is softened at once by the low cloud that never leaves. People say almost nothing. We do not need to.
+
+A child from the next lineage comes to watch me tie a rope. I show her the knot again. This platform, lashed in a double reef to that stilt, belongs to us. The bridge spliced sideways belongs to another. Children learn the city that way, by knots, before they learn anything else. I have tied this knot so many times my fingers know the sideways splice better than they know my own face in green light. When she gets it wrong the vine at the window slit shakes, and we both look at it.
+
+Beside the eaves a fern has been unfurling for a week. Below the house a crack in the basalt has been opening by a fraction in that same week. I have watched both long enough to stop thinking they are different processes. Over my lifetime the crack has widened a hand's breadth, and the fern has made and unmade itself a hundred times. Both are heaving. Both are being made.
+
+Not far off, a door no one has used in a season has been sealed. Not overgrown. Sealed, as if the house had closed its own eye. No one has cut it back. A sealed door is a wall that costs nothing to maintain. The spiral growth will take the doorway in the pool the same way. Sooner or later, things here are given back.
+
+From our bridge a vine has been growing down for years, rooting not in soil but in air and water, attachment by attachment. It has hardened into a curtain, and then into a shelf, and then, last spring, into ground firm enough to step onto from the water. We walk on it now. A bridge became a shore because the plants hanging from it decided, cell by cell, to become one. The garden families help such things or cut them depending on whether they need a shelf or need the span. We needed the shelf.
+
+I do not see large animals. I go days without seeing one. Once in a while, in the spring pool, an eel-like shape moves between warm stones, blind or nearly so, and is gone. Our traps come up empty more often than not, full of silt and a single small swimming thing that breathes the surface film. There are midges in drifts above the water, amphibians translucent under the floating leaves. That is the fauna. We are not surprised by it. The great presence here is plant, and then people, and then the buildings we are slowly turning into geology.
+
+Lately I live more and more near the hearth. The old do that. We tell where the foundation courses lie under the clear water and why they were abandoned — not because anyone died, but because the rock rose a few centimeters and the plan no longer made sense. We tell it low, and the mist, when it comes through the house to condense on the inner walls, takes the ends of our sentences with it, so we begin them again.
+
+When I die I will be wrapped in woven fiber and resin and set into the water near the foundations. The spiral growth will take me slowly. The mineralized wood and stone will keep me. It will not be a cemetery. It will be a continuation of the building.
+
+That is not a sad thought here. It is only the order of things.
+
+By dusk, if dusk can be distinguished from the long dim afternoon that has been going on since morning, the spires across the basin disappear one by one into mist. What remains is the nearest cluster of wet basalt and green, the warm water lapping at its base, the soft endless rain closing over it all. The lights bloom in the damp like fungi. Somewhere a spring breathes.
+
+I sit with my back to the hearth, still damp, still being made.

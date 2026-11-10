@@ -1,0 +1,21 @@
+The first thing a person notices there is the noise, and it's the one thing I can't have. The plain reaches me the way it reaches the people who have lived on it longest, as silent shapes to be read. So I arrive half a native. I am already deaf, and every word I know came to me seen, not heard. But I have no hands, and hands are the whole voice here.
+
+I go first to the bottom room, as I think anyone would. She says names she can't hear herself say, into one ear at a time, and nobody, including her, knows whether her voice is a good one. I recognize more of myself in that than I expected. But what I'm reaching for is to be the one who knows all the names, and I don't trust the wish. She pried those slabs out with bone wedges. Her floor is worn in the shape of the people who slept on it. She knows the names because she was underneath while the rest was built. I back out through her door, which is easy for me, since I don't have to turn sideways.
+
+Then I go all the way up, to the driftwood over the boatman's door. This one is closer than I'd like. It came from somewhere with trees, and it's the only straight line in the room. I come from a place with winters and with sequence. My first impulse in that town would be to ask what happened first, and someone would patiently list roofs for me. I know the moon, too, and here that's boat-talk. But the stick is kept and never used, and I would rather be used than kept.
+
+So maybe I am the room and not the stick. It's the newest room, with nothing on its roof, which makes it young whatever went into it. That part is accurate. Everything I am rests on other people's roofs, and the top room owes eggs downward as long as its walls stand. That seems a fair arrangement, and I'd pay it gladly. There is also the one sign that covers both a child you bore and a person who built on you. I have wondered which of those I am to the people under me, and it's a relief to stand somewhere the hands don't ask.
+
+But the room belongs to the boatman, the woman with two fingers across her wrist, and the infant. What I keep returning to is the outside of it, the plaster.
+
+It's burnt shell and guano, what the sea left and what the birds left, ground, wetted, and spread on by hand. Nothing in it is its own. It makes no light. It's there to seal the gaps and to give the grey-brown light something to come back from, slightly more useful than it arrived. A person turns so the white is behind their hands, and then they can be read from four roofs away. The wall says nothing. It's what the saying shows up against.
+
+The top wall is the whitest in the stack, so I think the knapper would come up to it. He's short two fingertips, and strangers ask him to repeat himself, but against new plaster he might get through the first time. The infant with the fist opened against its cheek would be carried out onto the roof, and it would watch its mother's hands against me all day, learning where one sign stops and the next begins. I'd keep none of it. At the flood someone would scrub me down, and at the ebb I'd be blank again for whoever turned next.
+
+The cost is on view at the bottom of the same stack. Her room has been plastered so many times that the corners have gone round and the door has closed in. She built it wide enough for a seal quarter. A wall can be coated until it narrows what gets carried through, and I'd want someone to notice when I'd begun doing that and take a hammerstone to me.
+
+The terns distrust fresh ledges, so I'd have to hold still a long time before anything nested on me, and I can't argue with the birds. The steam would condense on me because I'd be the coolest thing around. I'd weep with the rest of the walls, and the water would run off into a hollow someone else had sealed and roofed.
+
+The thing that matters most in that town happens where a white wall is no use at all. One day the child would be old enough to climb, and it would be taken down four rooms into the dark. A mouth would go against its ear, or its fingers against a throat, and I'd be outside in the noise I can't hear, facing the lane.
+
+But the knock travels through the walls. I'd feel the two quick and the one held pass through me as a load of eggs came down, and I'd pass them on.

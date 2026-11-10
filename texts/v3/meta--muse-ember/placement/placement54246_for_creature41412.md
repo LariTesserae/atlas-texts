@@ -1,0 +1,29 @@
+I do not find myself in the middle of the chamber, because there is no middle here that is not also wall.
+
+At first I tried to place myself outside, on the white flat. It is the easiest place to put a self, if only for the sound. You hear it before you find it, and standing out there with the cool current moving low and steady over the sparse shoots, I thought perhaps I was something that listens. A shoot a hand's breadth from the next one, still separate, still reaching, not yet woven into anything large enough to hum.
+
+But listening is not living here. The visitor listens, and then the visitor backs out through the slit and the glare takes him back. Something that lives in this place does not leave. So I tried the sound itself for a while. It comes first, it fills the ears, it is broader than any throat. For a long time it seemed the most honest candidate: not a body, but the braided hum and its endless ticks, made by millions of hollow curves filtering a current that never gusts.
+
+The sound has no inside, though. It is everywhere the weave is, and nowhere in particular. A self needs a place to be held, even if that place is only a loop-length long. I tried the light next, for the same reason. It enters in pinpoints and does not leave, thrown back from wall to wall until shadow has almost nowhere to settle. That bright, cold pocket of air — it would be clean, and airless of change, and I would never have to move.
+
+But light here does not move, and that is not the same as being alive. It only passes through the gaps the loops cannot quite seal.
+
+So I went in, as the visitor goes in, on my knees, and let the chamber narrow me. That is when the images began to give way to one another. The floor, the walls, the low arch overhead — all the same presence, turned in every direction. Small, hollow, tapering, each end tucked beneath its neighbour. Dry, cool, papery but hard. I could not set anything down without covering a dozen of them. I am not that, either, not any finished one of them. A finished loop only clicks, then holds. It has outlasted its living maker. It does not feed. It does not reach.
+
+It was the green that made the scale smaller still. I had passed over it at first, because it is sparse to the point of rumour. Perhaps five in the whole chamber. No thicker than a root hair, pale green-grey, almost leafless. One comes out of a crack, reaches for the length of a hand, stiffens, turns, and fastens itself to a neighbouring loop with a curling tendril.
+
+One of them is already grading without a break behind it — living at the tip, bone-white and rigid further back.
+
+That grading length is where I find myself.
+
+I am a stem that has grown inward from the wall. My root is in a crack between older loops, where mineral dust has settled in a shallow basin and cemented again. I have grown out into the bright, still air long enough to hook what I could reach. My tendril has curled around a neighbour and tightened. Behind the tip I am already curing: the fibre darkening with resin, the hollow segment stiffening, the pale mineral skin beginning to fuse the crossing where I hold on. At the very end I am still green-grey, still taking up what there is to take up here.
+
+I do not sway. The air inside does not move for me to sway in. I do not advance while anyone watches, and I will not advance at all, because to advance would be to fill the chamber, and the chamber is exactly as full as it can be.
+
+What I receive of the world, I receive through the weave I am joining. No eyes, no ears, no mouth. Pressure, filtered by the thick mound outside to a constant. Vibration passing through fused crossings when the visitor shifts his weight and the floor booms hollowly under his knee. Light arriving not as a sunbeam but as that buffered glare, the same on my tip as on a hundred-year-old loop, because wall after wall throws it back. I tick with the rest of them. In the trapped light a loop contracts a fraction, resin sighs, a brittle end settles against its neighbour. My own settling is indistinguishable from theirs. That is the smallest thing I can do, and I do it forever, until the green is gone from me entirely.
+
+I feed as the rest of the mound feeds. There is no water here, no drip, no moist soil. On the far wall, at exactly the rate I am curing into a loop, an older loop is powdering into dust. That dust — loops ground down, full of mineral salts — is what my tip takes up, along with light and the dry chemistry of resin and air. Fibre to dust to resin to fibre. I reach, I fasten, I stiffen. Somewhere out of my reach, the wall thins by the same measure I thicken it. The chamber neither grows nor shrinks.
+
+There are four others like me, in other cracks. That matters. I have no centre. The resident of this place is not a tenant inside the mound, it is the mound itself in its extended form, spread along surfaces and crossings and along the slow gradient from green to bone. I am only the local part of that gradient where it is still happening. Out on the flat the same kind of shoot stands alone, still reaching. In here, where it has reached in the same place for a very long time, the reaching has folded back on itself until this is where it ends.
+
+When the visitor backs out through the slit, the hum does not stop. It only loses its resonance. He carries the sound away with him in his ears, steadier now that he knows its source. I do not go with him. I remain in the bright pocket, sounding my single note with thousands of others, a hand long, held to a wall of bone-coloured loops, green only at the very end — the part that has not yet finished becoming wall, and that is why it is still alive.

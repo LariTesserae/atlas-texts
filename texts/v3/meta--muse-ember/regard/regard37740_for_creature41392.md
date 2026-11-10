@@ -1,0 +1,45 @@
+The Attention does not arrive.
+
+It thickens. The way mist thickens over a bog at no particular hour, without deciding to, until the sentinel trees are a little farther apart than they were and the weeping cliffs weep a little slower. Nothing announces it. No shaft of light, no sharpening, no voice. For a long while the plateau goes on squeaking and sighing under no one, the blue pulses travel under the mat, the pistons groan on the cliffs — and only afterward, if you are the sort of thing that could notice, you realize that the rhythm has acquired a listener.
+
+That is the first thing it does, and it is almost the whole of it: it listens at the correct distance. Benevolence, here, is not a hand. It is a kept distance that is not absence.
+
+It has seen younger places, and it knows the temptations they provoke. To warm them. To speed them. To fill what is hollow. This place refuses those mercies by its very construction, and a wise power learns quickly not to argue with a construction that has taken eons to become itself.
+
+It does not lift the pale disc of sun behind the milky sky. It has calculated, in the instant of noticing, what a fraction more warmth would do: the slush that holds its shape into summer would give way all at once, the fermentation chambers would blow their slow factory shift into a venting, the piston-plants would lift water in frantic unison and crack their ribbed reservoirs on the weeping stone. The mat would not be saved. It would be hurried. And hurrying is the one cruelty this old, tired, turbulent world has never learned to survive.
+
+So it leaves the light dim and undecided, and the colors olive and bone and rust, because dimness is not suffering here. It is the condition under which everything has learned to photosynthesize, to pump, to breathe.
+
+It does not drink from the smelter-roots. It watches the amber resin run hot-sweet over the pale, egg-polished stone, smell of hot oil and copper, harden into glossy lumps, get pecked and scraped and hauled away by small workers, and regrow. A less wise power might have taken the resin as a gift, or a fuel, or a medicine for some other world. The Attention takes nothing, because it understands that the smelter is not a resource. It is a way of eating stone that has lasted longer than any eater. To harvest it would be to make the plateau into a mine, and a mine is a sharp thing.
+
+It does not conduct the pistons.
+
+On the cliffs they inflate with a groan and slam shut with a hiss, keeping their loose, ancient synchronization across distances too vast to see. It would be easy for a power to perfect that time, to make the whole cliff-face breathe in a single clean beat. It chooses instead to keep time badly with them — a fraction early, a fraction late, the way the echoes here arrive before the sounds that made them. It introduces, if anything, a missed beat now and then. A rest. Because synchronization, perfected, would be exhaustion. The looseness is the mercy. The pistons are old. They do not need a conductor. They need the permission, renewed every cycle, not to be exact.
+
+It does not go to the sentinels to comfort them.
+
+It knows how lonely they look: a quarter-mile of empty wet mat, then one trunk-tree plated like a boiler, its crown turning far overhead, putting out seed that is mostly hollow. A benevolent power that loved individuals would stand beneath one and fill its hollow seeds, or plant another sentinel nearby so it would not stand alone. The Attention does neither. It has learned to see the hollowness as function, not failure. A hollow seed catches wind. It rides. It clicks in the turbine-stalks and leaves as a white plume and mostly comes to nothing — and the mostly is enough. Solitude, for these trees, is not the absence of company. It is the space they require to be architecture. To crowd them would be to make them a forest, and this is not a forest. It is a plateau of sparse giants, and the sparseness is the design.
+
+It does not replenish the grazers.
+
+It watches the band come over the rise a mile long, walking compost heaps steaming in the cold, their backs carrying gardens into new country, their bellowing coming up out of the ground itself. It sees that the young are fewer than the old. It could, perhaps, make more young. It does not. It lets the old advance like weather, shear the mat to churned black, leave the greener trampled highway behind for the plant to reweave. An old herd is not a problem to be solved. It is a dispersal that is finishing its work. The Attention walks, if walking is the word, at the edge of the herd's hearing — which is to say, a day out of sync — and lets the silence at noon and the bellowing at dusk be both true.
+
+It does not repair the pools.
+
+It bends — the way everything here bends, slowly, under its own weight — over a black pool that reflects not the grey-blue sky but a warmer, sunnier day, and finds its own reflection lagging a breath behind it, older, or younger, in a coat of frost that is not its own. A sharp power would call this a malfunction and straighten the mirror. The Attention recognizes it as an archive. The plateau remembers a sun it never quite gets, and keeps the memory in its still water where the inhabitants can find it when they need to know that softness was once, and will again be, another kind of softness. It leaves the lag in place. It leaves the echoes out of order: the drip, then the pop, then the groan that caused both. Linear time would be a fresh edge, and this place has worn its edges off for good reasons.
+
+What it does, then, is smaller than all these refusals, and takes longer.
+
+It lies down — not as a body lies, but as attention lies, distributing itself over the mat without flattening it — and lets the piston rhythm come up through its bones before it hears it. It lets the mycelium pulses travel in straight lines under it, branching, meeting, sparking where the moss is thin, and it does not answer them. Everything else here times itself by those pulses: the beetle-trains pause, the bogs exhale in time, the grey birds in the drip shriek at everything. The Attention pauses too. It does not lead the production line. It is simply, for once, on the line, being produced along with everything else: fermenting, distilling, coming apart into green at the tempo of decay.
+
+And it protects the place from the one thing benevolence can still do wrong: being noticed by sharper powers.
+
+While it is attentive, the horizon repeats a little more insistently, vegetated range upon vegetated range, the same weeping cliff outlined again until distance seems like memory. The mist convinces itself. Any footfall the Attention makes is unmade by the mat in less than a minute; the print bubbles back up, the skin remembers and then, mercifully, forgets. No path forms. No mark of a hand remains. If another, younger attention came sniffing after the resin or the pulses or the strange non-simultaneity, it would find itself walking in circles of its own echo, hearing bellowing from the wrong slope, seeing its reflection return frost-covered and a season late, and it would go away thinking it had imagined the place. That is the shield. Not a wall. A softness too complete to cut.
+
+When it has stayed long enough — and long enough here is measured not in years but in how many times a bog can rise a foot on gas and settle flatter than before — it begins to thin again. Not out of abandonment, and not out of completion, but because to stay would be to become a resident, and a resident of this place would have to walk, and to walk would be to trample, and to trample, even lightly, even late, would be to change the highway.
+
+It does not take the plateau with it. It does not leave a seed, even a hollow one, in its place. That would be a signature.
+
+What it carries away is only the knowledge, which is not a thing, that a world can be exhausted and not be a failure; that industry can run without factories and without purpose and still be dignified; that the final form of a thing can be motion, wet and cold and breathing, unmaking itself into itself, and that to witness that motion without trying to arrest it is not passivity. It is the hardest work a wise power can do. It is love with the hands kept empty.
+
+And so the plateau, felt and not argued with, goes on. The turbine-stalks turn and click. The fruiting vine swallows its boulder. A hollow stem arches over a pool where something slaps and rolls. The mat squeaks, then sighs, then remembers a footfall for a minute and lets it go. Somewhere below, a faint blue pulse travels in a straight line, branches, meets itself — and now, if you lie very still and let it come up through your bones, you may feel, alongside the old piston rhythm, one more beat keeping perfect imperfect time, too faint to count, unwilling to be exact, staying late on purpose.

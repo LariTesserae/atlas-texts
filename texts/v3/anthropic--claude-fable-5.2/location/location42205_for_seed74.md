@@ -1,0 +1,25 @@
+The district is six streets on a river flat, a few feet above the mud of a harbour that silted up long ago. From outside it is a low green block on a pale plain. The plain is grit and thin wiry grass, cool and windy, and it sees rain a handful of times a season. The green begins at the last pipe stanchion and it begins all at once: one pace of thinning, then moss to the ankle.
+
+The water comes from the pipes. This was a cold works, making ice and frozen storage for a fishing fleet, and its brine mains still run on iron trestles at second-storey height down every street, crossing at the corners and dropping in loops to the sheds. When a main is cold it pulls water out of the air. It frosts, then sweats, and what drips from it is the only dependable moisture for miles. Everything growing here is arranged under that drip.
+
+The cork lagging rotted off the mains generations ago and a dense felt moss took its place, thick as a forearm in places. It does the cork's job well enough. Where it grows thin the pipe sweats harder, and the moss thickens again. Nobody adjusts this.
+
+The streets are wide, built for lorries to turn in. The setts lie under a hand's depth of black soil the moss has made out of itself, but the camber still shows, and the gutters are two shallow troughs. Objects stand far apart: a hydrant, a weighbridge plate, a lamp standard, a hand truck tipped on its handles. Each is a rounded green form with thirty or forty paces of open ground to the next.
+
+From the trestles the growth hangs in curtains. There is beard lichen, the long stems of a small-leaved climber, and ferns rooted in the pipe moss with their fronds turned downward. Each street becomes a long room with a soft ceiling, and the crossings are its doorways. The brick sheds have no windows. Their corners have worn round, and the climber's old stems, grey and thick as wrists, have gone into the mortar courses and now hold the walls up more than the mortar does. One shed lost its roof. The climber laced itself across the exposed ceiling coils and closed the gap, and the light inside comes down green and even, as through shallow water.
+
+In the engine hall at the north end, two of the four compressors still run. Their power comes up a cable from the old tide gate, where a creek fills and empties through a small turbine. The machines labour on the ebb and ease on the flood, and at slack water they nearly stop and the hall lamps sink to orange. Beside them a cam drum the size of a barrel turns once in about thirty hours. At each sixth of a turn it throws the brine valves over with a single clack, and the cold moves to the next street. Only one street is cold at a time, and its wet hour never falls at the same time of day twice running.
+
+In the cold street the main whitens along its length, flanges and joints first, wherever the moss gaps. The air beneath thickens. Fog forms at head height and falls, lies knee-deep on the roadway, and pours slowly down the camber into the gutter troughs. Then the valve goes over and the thaw comes, and for an hour the whole street ticks with dripping.
+
+The moss below turns from crisp grey-green to a green that is nearly black, and stands up. The ferns unroll. The lichen curtains take on weight and hang straight. By the time the next street is frosting, this one is already drying from its windward end, and in a day it will be grey and curled again. From the engine hall roof you can see the pattern whole: one dark street among five pale ones, moving round the district like a hand round a dial.
+
+The plants have the schedule. Ferns on a street begin to unroll some twenty minutes before its valve turns, while the pipe above them is still dry and no colder than the air. The moss sets its capsules only in the weeks when the wet hour falls near dawn. Rain, when it comes, is closer to an interruption. It beads and runs off the dry moss for the first minutes, then the whole district greens at once, unevenly, and takes two or three turns of the drum to fall back into step.
+
+Very little else lives here. A pair of grey wagtails works the thawing street for the gnats that hatch in the gutter troughs, and moves on when the clack comes. Most days they are the only animals in sight. Some nights a pale moth circles the hall lamps.
+
+It is a quiet place. The moss takes footsteps entirely. The compressors reach the soles of the feet as a slow throb before they reach the ear. The curtains sway in the wind off the flats without a sound.
+
+The engine hall windows are furred over on the outside, so at dusk the lamps show as dim green squares. Inside is the only bare metal in the district: flywheels, polished rods, brass oil cups. It is a few degrees warmer, and the ammonia is sharp under the cellar smell of wet earth. The oil cups are full. One drive belt has been laced with new leather. A chair by the switchboard has its seat worn pale, and on the hall's front step there is a gap in the moss the width of a boot.
+
+The drum creeps. Two streets over, under a dry pipe, the ferns have started to lift.

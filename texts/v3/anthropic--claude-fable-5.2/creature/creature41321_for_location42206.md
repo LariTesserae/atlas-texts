@@ -1,0 +1,29 @@
+No one lives here in the sense the row houses were built for. The proof is in the doorways: the web across each one sags unbroken, and has for years. Whatever uses the town goes under the floors or in through the roof.
+
+So the first answer is the crowd. But the flamingos could leave tonight. The bats sleep here and eat inland, and the jackals commute along the railway. These are the customers, and something is serving them.
+
+The second answer is the works itself, and for a while it seems right. It has a body six kilometres long. Twice a day it drinks through iron valves that shut behind the swallow. It moves what it drank inward, chamber by chamber, taking the water out and changing colour as it goes. At night it sweats. If you stood on the causeway when the gates thudded, you could believe you were standing on something alive.
+
+But it is only a gut, and the thing to do with a gut is follow it in.
+
+On the floors of the outer pans is the mat. Tear a piece and it is layered: green on top, a purple line beneath, black below that, smelling of eggs. It is a very old way to live, older than anything with a mouth. But it thins as the salt climbs, and by the orange ponds it is gone.
+
+The orange is a single-celled alga with no wall, only a membrane. It survives the salt by packing itself with glycerol and carotene. The shrimp are made of it, and so, at one more remove, are the flamingos, whose pink is this orange handed on twice. But the alga is near the edge of what it can do, and it leaks. What it leaks goes inward with the brine, along with whatever else the ponds have not used.
+
+From the bund, life seems to stop at the innermost pans. But brine is clear, so the pink in those pans is not the water's own colour. It is the resident.
+
+Under a lens, a drop of it is more particular than you would expect. Most of what is there is one kind, and it is square. These are flat, sharp-cornered tiles a few thousandths of a millimetre on a side, so thin that several hundred stacked would make the thickness of a sheet of paper. When one divides, the halves sometimes stay joined, so there are also sheets of them, perforated like stamps. They don't swim. Each carries a few grains of gas along its edges, enough to hold it up near the surface with its face to the cloud. Life here keeps to surfaces and leaves the volumes empty, and this creature has taken that rule as far as it goes. It has almost no inside.
+
+What inside it has is as salt as the pan. It never kept the brine out. It let it in and rebuilt every working part to need it. For everything else on this flat, fresh water is the scarce thing. For this one, rainwater is the only poison, and a square dropped into it comes apart.
+
+It feeds two ways. It takes the leftovers, the alga's glycerol and the last dissolved scraps of shrimp and fly and feather that six kilometres of ponds have passed along. It sits where everything drains. And when the hot brine holds too little oxygen to burn that food, which is most afternoons, it lives on light. Its skin carries patches of a purple pigment. Each time the pigment catches a photon, it pushes one proton out through the membrane, and the cell runs on the trickle back. It makes no sugar and gives off no oxygen. The part of the pigment that catches the light is the same small molecule that sits at the back of the falcon's eye as it waits at the chimney top at dusk. The falcon sees with it. The square one sees nothing and makes a living from the grey.
+
+It also runs the works. Pink brine takes up more heat than clear, which is part of why those pans are hotter than the air at midday and why the crust grows as it does. The salt-makers knew this and worried over a pan that failed to redden. They believed they were using it. It was on this coast before them, in any hollow of the flat that held a spring tide long enough to dry. They built it the largest house it had ever had here and fed it through iron gates for seventy years. When they left, the house went on working, because it only ever needed the tide and the sun.
+
+A cupful of the pink holds several thousand times more of them than the boiler house holds bats. A bucket holds more than there are people. Nothing rakes these pans and nothing grazes them, since no shrimp can live in them and so no bird comes. What hunts the squares is smaller still: viruses, about ten to every cell, many of them spindle-shaped. A square dies by being opened from the inside. That is all the predation there is at the centre of the works, and it makes no sound.
+
+Now, before the rains, the pan is closing over it. As each crystal grows, it shuts brine inside itself in pockets too small to see, and in each pocket are a few squares with a little food, in the dark. They are why the salt is faintly pink. The crust that squeaks underfoot is a dormitory. Inside it they do not divide and spend almost nothing. Their kind has been woken from rock salt older than the works and older than any city. A few people claim far older than that, and are argued with.
+
+Then comes the rain, which everything else is waiting for. It lies on the heavy brine in a layer, and whatever is caught in the layer bursts. The crust dissolves from the top and lets its sleepers out into what brine is left. Enough of them land in water strong enough to hold them together. Enough is all they have ever needed.
+
+So the tenant is one flat pink square, sharing a bubble of brine with two or three others. The bubble is in a single crystal at the bottom of a crust nobody will rake, in the last pan anyone would walk to. It is the oldest tenant on the coast and the only one that never arrived. Twice a day the gates thud, and more sea comes in for it.
