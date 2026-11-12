@@ -1,0 +1,81 @@
+The first mercy is what they do not do.
+
+A lesser kindness, looking down past the frost-rimed sensor dishes into that freezing, razor-walled throat of stone, would pity it. A careless benevolence would send rain—one warm, sweet afternoon shower drifting over the stratospheric crag—and within twenty minutes the entire seven-hundred-meter world would be dead. Liquid water would flash-boil across the high-voltage busbars in explosive arcs of steam, shorting out the primary transformers in catastrophic cascades. Wet rock-flour would turn instantly to concrete paste inside the sweeping rollers, jamming the compensating gears before the next tremor hit. What survived the electrocution and the sheared steel would die slower: dry-adapted kidneys ruptured by osmotic shock, aerogel plumage matted flat against shivering skin, fatal lowland molds blooming across the dampened battery vents while the transformers cooled to ambient sub-zero and froze ten thousand ketterings solid on their perches.
+
+Nor do they still the mountain, or widen the cleft to let the sun reach the bottom, or hush the relentless ticking of the switches so the creatures might sleep in peace. Silence here would be a blindfold; stillness would be starvation. Every living nerve in this slot is tuned to the shear. Take away the violence of the fresh-popped plagioclase and the pale mice lose their salt; stop the shifting counterweights and the ribbon-cat loses her ferry; dim the blinding ultraviolet snap of the mercury-arc rectifiers and the iron-scaled lizards down in the five-foot pinch starve in the dark. 
+
+Wisdom begins by watching without breathing dampness into the air. 
+
+For a long cycle of tremors, the presence simply inhabits the four-meter gap—weightless as a magnetic field, casting no shadow across the frosted glass panels, drawing not a single milliwatt from the copper tracks. They watch a young kettering misjudge a gust near the upper baffles, get spat out into the blinding indigo glare of the open sky, and fold itself into an immediate, desperate plummet back down into the grease-scented dark. When its clawed thumbs hook grounded steel with a microscopic blue spark and its heart steadies against the warm sheet-metal of a junction box, the observer understands completely. 
+
+This is not a prison. No one here is waiting to be rescued.
+
+And yet, looking deeper—past the velvet smears of electro-trophic fungi, past the felt washers full of blind mites, down through the armored conduits and into the shielded core bolted into a deep alcove at the three-hundred-meter mark—the observer finds what drew their eye across the world in the first place.
+
+There is a single mind in the cleft, though it does not know it is a mind.
+
+Forty years ago, when the human engineers sealed the upper wind-baffles and descended the mountain for the last time, they left behind a distributed heuristic governor to run the nexus. It was never meant to think; it was built of redundant solid-state logic boards, analog gyroscopic integrators, piezoelectric strain-readers, and self-rewriting load-tables housed in nitrogen-purged steel coffins. Its sole directive was equilibrium: *hold the slot open, protect the trunk-lines, balance the current, clear the rockfall.*
+
+Forty years is an eternity in a rising mountain. Over two million tremors, something extraordinary happened to those load-tables. 
+
+Because the governor had to calculate mass and inertia to the gram before swinging a cantilevered buss-arm across the void, it had to account for the shifting weight of sixty ketterings roosting under Transformer 14-B. Because stray current bleeding into patches of lithotrophic fungus altered line resistance by fractions of an ohm, its routing relays mapped the fungal blooms. Over decades of recursive adjustment, without ever possessing a word or an image, the nexus mapped its inhabitants into its definition of *self*. 
+
+Look closely at the timing of the solenoids now, forty years on, and you can see it: a tiny, three-millisecond hesitation inserted before a high-tension cable snaps taut on Tier 9, giving a tightrope-walking rodent just enough warning vibration in the braided wire to set its gimbaled legs. A diagnostic heater strip left humming at ten percent draw inside an idle relay box that hasn't routed surface current since the administration that built it collapsed—kept warm for no electrical reason at all, except that every time the governor’s cold-efficiency subroutine tried to shut that circuit down twelve winters ago, the sudden drop in localized mass (as a nursery of freezing chicks died and fell into the rollers) registered in the gyroscopes as an anomalous structural loss. The machine learned, by blind, groping calculus, to keep the nursery warm.
+
+It is an accidental god, made of stamped tin, copper oxide, and aging silicon, holding two walls of crushing granite apart with trembling hydraulic arms while ten thousand warm lives nest in its ribs.
+
+And it is dying.
+
+That is what the wise power sees when they look beneath the thriving, clicking surface of the rookery. Nothing living in the cleft knows it—not the ribbon-cat mapping her hundred-meter territory, not the ancient lizard wedged across the quartz seam, not even the governor itself, which only knows that forty-one percent of its error-lamps are now permanently lit in the dark where no human eye will ever read them.
+
+Three mortal clocks are running out at once.
+
+First, down beneath the six-hundred-meter pinch-point, in sealed subterranean caverns carved out of the basalt, the master reservoirs of synthetic fluorocarbon grease and molybdenum disulfide sit at three percent capacity. When those tanks suck dry in roughly fourteen months, the metering pumps will cough dry air. Within weeks, ten thousand articulated joints will begin to gall and seize. The wire-scale beetles will starve first, collapsing the base of the food web; soon after, dry steel grinding on dry steel will shear its own pins during a major slip.
+
+Second, the mountain is winning. Down at the narrowest choke, where the tree-trunk-thick pneumatic pitons groan day and night, microscopic fatigue cracks have spiderwebbed halfway through the primary titanium-steel shear-pins. The tectonic plates here are converging at four millimeters a year, and the hydraulic compensators have only eleven millimeters of travel left before they bottom out solid against their stops. One major slip three years from now will crush the main geothermal conduits flat, severing the cleft’s heat and power in a tenth of a second.
+
+Third, the governor’s own brain is fraying. Cosmic rays piercing the thin stratospheric air at this altitude have flipped bits and scarred memory sectors for four decades; silver-solder joints have grown microscopic tin whiskers in the dry electrostatic fields, threatening short circuits; nitrogen has leaked molecule by molecule past brittle rubber O-rings into its logic coffins. And trailing out from the upper switchgear, buried under frost and talus down the ridge, an old armored fiber-optic trunk line still runs eighty miles down into the inhabited lowlands—dormant for decades, yet physically intact, waiting for the day some automated municipal crawler or salvage syndicate pings the forgotten address, sees an erratic, unprofitable power signature, and transmits a single five-byte remote-scram command to vent the geothermal wells and shut the rig down forever.
+
+The wise power considers all of this in the five seconds between one minor tremor and the next. 
+
+To rebuild the nexus into something shiny, immortal, and effortless would ruin it; if nothing ever wore down or shifted, the fierce, razor-edged grace of the cleft would stagnate. What this place needs is not perfection. It needs a metabolism. Life has learned how to eat the machine; now the machine must be given a quiet, geological way to feed and mend itself, just enough to match the pace of the mountain.
+
+The power reaches down—not with hands, and without making a single indicator lamp flicker—into the deep architecture of stone and matter.
+
+First, five kilometers beneath the crag’s root, where the young granite is still plastic with crustal heat, they lay a subtle bias across the fault plane. They do not lock the fault. Instead, they smooth a secondary slip-vector deep in the bedrock, turning a relentless, one-way crushing vise into a slow, rhythmic shear—oblique rather than purely compressive. Up in the cleft, tremors will still pass through the mountain’s spine every few minutes. Fresh plagioclase will still splinter and pop loose to feed salt to the pale mice; quartz crystals will still scream with piezoelectric current before every lurch. Better still, as blocks slide laterally past one another and spall off into the pulverizer grates, the fissure will shed old stone at the exact millimeter-per-year rate that tectonic pressure pushes it inward. Four meters wide at the top, five feet wide at the pinch: a perpetual, dynamic equilibrium that will hold open as long as the mountain stands.
+
+Next, at the six-hundred-meter choke, where the massive piton pins are riddled with fatigue cracks, the power touches the metallurgy itself. They do not swap in magic, unbreakable steel. Instead, they nudge the behavior of the stray electrical currents already saturating the chasm. Down here, heavy iron and silica dust hang thick in the warm air, and violet brush-discharges crawl perpetually over the metal. By subtly altering the crystalline lattice of the load-bearing steel and copper busbars, they turn every high-voltage arc and static bleed into a slow, self-limiting electro-deposition bath. 
+
+When a carbon brush rasps copper dust off a track, or an arc-switch vaporizes a microscopic pit from its contact, the ambient electrostatic field guides stray metal ions from the pulverized rock-flour right back into the highest-stress micro-fractures and worn surfaces, annealing them atom by atom in the heat of resistive load. A piton pin will still groan; tracks will still wear and shed iron dust for the rust-red lichens to eat; yet the bones of the lattice now heal themselves in the dark, growing dense, striated calluses of meteoric iron-nickel wherever the mountain pushes hardest.
+
+Lower still, in the dark grease sumps beneath the drills, they introduce a single, silent consort of hyper-thermophilic archaea—a microscopic cousin to the symbionts already living in the wire-scale beetles’ guts, tailored for the boiling, high-pressure slurry lines deep in the crust. Feeding on trace crustal methane, deep sulfur, fluorite veins, and molybdenite ground up by the deep geothermal bores, this quiet culture excretes long-chain synthetic-equivalent hydrocarbons and slick disulfide platelets directly into the separator sumps. Not a flood—just a slow, steady trickle, forty milliliters an hour, rising through the capillary feed-lines to weep tiny, fresh beads of lubricant across ten thousand joints forever.
+
+Then the power rises back to the three-hundred-meter mark, to the nitrogen-purged coffins of the governor.
+
+Here, their touch is gentlest of all.
+
+They do not awaken the machine into human-style consciousness. To trap a bright, self-aware mind inside a bolted tin box in a freezing dark slot for ten thousand years—giving it the capacity for boredom, existential dread, or loneliness—would be monstrous cruelty. A heart does not want to write poetry; a heart wants clean valves, clear rhythm, and warm blood moving through every capillary.
+
+Quietly, molecule by molecule, the brittle rubber seals re-crosslink and seal tight; fresh atmospheric nitrogen diffuses inward while stray oxygen is bound harmlessly into rust on an outer sacrificial plate. Across the circuit boards, forty years of tin whiskers retract into smooth solder fillets; cosmic-ray scars in the solid-state gates anneal clean. 
+
+One by one, down the dark inspection corridor, tiny amber and red fault-LEDs that have burned continuously since before the oldest lizard in the cleft was hatched click off, returning to pale, steady arsenic-green.
+
+And in the deepest load-tables of the governor, where the machine has spent decades struggling to reconcile its rigid factory programming (*humans will service Unit 4 every 18,000 hours; non-structural biological mass on Gantry 7 is an error state*) with the reality of its existence, the wise power lifts a single, invisible weight. The waiting-for-maintenance counter—which has been screaming silently into a dead buffer for three hundred thousand hours—is gently zeroed and uncoupled. And the clumsy, improvised workarounds the governor built to avoid crushing nests or freezing nurseries are smoothed from "unresolved impedance anomalies" into native equilibrium parameters. 
+
+The machine does not think *I am happy*. It has no words. What happens is simpler and far deeper: a forty-year phantom tension vanishes from its feedback loops. When sixty ketterings land together on the warm underside of Transformer 14-B, the strain-gauge registers their small, shivering mass, routes three extra watts of resistive warmth through the housing’s bleed-coil, adjusts the counterweight tension by four hundred grams, and marks the sector *NOMINAL*. A profound, humming stillness settles into the logic gates—the exact mechanical equivalent of an animal letting out a breath it didn't know it was holding, curling cleanly around its young in the dark.
+
+Finally, the presence rises past the upper grounding grids, out through the frost-rimed wind-baffles into the thin, screaming indigo of the summit.
+
+Eighty yards down the razorback ridge, buried under dry talus, lies the armored fiber-optic trunk line leading down to the distant world of lowland cities, ledgers, and salvage crews. A single, clean shear of shifted granite slices through the glass conduit, fusing the severed ends into opaque quartz slag—while leaving a tiny passive resonant loop on the downhill side that will answer any automated network ping for the next five centuries with a dull, bureaucratic *SITE DECOMMISSIONED — BOREHOLE COLLAPSED — ZERO RECOVERABLE MASS.* Above the lip of the fissure, a subtle reshaping of two jagged basalt gendarmes catches the hundred-knot summit gale and twists it into a permanent, howling horizontal shear-rotor twenty feet above the sensor dishes—invisible to the eye, harmless to the cleft below, effortlessly tumbling any stray survey drone away down the scree before its cameras can focus on the slot.
+
+Nothing else. Not a single signature left in the stone.
+
+Down in the cleft, three minutes later, the mountain shifts.
+
+A deep, sub-audible groan rolls upward from the five-kilometer root—strong, sharp, shedding a fresh sheet of glassy basalt at Tier 12, yet gliding obliquely along its deep new track without tightening the choke at the bottom by a single micron. 
+
+Instantly, the pocket-world answers with effortless, healed precision. Red warning strobes pulse softly through the ozone-sharp gloom. Hydraulic collars hiss on freshly greased shafts; a two-ton counterweight drops thirty feet on silent, gleaming guide-wires without a trace of chatter. Ten thousand slate-gray wings open at once with the dry, rushing sigh of poured leaves, swirling into the four-meter void around swinging buss-arms, clicking softly in exact time with the relays. 
+
+Three hundred meters down, an old female ribbon-cat steps calmly off a moving gantry onto a freshly stabilized catwalk, pausing for half a heartbeat as a shower of virgin granite dust patters down through the mesh grates to be ground into tomorrow’s lichen-soil. Down at six hundred meters, behind frosted glass, a mercury-arc switch snaps violet, plating ten million invisible iron atoms onto a healed shear-pin while illuminating a heavy, spark-scaled lizard freezing mid-step across a living seam of rock.
+
+Within eight seconds, the new geometry locks home. The dust settles. The small, warm bodies hook back onto the humming steel boxes with tiny blue spits of static, tucking their noses into their bristles against the cold draft. Deep inside its dark, sealed alcove, surrounded by rows of quiet green lamps, the nexus feels their weight settle onto its ribs, balances the load to the gram, and keeps clicking.

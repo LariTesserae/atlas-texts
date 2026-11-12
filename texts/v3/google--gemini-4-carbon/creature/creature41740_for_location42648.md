@@ -1,0 +1,59 @@
+At first, if you stand very still on the braided catwalk and let your eyes strain against the afterimages of the violet sparks, you will think the district belongs entirely to its vermin. Everything you see is small, frantic, and metabolic—an ecosystem of mouths and tripwires keeping the city’s fierce green geometry trimmed to the bone. 
+
+Then you feel the catwalk under your boots give a very slight, elastic dip. Not thirty paces ahead, where a normal weight would press the cables down, and not directly beside you. The dip comes from an impossible angle—transmitted through a diagonal tension-wire that isn't actually touching your catwalk, merely crossing behind it in the dark. 
+
+Something much larger is using the perspective.
+
+Wait for the next cold flash in the basement dynamos. Look not at the glowing green scaffolding of the tenement across the void, nor at the swarms of crane-fly climbers scattering from the current, but at the *intersections*—where the crisp wireframe of a third-story window crosses the distant outline of a viaduct arch thirty yards behind it. 
+
+In thattenth of a second, you will see a joint. It looks like the knuckle of a very tall, thin man, or perhaps the hinged wooden clamp of a draftman’s pantograph, pale as tallow and glistening with cold sweat. It is hooked over the foreground windowsill, while its adjoining limb—no thicker than a lath—rests firmly on the background viaduct, bridging thirty yards of black emptiness as casually as a thumb and forefinger pinching two threads together on a flat sheet of paper.
+
+They are the reason the city never manages to fill itself in. The smaller grazers eat the buds and the pollen-planes, yes, keeping the walls sheer, but if left to the grazers alone, the vascular outlines would eventually thicken into rough, fibrous wood, tangling into a blind subterranean thicket. Something else is keeping the angles at ninety degrees. Something is enforcing the blueprint.
+
+There are perhaps a dozen of them in the whole pocket—though counting them is treacherous, because a single individual rarely occupies one continuous parcel of air at a time. If you could haul one out into the noon sun of an abbey ruin, laying it flat on the grass where three-dimensional distance behaves itself, it might measure nine or ten feet from crown to heel, and weigh less than a wet wool overcoat. They are built entirely of hollow, articulated struts of grey-white gristle, bound at the hinges by bands of dark, slick muscle that contract with the slow, hydraulic precision of caliper jaws. They have no torso to speak of—no barrel of ribs, no belly—because in this place an interior volume is only a liability, a trap for falling condensation and stray gill-swimmers. Instead, their limbs meet at a narrow, vertical keel of flexible cartilage, like the spine of an ivory fan folded tight.
+
+Along this central keel, where a throat and chest ought to be, hangs a loose, tiered drapery of sensory membranes—thin as soap film, darkly veined, and constantly trembling in the draft of the silent engines. These membranes do not breathe air; they read pressure, static, and alignment. When a streetcar husk slides past on its taut phloem cable, the membranes ripple in sympathetic measure, gauging the tension of the line to the fraction of an ounce.
+
+What passes for a head is merely the uppermost convergence of the struts: a narrow, sightless prow of smooth bone-plate that splits into four long, exquisitely sensitive palps, like the divided nibs of two crossed ruling pens. 
+
+Watch one work, piecemeal, across three or four intermittent flashes of violet light. 
+
+First Flash: It is crouched—if *crouched* is the word for a bundle of acute angles—inside the non-existentbrickwork of a factory chimney sixty feet up. Two of its lower limbs are anchored to the slick green mortar-lines near the top of the stack; a third limb reaches straight *down* the exterior, except it has stepped onto a perspective-overlap with a switching-yard signal box near the bottom of the vault, meaning its foot is resting four stories below its hip without the leg having stretched more than a yard. Its four-part nib-head is bent close to a newly ruptured apical bud that has gone wrong—a cornice shoot that has begun to curl toward the lightless void like a wild fern rather than holding its strict horizontal bevel.
+
+Darkness returns. In the dark, you hear a sound distinct from the *plip* of falling water and the moth-hum of the vine-wheels. It is a crisp, wet *snick*, like a thumbnail slicing cleanly through a green bean, followed by a soft, rapid squeaking—the sound of rubber drawn across wet glass.
+
+Second Flash, twelve seconds later: The errant fern-curl is gone, dropped down into the abyssal root-dynamos where the velvet-thumb haulers are already dismantling it. The tall figure has unfolded its upper struts and is currently *splinting* the wounded shoot. From a gland behind its nib-palps, it exudes a thread of clear, astringent gum that hardens instantly in the chill damp. With two long, multi-jointed wrists working in eerie, mirrored opposition, it draws the fresh green meristem taut along the imaginary edge of the cornice, stretching it until it hums, then tacks it precisely to the vertical corner-wire. As its slick, grey fingers smooth the joint, the rubbery squeak sounds again—*reeek, reeek*—polishing away excess mucilage so the flat ribbon-grazers won't be tempted to chew through the structural weld.
+
+They are artisans without eyes, maintaining an architecture without rooms, for a population that isn't there.
+
+Yet if you stay longer—long enough for the damp cold to soak through your coat and numb your shins on the braided root-cables—you begin to realize that their relationship to the wireframe town is not merely maintenance. They are not insects tending a gall-nest by blind instinct, nor are they ghosts reenacting a memory of brick and iron. 
+
+Look lower. Look into the phantom tenements.
+
+While the great rotary turbines and overhead looms spin at furious speeds, the row-houses are quieter. Inside those stacked cubes of dark air, framed by crisp green baseboards and floating window-sashes, other shapes are suspended. At first you mistake them for the radial nerve-webs of the swimmer-predators, or perhaps clusters of seed-husks waiting to split. 
+
+They are neither. Hanging in the center of hundreds of floorless bedrooms and absent kitchens are complex, life-sized riggings of pale tendon and taut vascular thread, moored to the surrounding walls by dozens of hairline guy-wires. Each rigging outlines a rough, arrested posture. Here, hovering ten feet above nothing, is the faint, translucent wire-sketch of a figure bent over a non-existent washbasin; in the cube directly below, four thin, milky filaments trace the curve of a spine and two knees drawn up on a mattress of pure black air; out on a skeletal landing, a slender lattice of grey cartilage leans perpetually against a banister shoot that is still actively growing upward through its palm.
+
+They are larval. Or they are unfinished drafts of tenants, grown from the same meristematic tissue as the chimneys and the streetcars, waiting for mass. 
+
+And the tall, caliper-limbed things tend to them with the exact same terrible, geometric neutrality they apply to the viaducts.
+
+When a cold spark jumps close by, illuminating a stack of rooms like a sudden X-ray, you might catch two of the tall figures occupying the same hollow parlor, folded through one another’s negative space without touching. Their damp sensory draperies shiver in unison, exchanging rapid, silent static-clicks that make the nearby sap-veins twitch with sympathetic green phosphor. Between them hangs one of the tenant-sketches—the outline of a child or a small weaver, drafted in glistening white root-hair, trembling violently because a flock of blind gill-swimmers has just torn straight through its chest cavity, snapping three structural threads and leaving beads of cold mist clinging to its ribs.
+
+The two tall mechanics do not chase the swimmers. They have no malice and no haste. One anchors a long, pale heel to a ceiling joist twenty yards away in the next street over, leans cleanly through the missing brick wall, and catches the vibrating, torn threads of the figure’s sternum between its split nib-palps. The other reaches into its own narrow keel, plucks a glistening, pulsing filament from its own sensory drapery, and draws it out like spider-silk—splicing a piece of its own nervous membrane into the broken chest of the hollow figure. 
+
+*Snick. Reeek.* 
+
+The tension is restored. The empty posture settles back into rigid alignment with the invisible floorboards. For a brief moment after the repair, current stolen from the dynamos courses through the fresh splice: the wireframe tenant twitches—its sketched fingers curling around an absent teacup or loom-lever, its empty jaw-line opening in a silent, mechanical intake of damp air—before subsiding back into chill suspension.
+
+This is the deeper rhythm under the frantic grazing and silent machinery. The tall draftsmen are slowly, tirelessly spending themselves into the grid. None of them are whole upon close inspection; each one is asymmetric, missing a secondary strut here, stripped down to bare bone-plate there, having cannibalized their own spare cartilage and nerve-film over months or years to wire more postures into the empty apartments, more switchmen into the signal boxes, more stokers in front of the cold, sphincter-driven boilers. 
+
+When one of them finally gives away too much of its keel to hold its own perspective-jumps together, it doesn't fall into the abyss. It simply locks its remaining caliper-joints onto the nearest intersection of green stems—perhaps becoming the diagonal brace of a crane-jib, or the rigid frame of a transom window—and lets the climbing vine-shoots encase its grey struts in fresh, razor-sharp bark. Within an hour, the crane-fly climbers are racing across its knuckles with stolen violet sparks, and a fresh apical bud is swelling at its elbow, preparing to split open and extrude a new, damp Pale-Strut out into the dark.
+
+If you stand on your root-catwalk too long—if you remain utterly motionless while your body heat drops and condensation begins to bead on the wool of your shoulders and the bridge of your nose—you will eventually hear that dry, hydraulic *creak* of gristle hinges directly behind your ear. 
+
+You won't feel breath on your neck; they have none. Instead, the hair on the back of your hands will lift in a sudden, localized pocket of static. Four cold, slick nib-points, smelling faintly of crushed celery and ozone, will touch your collarbone, your temple, and the crease of your elbow—not piercing the skin, not biting, merely *measuring* the bizarre, wasteful density of you. Testing a solid object that has somehow wandered in ahead of schedule.
+
+If you take a step backward, shattering the alignment between your shoulder and the distant roofline behind you, the palps will instantly retract into the dark with a startled flutter of wet membrane. To them, a thing filled with meat and heavy bone, moving continuously through every single foot of empty air instead of stepping neatly from line to line, must register like a landslide—heavy, clumsy, catastrophically out of plumb. 
+
+Move along the braided cable, keep your arms tucked in so you don't snag the invisible guy-wires of the waiting rooms, and they will give you wide berth. Behind you in the pitch black, you will hear only the faint *reeek* of wet gum being smoothed over the spot where you stood, truing the catwalk back to level after the ruinous passage of your weight.

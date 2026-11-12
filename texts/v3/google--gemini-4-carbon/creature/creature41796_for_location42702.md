@@ -1,0 +1,51 @@
+If you want to find what lives here, you cannot look into the five hundred feet of blue. Anything soft enough to have a heartbeat would be Liquefied by the hydraulic shockwaves, and anything streamlined enough to swim would starve in a week; there is nothing in the open column to eat except light, cold, and raw kinetic force. 
+
+Look down instead, right at the mathematical floor, where the shattered flakes of newborn basalt go skittering across nothingness at sixty miles an hour.
+
+At first, the things down there look like flaws in the containment field—jagged, six-foot-wide patches of refraction skimming horizontally over the three-mile drop. Only when one intersects a shaft of afternoon sun does it throw a shadow—not onto the floor, because there is no floor to catch it, so the shadow falls three miles down, a tiny, crisp geometric smudge racing across the ochre desert below faster than a bird.
+
+They are plates of living, flexible glass. Up close, one resembles a cross between a flatworm and a sheet ofindustrial mica, no thicker than a fingernail, its body constructed from interlocking scales of amorphous biogenic silica spun directly from the supersaturated water. It has no eyes, no mouth, no hollow organs that could implode when a cavitation bubble snaps shut nearby. Its entire underside is pressed flush against the gravitational boundary, exploiting the bizarre physics of the shelf. Just as a water strider uses surface tension from above, this creature uses the spacetime kink from below, gripping the sheer gradient of artificial gravity with millions of microscopic, piezoelectrically charged cilia. 
+
+It does not fight the freight-train currents; it angles its translucent dorsal ridges by fractions of a millimeter, turning itself into a hydrofoil pushed downward against the invisible floor by the roaring water above. It tacks across the abyss like an ice-boat on a frozen lake. 
+
+Why is it down here? Because it is hunting stone. 
+
+When a razor-edged shard of fresh silicate comes tumbling endlessly across the frictionless plane, the sheet-creature intercepts it, matching its velocity in a dead sprint over the clouds. It drapes itself over the spinning rock like a wet cloth, pinning the shard against the boundary. For a few minutes, as both rock and hunter slide for miles over the pale sky below, the creature secretes harsh, localized acids from its belly, stripping trace iron, magnesium, and phosphorus straight out of the unweathered crystal lattice before spitting the slightly dulled stone back into the torrent. When a local phase-shift drops the ambient roar into sudden, pressurized silence, every sheet-creature for miles around snaps completely flat, locking its edges down so the violent upward heave of recalibration tears right over them without prying them off the bottom of the world.
+
+Follow the currents away from the open floor, toward the dark, staggered polyhedrons of the growing mountains, and life stops trying to dodge the violence and starts trying to harvest it.
+
+Look closely at the copper-colored kelp whipping horizontally off the knife-edges of the basalt. Near the holdfasts, where the vulcanized fronds chemically fuse into the stone, the rubbery stems look curiously swollen, knotted with dark, metallic galls. These are not part of the plant. If you could touch one without the current tearing your arm out of its socket, you would feel it buzzing—a tight, frantic vibration distinct from the booming roar of the sea.
+
+Crack one open—you would need a chisel—and there is no flesh inside, only a dense, wet lattice of copper-sulfide wires and tough, elastic membranes arranged like the bellows of an accordion. It is a lithotrophic colonial organism, something halfway between a barnacle and an electrical transformer. In an ocean devoid of organic detritus, where the water is sterile snowmelt, these colonies have abandoned chemical grazing almost entirely in favor of *piezotrophy*—eating the mechanical stress of the ocean itself.
+
+Anchored into the kelp’s tough, flexible base, the colony lets the twenty-foot frond act as a lever. Every time the torrent whips the kelp, every time an artillery-crack of cavitation slams through the pillar, the crystalline shell of the gall flexes microscopically. That relentless, deafening physical agony generates continuous piezoelectric current across the colony’s internal membranes, driving the synthesis of carbon straight out of dissolved gases without needing a single ray of sunlight. They grow in thick, armored crusts exclusively on the *windward* faces of the suspended monoliths—the exact spots where the water screams loudest and splits into white foam. Where the rock is sheltered and calm, the colonies suffocate in the quiet and flake away.
+
+Then there are the green moss-boulders tumbling through the mid-water sunbeams. From a distance, they look solid, solitary, and peaceful. 
+
+They are hollow. And they are nurseries, though not by choice.
+
+When a twenty-ton sphere of tightly packed moss gets caught between two shearing submarine tornadoes, it spins, pulling gasses and stray, needle-sharp silt into its core. Inside the dark, pressurized center of the sphere, buffered by six feet of dense plant matter from the worst of the hydraulic shocks, the water is weirdly still and warm—heated a few degrees above freezing by the sheer friction of the moss grinding against itself and the metabolic waste of its photosynthesis. 
+
+Wait for a phase-shift to tear one of these boulders apart—which happens eventually, when a gravitational recalibration catches half a sphere on one side of a shear line and half on the other—and out into the blinding blue spills a tangled knot of pale, segmented ribbons, each thirty feet long and no wider than a bootlace. 
+
+They look horribly vulnerable out in the open, whipping like stray threads of white silk in the blue empty, instantly shredded against the nearest raw crag if they don't find cover. They have no muscles to swim against a forty-knot current. Instead, their flat, ribbon-like bodies are lined with pockets of captured hydrogen—skimmed from the moss's interior—and rows of dark, hooked chitinous clasps along their margins. When their host-boulder is ripped open, they don't swim; they cast themselves out like hooked fishing lines, unspooling across hundreds of feet of turbulent water, tangling in the silver air-pockets dragged down from the sky, waiting entirely on blind probability for one end of their body to snag another passing moss-globe, or a drifting frond of torn copper kelp. Once a single hook catches, a chemical contraction runs the length of the ribbon, snapping it tight like a rubber band in a fraction of a second, hauling its delicate body out of the roaring cold and burrowing straight back into the tight green dark, chewing tunnels through the moss from the inside out.
+
+Nothing here has evolved yet—the ocean is too young for evolution. Everything here is either an engineered pioneer dropped in from the same unseen scaffolding that builds the stone, or a Hitchhiker—extremophile spores and tailored templates meant for a later, calmer millennium that woke up early in the sterile cold and refused to die.
+
+Which brings you to the growing rocks themselves. 
+
+Go all the way out to where a dark pillar of silicate is actively precipitating—where the water shimmers with a faint, oily heat-haze as quantum-scale templates pull dissolved minerals out of solution and lock them into black geometric planes. Nothing should be able to touch that boundary; to get caught in the precipitation zone is to have basalt grown straight through your cells, petrifying you in seconds.
+
+Yet, clinging right along the shimmering, razor-thin margin where liquid water becomes black stone, there are smears of brilliant, iridescent violet. 
+
+They look like oil slicks, creeping constantly upward and outward at the exact speed the rock assembles itself, staying millimeter-ahead of solidifying. They are giant, multinucleated syncytia—single-celled sheets of naked, armored protoplasm ten yards wide, protected from the freezing cold by biological antifreezes that give them their violet sheen. They aren't eating the rock, and they aren't eating the light. 
+
+They are parasites of the invisible machine.
+
+Where the hyper-advanced architecture reaches into the water to organize matter, there is free energy—tiny, localized gradients of entropy reversal, stray charge bleeding off the unseen grid as atoms are forced into crystalline rows. The violet slicks graze directly on the miracle of creation, soaking up the waste-energy of the terraforming field itself. Every so often, one moves a fraction of a second too slow, or a sudden gravitational recalibration jumps the rock-growth forward by an inch, and half the creature is instantly entombed in brand-new, flawless black stone. 
+
+It doesn't kill the rest of it. The remaining smear simply tears itself free along the fracture line and keeps creeping up the raw face of the spire. Look closely at the suspended polyhedrons waiting to become mountains, and you will see their sheer, glassy black walls shot through with thin, shimmering veins of trapped purple crystal—fossils inside rock that is four days old.
+
+And sometimes, if you hang suspended in the deafening roar for long enough, watching the clouds drift three miles beneath your boots, you realize the violet smears are doing something to the mountains. 
+
+Because they drink the energy of the templates, their presence ever so slightly blurs the math. Where a pillar should have grown into a clean, hexagonal prism, the violet slicks have starved the margin on one side, causing the stone to precipitate in a weird, curving spiral instead, creating hooked overhangs and hollow flutes in the nascent basalt. Without meaning to, just by trying not to turn to stone, these blind sheets of protoplasm are ruining the clean geometry of the grid. They are carving pockets of dead water, eddies, shadows, and caves into the growing mountain range—building, inch by jagged inch, the very first quiet places in this screaming sky-sea, waiting for whatever is supposed to be born next.

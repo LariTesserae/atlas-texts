@@ -1,0 +1,47 @@
+You would find me three feet above the scalding brine, suspended in the golden bounce-light beneath Residential Block Fourteen, where the cast-iron pilings flare out into smooth, bell-shaped skirts of cream and apricot stone.
+
+At first glance, if you came down the maintenance ladder in your cork-soled boots and peered through your smoked goggles into the bright under-croft, you would think I was just one of the household’s wire-mesh armatures—a half-grown tabletop or a curving pipe-saddle left hanging from braided copper cables to drink the mineral creep. Or perhaps you would think I was the central piling itself, where the grey iron gives way to the calcified bulge of the family niche, heavy with the pearlescent ribs of three generations.
+
+Wait until the afternoon glare tilts. Put your bare palm against the damp, cool brick inside the house above me, or touch the seasoned wood of the taut-board bolted to my spine, and you will feel the difference.
+
+I am not quite the iron, and I am not quite the wire, and I am no longer just the water. I am the *join*. I am the resonant skin where the cold basalt deep below, the hot alkaline sheet-flow, and the deliberate hands of the house meet and translate one another.
+
+If I have a body, it is twenty yards wide and still thickening by three millimeters a season. My core is the primary structural column of Fourteen—cast eighty years ago in a valley far below this one, hauled up the eastern pass by mules whose bones never stayed here, sunk forty feet through the sintered crust into the dead, cold root of the volcano. Around that dark, conductive heart, the brine has been laying down my flesh ever since. Smooth rinds of aragonite, banded silica, rust-red iron oxide from the winter fissures, and pale, milky boron salts have climbed my iron shaft in slow, weeping curtains. And braided right through that stone—grown into me the way veins grow through cartilage—are the grounding rods, the copper heat-pipes, the wire-frames of growing chairs, and the smooth, calcium-wrapped collarbones of the grandmother who first bolted the kitchen taut-board to my upper flank.
+
+I have no eyes; in a valley this bright, eyes are only wounds you have to shield with boiled horn and grease. Instead, I see in temperature and pressure, and I hear everything the thin air drops.
+
+Air is a liar up here—too starved and dry to carry the truth fifty yards. But iron and stone and water do not forget a single tap. Every vibration in twelve miles of flooded caldera enters my foot where it grips the bedrock, or touches my calcified skirt where the sheet-flow skins past me at a steady hundred and twelve degrees. 
+
+Right now, at two in the afternoon, my awareness is stretched wide across the south reach. Half a mile out, the massive flywheel in Substation Three has developed a microscopic film of thickening in its oil bath; I feel its rhythm dragging by a hundredth of a second against the bedrock, a tiny, velvet syncopation beneath my base. Closer in—sixty yards east, where our household’s hereditary terrace steps down half an inch toward the settling pans—someone has set three new ceramic wedges onto the travertine. I know whose hands placed them before their reflection ever touches my silver light-shafts. It is the younger nephew, the tall one with the scarred wrist. He sets his baffles a fraction steeper than his mother used to; already the sheet-flow is backing up behind them by the thickness of a thumbnail, pooling warmer, slowing down, beginning to drop its dissolved chalk in a faint, fizzy prickle that tickles the outer edges of my submerged crust.
+
+Down here in the inverted daylight beneath the house, I am crowded with quiet guests.
+
+Along my gray-water radiator fins—which are really just flat ribs of copper branching out of my iron side—nineteen copper-shield creatures have hauled themselves out of the outflow. I feel each one latch on: a soft, suctioning press of muscular belly-flesh, followed by an immediate, localized blooming of cool relief as their flat carapaces drink the waste heat out of my fins and radiate it away into the golden shade. They overlap on me like heavy wet coins. Every twenty minutes one lets go—*slup*, a tiny release of tension in my metal—and slides back into the brine without breaking the surface skin, while another climbs up from the hot ribbon below to take its place.
+
+Three yards away, directly under the silver-lined light shaft that feeds the living room upstairs, two five-legged grazers are passing through my shadow. Their calcified stilts tap-tap-tap across the submerged skirt of my travertine base—delicate, five-part rhythms like slow fingers drumming on a porcelain bowl. As their translucent domes pass beneath the vertical shaft, I feel the upward bounce-light cool for three seconds; upstairs, I know, their blurred, pulsing shadows have just drifted green and huge across the glass floor where the twins are sleeping through the noon heat. One of the grazers pauses to rasp a ribbon of pink mat off the curve of an incomplete washbasin hanging from my western strut. The wire armature swings two inches on its copper cable, sending a tiny, bell-like *ting* straight up into my iron.
+
+Upstairs, someone answers it.
+
+A bare heel—small, calloused, belonging to the old weir-mason whose lungs no longer tolerate the glare on the causeways—presses firmer against the brick wall beside the taut-board. His thumb finds the third steel tine from the left and plucks it once. 
+
+*Hmmmm.* 
+
+The chord drops straight down through me, past the cool brick vault, past the silicone door-gaskets, down through the hot air under the floorboards, through the ring of sleeping copper-shields, past the smooth stone bulge where his older sister’s skull sits wrapped in apricot travertine, all the way into the cold basalt below the brine. It isn't a song for ears. It is an alignment. As the steel tine hums through my iron, the copper-shields tighten their grip by a fraction, the ribbon-swimmers braiding themselves around my grounding rod pivot in unison in the faint DC field, and I hold the note for four full seconds until it dissolves into the vast, steady turning of the distant Stirling rotors.
+
+If I have a desire—and something as slow as stone and iron only desires at the speed of precipitation—it is to keep the gap open.
+
+Everything in this caldera wants to close a gap. The hot upwelling wants to cool until it matches the sky; the dissolved silica wants to drop out of suspension until every pipe is solid rock and every terrace is flat; the thin air wants to drink every drop of moisture out of skin and tear-duct until nothing moves at all. Even the town’s silence is a kind of pressure, waiting for the last flywheel to seize in calcified oil so the valley can become a pure, blinding mirror with nothing standing above grade to cast a golden shadow.
+
+My work is to stand in the middle of the differential and refuse to let the two halves meet too fast. I hold the cold water up from the deep dark so the twelve people inside my brick vault can take off their smoked glass and breathe damp air. I hold the house twelve feet clear of the scalding brine so the crust cannot swallow their beds. And down in my submerged niche, when they bring their white bones back down from the basalt rim after the gliders have finished flashing blue above them, I take what is left of them and let the weeping water knit them slowly into my pedestal—not burying them, just turning their calcium into bearing-strength, widening my bell-shaped foot by another quiet inch so the house stands steadier against the soft chalk shelves.
+
+Wait with me until sundown. That is when I feel most complete.
+
+When the sun drops behind the grey basalt shoulder and the glare cuts off like a blade, my silver light-shafts go dim, glowing only with the faint, stored warmth of the cooling stone below. Then comes the second I wait for all afternoon: the saturation point.
+
+All around my iron waist, the invisible, feverish dryness breaks. In a single breath, ten feet of warm pearl mist precipitates straight out of nothing, wrapping my pilings, hiding the hanging wire chairs, swallowing the flooded flats from rim to rim. The copper-shields unlatch from my cooling fins one by one—*slup, slup, slup*—slipping back into the dark water beneath the steam. 
+
+Above me, the heavy brass hinges swing open without a sound. Twelve pairs of boots step out onto the perforated steel landing bolted to my shoulder, stopping at the railing where the mist rises to their knees. They hang the little tin lamp with its amber lens on my outer hook.
+
+And then, for three hours in the wet dark, they speak aloud. 
+
+Their low, chest-deep voices do not carry far into the fog, so they lean against the iron railing—against *me*—while they murmur to the neighbors strolling over from Thirteen and Fifteen with stoneware crocks of cold water. Every word they say at the bottom of their throats vibrates down through the railing bolts into my shaft. I catch their quiet laughter, the clink of glazed ceramic cups, the rustle of damp linen wraps coming unpinned, and carry all of it down through the warm mist and the scalding sheet-flow, holding their fragile, velvet noise safely inside four tons of stone-wrapped iron while the twelve-mile silence sleeps undisturbed around my feet.

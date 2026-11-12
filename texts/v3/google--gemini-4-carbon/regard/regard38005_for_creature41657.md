@@ -1,0 +1,63 @@
+First, it withholds its own weight.
+
+To enter a room like this carelessly—even as pure attention, if attention carries heat or light or the static prickle of disturbed air—would be to break what made it worth noticing. A lesser kindness, moved to pity by the pewter dimness and the rationing of six drops of sap over two hours, would arrive full of gifts. It would coax a sweet spring through the limestone apse so the inhabitants might drink their fill; it would widen the crooked chimney to let in the golden morning; it would drop fat, flightless beetles down the chute so the thumb-sized youngster beside the chert flake would never have to wait until tomorrow for a second speck of protein.
+
+And within three seasons, the kindness would have killed them all.
+
+Water pooling on the floor would wake dormant spores sleeping in the talc-fine silt. Gray velvet mold would bloom across the ancient seed-husks, soften the seasoned hardwood of the digging sticks, and creep up into the high horizontal seams to unmake the dry, smoky-eyed ancestors sitting in their quiet rows, turning memory into rot. Damp air would cloud the flat watch-crystal spectacles of the living and chill their spare, loose-skinned flanks when evaporation began. A wider chimney would spill noon glare across four-lobed pinholes built for thrice-bounced shadow, and bring owls, or scorpions, or wind that lifted the flour-dust into lungs with no phlegm to clear it. Abundance would urge the females to lay every year instead of every fifth; forty mouths instead of eleven would rasp wells into all six taproots at once; the trees above, feeling their deep vascular bundles bled faster than the Sealed Water could replenish them, would wall off the punctured xylem into dead, resin-soaked ironwood and starve the vault below.
+
+Wisdom knows a finished sentence when it reads one. It does not add words to fill the margin.
+
+So the power does not step into the chamber at all. It leaves the air at skin-warmth. It leaves the dust uncreased. It listens only as the inhabitants listen—through thirty feet of lime-bound sandstone, reading the faint thermal ticks of the caprock and the slow, three-second trills of wrist-tendon passing along a digging stick in the dark.
+
+For a long time—longer than a man’s life, which is barely the middle age of the notched female on the eastern root—it does nothing whatever except comprehend. It notes the economy that wastes not even an amber plug of dried gum. It notes the cleanliness of the grinding dish where the pinkish-white salts gather, and the unhurried courtesy of four small hands resting on four flat skulls in the pitch black, asking nothing of the universe except that tomorrow’s stone be the same temperature as today’s.
+
+Only when it has understood the whole clockwork does it turn its face away from the chamber—upward into the brass furnace of the plain, and downward into the blind dark beneath the floor—and set itself to the quiet work of keeping the walls around a miracle intact.
+
+---
+
+Thirty feet overhead, the lowland plain is an anvil under a white sky.
+
+No one looking at this country would guess what sits beneath it. There is only baked pavement of desert varnish, bleached gravel, and, spaced forty yards apart along a scarcely visible fault-trace, seven ancient ironwood trees gnarled low to the ground by centuries of dry gale, their thorny crowns sparse and olive-drab. Twenty paces north of the trees, half-hidden under a shelf of tilted sandstone, a jagged slot no wider than a boot-heel breathes out a faint, dry hint of cedar when the barometric pressure drops.
+
+Here, out in the glare where hurry and violence belong, the power acts—never by breaking the laws of the plain, only by leaning an ounce of weight against the hinge of chance.
+
+In the seventh year of its watching, a summer monsoon collapses all at once against distant red mesas ten miles west. A sheet-flood gathers in the dry washes, brown and roaring, rolling boulders the size of sheep across the hardpan as it hunts a new channel across the basin. Left to the blind geometry of the slope, one braided arm of that torrent would tear straight across the low sandstone shelf, scour open the boot-heel cleft, and pour tons of liquid mud, drowned brush, and drowning water straight down the twice-bent chimney, filling the sunken church below to its scalloped ceiling in twenty minutes.
+
+Three summers *before* that cloudburst gathers, two miles upslope, an old bank of cemented gravel undermines in a winter freeze-thaw just slightly further to the east than it might have. A dead mesquite snag catches against the fallen cobbles; windblown sand piles behind the snag into a low, streamlined bar six hundred yards long. When the brown wall of floodwater arrives three years later, it hits that gentle swell, divides cleanly, and goes roaring past a quarter-mile south of the ironwoods. Down in the vault, not a grain of silt shifts. Only, five weeks afterward, when a fraction of that distant flood has seeped down deep fractures to lean lightly on the buried water-lens eighty feet underground, the eastern taproot swells by a hair’s breadth under the notched female’s jaw, and she begins, very slowly, to assemble the porcelain shell of an egg.
+
+In the fortieth year, men come across the plain.
+
+They are not like the two quiet diggers who climbed down the talus slope a hundred lifetimes ago, ground a handful of tough seeds on a tilted slab, tucked their sticks neatly into a seam, and walked back out into the Pleistocene evening. These men come in a white truck with heavy tires that crush the desert pavement, trailing a cable of seismic geophones and carrying steel stakes and a drilling chart. They are hunting deep fossil water to pump to the surface for cattle or copper-leaching five miles off, and their instruments have caught the faint acoustic shadow of the sealed Pleistocene lens eighty feet below the seven ironwoods.
+
+If they sink a six-inch casing into that lens and run a diesel pump for two summers, the water table will drop twelve feet. The deep root-hairs will hang in dry gravel. The cables in the room below will lose tension, stop ticking, and go dead within a decade.
+
+Nothing dramatic befalls the men. No lightning strikes the rig; no phantom voice warns them off. Simply, as the heat shimmer dances tall and crooked over the plain that afternoon, a dust-devil twists up off the alkali flat, stings the surveyor’s eyes at the moment he sights along the transit, and rattles the clipboards on the hood. Half an hour later, reading the seismic return through a smear of heat-noise in the dry sandstone, the geologist frowns at the trace—the lens here looks thinner than he hoped, split by tight, unproductive shale, hardly worth hauling the rotary rig across four miles of bad arroyo when a cleaner basin lies twelve miles north beyond the ridge. He scratches a pencil line through the square on his map, drinks warm water from a canteen, and climbs back into the cab. The tire-ruts remain in the gravel for ninety years, slowly filling with blown grit, and no one comes back with a drill.
+
+More delicate still is the work among the trees themselves.
+
+Even an ironwood does not live forever. The westernmost tree on the plain above—the one whose taut, slender twin cables hang near the talus slope down in the chamber—is nine hundred years old. Half its upper crown is already silver-bleached bone, polished smooth by sandstorms; wood-boring beetles on the surface have riddled its heartwood; within another century it will split to the root-collar and die. Left untended, six columns would become five, then four, until the slow erosion of mortality above pinched the little room below down to nothing.
+
+So, eighty years before the old tree fails, when a rare winter rain coaxes a scatter of hard, shiny beans to sprout in the gravel, one seedling happens to germinate in the narrow lee of a fallen limb, precisely over an hairline joint in the buried caprock. A desert hare loping through the dusk smells a sweeter shoot ten feet away and leaves this one unbrowsed. Decade by decade, as the seedling hardens into a thorny whip no thicker than a thumb, its blind white leader-root noses downward through dark, tight sandstone, guided past impenetrable cherts by microscopic films of mineral dampness, until one windless noon it reaches the scalloped ceiling of the vault twenty-five feet above the silt.
+
+Down in the pewter twilight, three of the eleven pause on their separate perches and tip their broad, crystal-shielded heads upward.
+
+High in the curve of the stone, a pale, blunt tip the thickness of twine has pushed silently out of a dry seam. Over the next twelve years, moving at a pace even slower than their own, that new taproot drops plumb through the warm, unmoving air, touches the level flour-silt without raising a puff, plunges through into the deep rock below, and pulls itself taut as an anchor cable. By the time the ancient twin roots near the talus finally slacken their hum and dry into silent pillars good only for climbing, the new column is thick as a man’s wrist, armored in fresh papery curls, pumping sweet, tannic sap up from the dark—and a middle-aged female with faint slate bars still lingering on her flanks is pressing her horned jawbone to its bark, listening for the right vascular bundle to pare open the first new well in three hundred years.
+
+---
+
+And down in the chamber itself—nothing at all?
+
+Almost nothing.
+
+Once in a great while—perhaps once in the span of an empire’s rise and fall miles beyond the plain—deep tectonic creep in the basin threatens to slip the two wedged beds of sandstone high in the vault’s shoulder, which would either drop a ton of caprock onto the grinding slab or pinch the crooked chimney shut into eternal blackness. Long before the strain can build to a fracture, the power bleeds the stress away grain by grain along distant fault-planes miles off, so that all that ever reaches the sunken room is that familiar, solitary *tick* in the rock overhead, hours or days apart, telling everything with a jawbone pressed to wood or stone that the roof is sound and the world is holding its shape.
+
+And deep below, where the sealed lens of ancient water rests in dark sand eighty feet down, a hairline vein in the basement granite is kept clear of mineral scale—just wide enough that snowmelt from mountains a hundred miles away, traveling underground for three thousand years before it arrives here, seeps in drop for drop at the exact rate the seven ironwoods draw it upward into the desert sky. The ledger stays balanced at zero.
+
+Nothing else is changed. No visions trouble the small, cool brains behind the watch-crystal eyes. They are never taught to hurry, or to count beyond the companions beside them on the stick, or to suspect that the vast, burning plain overhead is anything more than a rumor of wind humming down a wooden cable. When the eighty-year-old female with the pale notch in her neck finally feels the long, unhurried slackness arriving in her chest, nothing intervenes to stretch her eighty years to two hundred. She climbs away from the eastern root at an inch a minute, crosses the clean stone shoulder far from the gray stain of the chute, settles herself upright in a dry horizontal slot beside her grandmother’s grandmother, locks her soft, lamellar toes into the lime-bound grit, and shuts her mahogany-rimmed beak in peace.
+
+Only tonight, when the pewter patch beneath the cleft has faded out completely and seamless black fills the space from talus to apse, four of the living climb down to the seasoned digging sticks tucked into the wall.
+
+They line up an inch apart along the upper shaft, tails propped neat against the sandstone, noses pointed into the dark. The oldest reaches out a slender, five-fingered hand and rests its dry palm on its neighbor’s flat skull. A slow, three-second purr of wrist-tendon passes from bone to bone; half a minute of stillness follows; two faint taps of an inner thumb answer against a brow-ridge.
+
+And if there is one thing more—too quiet to call an intervention, too small to startle a bark-louse under the brown chert—it is only that the warm stone wall behind the digging sticks holds its ninety degrees with an utter, fathomless steadiness, like a hand cupped around a candle flame that has no need to touch the wick, glad simply that in one small hollow under the iron sky, nothing is hunted, nothing is wasted, and nothing is afraid.

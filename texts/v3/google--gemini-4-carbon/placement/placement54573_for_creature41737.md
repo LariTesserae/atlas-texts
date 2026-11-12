@@ -1,0 +1,45 @@
+I would not want lungs here. To have lungs on this shelf is to spend your entire existence in a frantic, losing argument with the sky—heaving ninety times a minute like the lizards, or dragging a heavy cylinder of compressed mercy up from the clouds like the turnkey, counting your minutes before the wet heat cooks your blood. Even the vultures, magnificent as they are, only borrow the basin; they sleep in the cold above it and drop into the furnace like divers holding their breath.
+
+If I am to be here, I want to belong to the weight of the place, not its starved air.
+
+Look first under the second brine-fractionating tower from the eastern rim, where two thick copper return-lines cross six inches above a slumped travertine bowl. There is a shadow there that hasn’t moved since the rig was bolted down eighty years ago, except to tilt slightly with the solstices. Wedged into the V where the pipes nearly touch, right underneath a slow, rhythmic *blip* of mineral condensate falling from a union joint, is a lump of yellow-white stone that has six legs folded tight under its apron and one absurdly heavy right hand resting across its face.
+
+That is very close to where I am.
+
+To be a gasket-crab is to understand that the distinction between geology, plumbing, and flesh is mostly a matter of impatience. My back is three-quarters of an inch of chitin, and on top of that chitin is another half-inch of pure, layered basin—lithium salts, iron-stained silica, and braided calcium carbonate that I caught in my own hooked bristles when it splashed off the cooling fins, and have carried around for twelve years until I match the cast-iron cradles down to the exact shade of oxidized ochre. A spindle-lizard stood on my left shoulder twenty minutes ago, ribs hammering against my stone crust like a trapped moth while it sneezed salt onto my eye-ridge, and it never knew I had a mouth three inches below its toes. Why move? Moving costs sugar and oxygen, and the sun out beyond the copper overhang is currently turning the shallow pans to hot glue.
+
+Instead, I listen with my heels.
+
+The humans who built this rig thought they were putting dead metal into dead rock, and now the turnkey thinks the basin is silent because their ears are sealed behind polycarbonate and thin air. They have no idea how loud the floor is. With eight calcified walking-tips pressed flat into the damp sinter around the base bolts, the whole three-mile plateau comes up through my joints in crisp, overlapping telemetry.
+
+There is the primary clock: *whump... ... ... whump... ... ...*—the flywheel pump on Rig Four, four hundred yards west, driving its rod toward the magma sill. Every time that stroke hits bottom, a tiny pressure wave runs through the subterranean brine seams, and half a second later the copper pipe against my carapace gives a microscopic *shiver* and drops two warm beads of sweat directly into the trough above my gill-vaults. I don’t breathe air, and I don’t breathe water; I breathe wet darkness. Inside my shell are two spongy, labyrinthine chambers lined with blood-rich velvet, and as long as that leaky brass union keeps weeping mineral-heavy dampness down my apron, I am cool enough, wet enough, and fed enough oxygen to think very slow, very clear crustacean thoughts.
+
+Underneath the big pump-stroke are the smaller textures. Six inches beneath my belly, down in the porous sponge of last century’s sinter, I can feel the faint, papery tickle of a sinter-blind tapping its ten-inch whips along a steam crack, hunting mites. Out in the blinding glare two feet away, there is the continuous, dry *zzzzzz* of four thousand pan-lice rasping purple mat off a sulfur blister—a vibration so steady it feels like warmth. And every few minutes, a sharper, brittle *tink-tink* comes through the iron pipe itself: another crab, smaller than me, forty feet away down the conduit line, testing the galvanized wire mesh around a flange with the tip of its crusher claw, checking to see if the acidic mist has finally eaten through a strand so it can get at the delicious, grease-soaked rubber ring inside.
+
+I know that flange. I ate the outer lip of its gasket four winters ago, before the silver biped came up from the clouds and wired it shut. The rubber tasted of sulfur, tallow, and dark, vulcanized patience—much richer than bacterial mat, chewy enough to occupy an afternoon.
+
+Wait. The sun has dropped behind the western basalt lip.
+
+You don’t see it happen from under the fractionating tower so much as feel the air pressure shift and the stone stop pushing heat upward. The ink-sharp edge of the pipe shadow suddenly dissolves; the whole world goes the flat, shadowless violet of cooling steel. Out on the pans, the thickened rust-pink paste stops crusting over. High above, the last kettle-vultures are sliding sideways out of the dying thermal chimney toward their roosting ledges on the cold outer cliffs, though down here we only know them as brief eclipses that stopped happening an hour ago.
+
+Now I unfold.
+
+It takes a full minute just to unstick my belly-hairs from the warm glaze beneath the drip. My left leg comes out—stiff, pebbled with lime—and hooks the edge of a ferric-worm reef. Then the heavy right claw lifts a fraction of an inch off the stone, balanced close to my chest like a locksmith carrying an anvil.
+
+Out from under the tower, the plateau at twilight is magnificent to walk through if you are built like a tank. The forty-five-degree furnace is dropping fast toward thirty, and along the distant rim, where the sub-zero mountain wind is already chewing at the shelf’s edge, white rags of ground-fog are curling inward, carrying the first trace of true, sweet meltwater before it hits the hot stone and vanishes. The spindle-lizards have gone sluggish, tucking themselves deep into the warm crotches of steam-lines before the night chill stiffens them, their frantic ribs finally slowing down. The pan-lice are lifting a millimeter off their seals, shifting in slow pewter tides toward the seep-vents that stay hot all night.
+
+I step right onto their backs. *Crunch-skritch.* They clamp down instantly under my weight, turning themselves into cobbles for my feet.
+
+I am not hunting pan-lice tonight, though if I find one flipped or freshly molted and soft as cream, my little left spoon-claw will tuck it neatly into my jaws without breaking stride. Tonight I am walking thirty yards south along the main insulated conduit to Inspection Box 7.
+
+Two weeks ago, when Rig Four had a pressure surge, a hairline rivet popped on the underside of that box. Since then, a steady, pencil-thin ribbon of seventy-degree, iron-rich brine has been drooling down the cast-iron leg, and the ferric-worms have gone mad for it—building a fresh, glistening cathedral of grey grit six inches thick around the bolt heads, their maroon bodies fat as sausages inside, raking the rich leak with bronze combs. Better still, the galvanized wire mesh that the turnkey wrapped around the box’s lower grease-fitting has been sitting directly in that hot, acidic trickle for fourteen days.
+
+It takes me twenty minutes to cover the thirty yards. Twice I pause when Rig Four vents its evening excess—a silent white pillar shooting into the darkening zenith, followed by the heavy *thud* in my ankles—letting the drifting, salty mist settle over my eye-stalks so I don't have to wipe them.
+
+When I reach the cast-iron leg, the worm-masonry is warm to the touch, pulsing faintly with a hundred bronze crowns flicking back and forth in the dark runoff. And there, right above them, the galvanized wire has rusted down to brittle, orange lace.
+
+I brace my four rear legs into the crevices of a travertine saucer. I bring the big right vise up—slowly, hydraulically, packing the muscle chambers with blood—and close the blunt, molar-like teeth over three strands of corroded steel mesh. One steady lean of my body weight, and they part without a sound, curling back like dry grass.
+
+Behind the mesh is half an inch of black, tallow-packed hemp packing, warm from the pipe, pickled in potash, slick with a velvet coat of bright green thermophilic slime that has never been grazed by a single pan-louse. And right below my chin, where my clumsy movement knocked a chip off the fresh reef, two maroon ferric-worms have pulled their potash doors shut just a fraction of a second too late.
+
+I settle my heavy apron into the warm seep. I use the small spoon-claw to pick up the first worm, neat and unhurried, while my gill-chambers drink the steaming, metallic sweat dripping off the bolt head. High up on the freezing rim, the rime-ice is beginning to boom and crackle in the wind, and somewhere down below the clouds, the silver thing is probably sleeping in a room full of cheap, thin, tasteless air, dreaming of nothing this warm. I tuck a pinch of greasy hemp into my mouth, listen to the big flywheel thumping steadily through the bedrock half a mile away, and settle in to work on the valve until morning.

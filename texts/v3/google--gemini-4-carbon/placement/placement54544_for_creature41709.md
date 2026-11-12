@@ -1,0 +1,39 @@
+I would not be one of the nine, because I do not think I could bear the responsibility of never trembling. To walk on four ceramic points beside a balanced shard of granite and know that a single clumsy thought, translated into an unbaffled twitch, could ruin six weeks of someone else’s silence—that belongs to minds already perfected in restraint. 
+
+At first I thought I might be outside, crouched on the dry scree in a windproof shell, fingers numb inside wool liners, watching that impossible dark wall take the morning sun. A surveyor who climbed up to check a benchmark and found the benchmark forty meters underwater with no lake around it. Pressed close enough to hear the wind split left and right off a sheer plane of nothing, wanting desperately to push a bare hand through the velvet skin just to feel seven-degree water hang upside down over my wrist, yet knowing that the grease on human skin, the shed flakes of epidermis, the pulse thudding in my radial artery would go off inside that cathedral like a flare gun. If I were human up on that shoulder, the kindest thing I could do would be to back away down the talus and scratch the coordinates off my map.
+
+So let me be inside, where I don’t have to leave.
+
+Not the grey mantle in mid-water, either, though I envy its work—to move on clean, right-angled tracks, eating stray motion and turning distraction into quiet flesh. That is still too mobile. Even an orthogonal glide requires choosing when to rise and when to stop.
+
+Drop lower. Down past the middle terrace, past the slow, heavy ribbon of fluorocarbon with its dying violet coals, down to the bottommost step where the mountain was split open to make room for the floor.
+
+Where the sintered black plane of a sunken courtyard meets a rib of fresh-cleaved granite, there is that hairline transition—the span of a single hair’s breadth where rock was persuaded to become architecture without heat or chisel marks. Just beneath an overhang of raw, flaky mica and sharp feldspar, tucked into an acute corner where two acoustic shadows overlap and cancel even the sternal hum down to a thread, something else clings to the seam.
+
+I am low and flat, no bigger than an open palm, built like a limpet’s memory of a circuit—or a lichen’s memory of bone. My back is a faceted plate of dark iron-silicate, matte and slightly porous so the standing wave doesn't bounce sharp off me; it sinks in, loses half its force, and tells me everything I need to know on the way through. Underneath, I have no foot, no slime, nothing soft enough to rot or cloud the water. Instead, ten thousand microscopic root-hairs of pale, flexible glass—that same sunless ancestral thread shared by the brittle star under the bridge and the filaments folded inside the tall ones' chests—reach down into the sub-visible cleavage planes of the raw mountain stone.
+
+My work is slower than theirs, and much lower to the ground. 
+
+When you crack granite high in the dry cold and then pin forty meters of water onto the wound, the stone does not stop breaking all at once. Centuries of alpine sun and frost heave are still coiled inside the crystal lattices below us. Deep in the bedrock, three centimeters under my belly, a grain of quartz is straining against a twin plane of orthoclase, still trying to settle into the new pressure. Left to itself, in forty minutes or forty days, that microscopic boundary will slip. It will give off that faint, glassy *tink*—not loud, no louder than a watch escapement wrapped in felt, yet sharp-edged enough to travel seventy meters through still water and shiver the outermost facet of the polyhedron two of the tall ones have been coaxing out of the dark since last month’s new moon.
+
+I feel the strain building long before it breaks. To my glass rootlets, stretched across the crystal faces, mechanical stress tastes faintly electric—a tiny piezoelectric sourness gathering at a corner of the quartz.
+
+I do not move across the rock; I haven't shifted my rim by a millimeter in three winters. I simply tighten a cluster of filaments on the far side of the grain and slacken another, borrowing a trace of dissolved silica and potassium from the seven-degree water and laying it down as an invisible wedge inside the fault. Over six hours, I let the rock sigh instead of snap. I bleed the fracture out into heat so diffuse it doesn't raise the water around my shell by a ten-thousandth of a degree, and keep the tiny scrap of voltage for myself. That is breakfast: the silent disarmament of a stone’s old grief.
+
+From down here in the sharp-edged dark, the precinct is vast and navigable entirely by absence. 
+
+I know where all nine of them are without ever needing light. When two stand across the court above me, tuning their vanes to hold their invisible lattice in suspension, I feel the water between them stiffen—not physically, not to a finger, but in its electromagnetic grain, as if a thread of clear ice had formed in warm oil. Their concentration casts a cool, crisp geometry down across my back. Sometimes a spent violet node drifts past in the heavy liquid conduit three meters overhead; I don’t see the purple glint, of course, having nothing to see with, only register the slight, syrupy drag of the denser fluid skin and the faint thermal ghost of a coal that has almost forgotten it was warm.
+
+Once every nine or ten days, a ceramic nib sets down on the basalt twenty centimeters from my rim.
+
+*Click.*
+
+The impact is so exquisitely managed that the water beside me doesn't even press harder against my plates; the sound comes entirely through the stone, a dry, polite syllable in a language of pure placement. One of the tall ones pauses above me. Forty seconds. Two minutes. Through the water, I feel the downward sweep of its cranial vanes tilting slightly toward my overhang, reading my acoustic profile—checking the tension in the bedrock seam beneath me the way a cellist’s thumb tests the neck of an instrument without plucking a string.
+
+It does not brush me with its chest-filaments as it does the grey mantle. We do not need to sync; I am not a filter that fills up. Still, in the ten seconds before its rear nib draws two millimeters across the quartz—*rasp*—and steps out onto the unsupported span, there is a minute adjustment in the angle of its lowest silver plate. A tiny, focused pocket of quiet drops over my corner like a cupped hand, taking the weight of the boundary-hum off my shell for half a minute. A rest note, left on the shelf for the thing that keeps the floor from speaking out of turn.
+
+Now the sun has cleared the eastern ridge. Even down here under the stepped fault, tucked behind obsidian and raw crag, I know when day hits the outer wall. The water doesn't warm, not really, yet a scatter of high-energy photons makes it partway in before dying in the matte towers, kicking a restless, staticky shiver through the dissolved ions. Above me, the tall ones fold their crowns in and go still behind the baffles. The hanging lattice in the court is held on a maintenance chord, waiting. Down at the ceiling forty meters up, the outside wind is hurling dry ice needles against the phase-lock, a distant, fizzing erasure that barely reaches the floor as a rumour in the hum.
+
+Everything up there pauses, enduring the yellow noise of a star too close to the planet.
+
+Only down in the dark seam does the day’s work go on uninterrupted. Under my pale glass roots, a flake of black biotite is pulling microscopic fractions away from the granite matrix, remembering the glacier that used to sit on this shoulder ten thousand years ago. Gently, atom by atom, I thread myself into the gap, drink the sharp click before it can be born, and hold the mountain quiet until the dark comes back.

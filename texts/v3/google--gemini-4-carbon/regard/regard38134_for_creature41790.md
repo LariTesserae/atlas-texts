@@ -1,0 +1,33 @@
+A lesser benevolence—the clumsy, sentimental kind—would look upon that parched, bruising sky and weep for them. It would think of soft green valleys, of cool rivers, of skins that do not need to be greased with iron dust against the lightning, and in an act of catastrophic mercy, it would send rain. 
+
+One afternoon of warm showers would turn the chalk massif to blinding, suffocating slurry. It would short out the great electrostatic engines of the canopy, drown the dry capillaries of the stone, rot the velvet hides of the kite-beasts, and poison the sulfur-fixing symbiotes in the bellies of the children. To give them ease would be to murder everything they have spent ten thousand generations becoming.
+
+The Power that pauses above the copper dusk knows better. 
+
+It does not descend as a shape, for shapes in the bowl are battered and torn; it settles into the amphitheater as an *attention*, listening with vast, quiet delight to the clatter of the silica fronds, the booming seed-drums, the saw-rasp of the climbers, and the sharp *krr-chk* of bone-wands dragged across forearm armor. It watches the young vaulter ride the sulfurous belch on stitched hides. It feels the grandmother’s thumbnail stuttering down the limestone wall in the violet dark, playing back a century of survived storms.
+
+And it sees that they are not suffering. They are *magnificent*. Their economy of spark and grease is as tight, resonant, and whole as a stretched drumhead. To hand them metal they did not smelt, or tame the storm they ride, would insult the fierce, crab-scuttling grace of their days.
+
+Yet the Power is wise, and because its sight pierces miles deeper than the deepest metallic root of the grove, it sees two things the harvesters cannot.
+
+First, it looks three miles down into the dry, hot marrow of the mountain, where the tectonic plates grind and feed the fumarole. There, a massive blister of basaltic magma is slowly cooling and shifting eastward. Left entirely to blind geology, in about four hundred years—sixteen generations of thumbnails rasping against chalk—a shelf of dense granite deep in the plumbing will shear and drop, choking this vent entirely. The wind will stop. The static will die. The towering stalks will brittle and collapse into mute heaps of silica dust within a month, and the people in the warm pores, having nowhere else on the barren massif to go and bodies too specialized to walk across a dead continent, will starve in the sudden, terrifying silence.
+
+Second, it looks closer—forty feet down into the warm, dark sleeping chambers—and sees the blind ancients tucked into the back crevices. It sees how soft chalk wears away. The oldest stories, carved six hundred years ago near the floor, have been rubbed completely smooth by loving, desperate thumbs. When the stone goes bald, the memory of the longest, rarest cycles of the vent vanishes with it. They are losing their deepest past to the friction of reading it.
+
+So the Power acts. Not in the sky, and never in sight, but in the dark, slow places where miracle looks exactly like luck and deep time.
+
+Deep in the crust, three miles down, the Power lays a subtle, insistent pressure against a hairline fracture in the granite four leagues to the north, and eases the tension on the dangerous shelf beneath the bowl. Nothing breaks loudly. Only a dull, sub-audible groan shivers up the fumarole’s throat—a bass note so low the elders in the caves pause their pestles for three heartbeats, look up toward the ceiling with pale, faintly glowing eyes, and wait. Nothing falls. The vent stutters once, clears its throat with a bright puff of golden silicate dust, and resumes its ancient, erratic rhythm. 
+
+It will not choke in four hundred years now. Its plumbing has been quietly braided into a deeper, vastly older geothermal artery. Furthermore, three miles away along the barren white spine of the massif, where no life currently clings, a hairline crack in a sheltered sunken pocket begins to exhale the faintest, warmest breath of sulfur and static. Just a whisper. In five hundred years, stray spores blown over the rim from the first grove will catch there, root, and begin to whip and clatter—a sister-bowl waiting to be found when the population in the caves finally outgrows its stone pores.
+
+Then the Power withdraws upward, passing gently through the sleeping chambers, brushing past the children stroking amber paddles over glider-vellum. It does not touch their minds, nor heal a single callous, nor dull the hazard of the gale above. 
+
+Instead, it reaches into a narrow, unworked chimney of the cave system—a dry, tight squeeze behind the nursery that a young quarry-cutter is already chipping toward in search of fresh native copper—and rearranges the atoms of a single, thick vein of stone left behind by ancient volcanic pressure.
+
+It does not leave them gold, or iron, or water. 
+
+First, woven through the native copper they already know how to cold-hammer, it seeds pale, heavy nodules of piezoelectric tourmaline and smoky quartz—crystals born of dry heat and crushing force. When the quarry-cutter breaks into that pocket next season and strikes one of those strange, glassy prism-stones with a hammer, it will not shatter like fulgurite; it will answer the blow by spitting a fat, clean violet spark straight into the dark. Squeeze it in a wooden vise, and it shines; let the constant, rhythmic *thrum* of the mountain vibrate through a slab of it wedged into a wall, and it hums back with a steady, cold, sleepless static glow—a lamp that needs no child’s arm to stroke it through the long shifts.
+
+And right beside that vein, lining twenty yards of a newly opened gallery, the Power sets a wall of fine-grained, jet-black basaltic chert, banded with microscopic threads of iron. It is just soft enough at the skin to take the bite of a sharp obsidian burin if the carver puts their whole shoulder into it, yet so dense and unyielding beneath that ten thousand years of thumbnails rasping across its grooves will only polish it brighter, never wearing a single notch away. And when dragged with a bone wand, it rings twice as clear as chalk—a resonant, bell-like *chk-chk-krrr* that will hold the grandmother’s songs intact until the stars themselves grow cold.
+
+Above, in the bruised copper dusk, the eastward shift slams into the hand-carved flutes under the cliff. The great three-toned siren bellows across the threshing floor. Four bronze-greased harvesters crawl out of the mountain’s lip, test the roaring air with a copper splint, and tack out into the lightning on bone picks, utterly alone, fiercely sovereign, and quietly, invisibly loved.

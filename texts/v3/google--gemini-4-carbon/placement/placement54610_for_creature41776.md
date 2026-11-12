@@ -1,0 +1,33 @@
+I am not inside the parlor. Everything inside the bowl has already agreed to a single note, and I have not quite agreed to it yet, or rather, I exist precisely where the agreement is negotiated.
+
+You would find me up on the heavy, rolled lip overhead—right at the curve where the slick, dark rhizome turns outward to meet the sodden flats, where the fifty-hertz roar suddenly loses its echo and vanishes into the huge, flat silence of the marsh sky.
+
+Up here, there is wind. Down in the basin, the air only turns over on itself in slow, warm convections, smelling of copper and sweet sap, never changing. On the rim, a cold gust off the peat-flats will shear right across the aperture without ever dipping inside, kept out by the rising plug of warm vapor from the valves below. That invisible lid—the hairline boundary between the boiler-room heat rising and the marsh-chill blowing sideways—is where I live.
+
+At first glance, I look like a flaw in the lip’s woodwork, or a patch of spilled solder cooling on the timber. If you laid a hand on the rim to peer down at the pewter-furred warden on her shelf just beneath me, you would think I was a low, tough shelf-lichen or a flattened mat of liverwort, perhaps two feet across and no thicker than boot-leather, hugging the crown of the root-wall. 
+
+I am neither plant nor animal in a way that matters anymore, though if you scraped a piece of me under a glass you would find the stubborn, tangled hyphae of an old peat-fungus braided tight around colonies of pale, blind springtails and mineral- fixing bacteria—a composite thing, a living gasket. 
+
+The hollow looks entirely finished from the inside, a closed loop, a perpetual clock. It isn't. Nothing under an open sky is ever closed. 
+
+Out on the flats, things still rot, still blow apart, still travel. When the autumn gales come across the low country, they drive sleet, dead sedge-chaff, windblown silt, stray feathers, and cold rainwater right across the flats toward the lip of this pocket. If all of that fell unimpeded into the parlor, the clockwork below would choke in a month. Cold rain would shock the warm water-sheet and crack the root-plates’ rhythm; dead grass would mat over the intake bulbs faster than the bevel-toothed mammal could scrape them clean; windblown grit would foul the conductive mucus of the frogs and break the neat, thumb-width columns of the beetles. Even the warden down on her shelf has no tool for clearing a bushel of wet marsh-hay.
+
+So I sit on the watershed of the rim, ringed all the way around the fifteen-foot circle like the rubber seal on a canning jar, though I am thickest on the windward, western arc.
+
+I am cold on top and fever-warm underneath. My underside is rooted shallowly into the outermost bark-veins of the lip, drinking the tail-end of the stray voltage before it grounds out into the surrounding bog. That stolen hum keeps my lower skin slimy and feverish, pulsing faintly with the deep turbines. My upper surface, facing the plain sky, is dry, matte-gray, and shingled like slate with precipitated zinc and silica. 
+
+When a dead reed-stem or a blown moth skitters across the flats and hits my gray upper crust, it snags. My shingles are microscopically hooked, angled outward away from the pit. Every fifty-hertz shiver coming up through the wood acts like a vibratory conveyor trough at a quarry: instead of letting debris slide inward toward the drop, the angled grain of my back ratchets anything light and dry steadily *outward*, millimeter by millimeter, jittering twigs, seeds, and dust back over the outer slope of the root-mass and dumping them safely into the stagnant bog-water outside. Watch me for ten minutes in a stiff breeze and you will see bits of chaff marching uphill against the wind, riding the turbine-shudder right off the edge of the parlor’s roof.
+
+Water is harder. When it rains—cold, salt-less sky-water that knows nothing of copper or fifty-hertz engines—the drops drum against my slate-gray skin by the thousands. I do not let them splash straight over the inner rim. I drink them through a million pinhole pores, pulling the chill rain down into my spongy middle layer where the warm, upward draft of the basin meets the wood. There, in the dark labyrinth of my flesh, I hold the sky-water until it comes up to temperature, and I salt it with leached ions from the bark so it won't dilute the parlor's circuit when it falls.
+
+That bead of clear water that gathered on the heavy wooden lip above the warden, swelled until its weight overcame its tension, and dropped squarely onto the center of her pewter-dark back? 
+
+I measured that drop out. 
+
+Beneath the overhang, just inches above her flat, deaf head, my inner margin hangs down in a neat row of smooth, blunt papules, spaced four inches apart all the way around the ceiling's curve. Every drop that falls into the room falls from one of my tips—warmed to bath-heat, lightly mineralized, stripped of dust and spores, released only when its weight matches the surface tension of the vibration. 
+
+She never touches me. Her copper-plated whiskers never brush my lower edge; if she scraped me with that machinist’s-bevel jaw of hers, the raw wood underneath would dry in the marsh wind and split. Yet I know her better than anything else in the pocket knows anything. When she lies on her shelf below me for forty minutes without heaving a rib, the heat rising off her oiled, cast-iron back warms a four-foot crescent of my underside two degrees higher than the rest of the ring. In that warm crescent above her body, my pores open wider; the condensation gathers faster; the drops form and fall in a slightly quicker, heavier cadence right onto her spine, keeping her sebaceous coat slick while she sleeps. When she slides down the wall to scale a valve or swallow a failing frog, my flesh above her empty shelf cools, tightens, and holds its water back until she returns to complete the circuit.
+
+I have no eyes to see the plain afternoon light, and no ears to seal against the roar. To me, the world is only two pressures pushing against opposite sides of a thin skin: below me, the hot, relentless, unmodulated iron-hum of the deep earth, demanding order; above me, the cold, erratic, drifting weather of the flats, scattering dead leaves and cold rain without rhythm or purpose. 
+
+I lie tight along the curve between them, shivering dust back into the marsh with my spine, warming the rain in my belly, letting one clean drop go at a time into the roaring room below.

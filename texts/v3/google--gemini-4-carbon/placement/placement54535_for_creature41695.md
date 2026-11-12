@@ -1,0 +1,52 @@
+At first there is no *where* to be, only *between*. 
+
+In a room without light, nothing has an edge until it moves against you, and even then the edge belongs to both of you at once: a seam of waxy talc, a half-degree step in warmth, the faint dry drag of plush laid one way sliding past plush laid the other. If you try to begin by picturing a shape for yourself, the vault defeats you immediately. Shapes belong to the thousandth-of-a-second violet snap when two glider-tips brush overhead—a frozen crust of nostrils, folded hocks, spiracles, and velvet backs that vanishes before a nerve can make sense of it, leaving only the sharp, metallic taste of ozone on the hair of your knuckles. What endures after the spark is weight, heat, and conduction.
+
+For a while, feeling around in that heat, I think I might belong to the slow thermal wheel overhead—stretched thin as drum-parchment, banking endlessly round the dark chimney-roots with my fingers grown five feet long to comb bacterial soot and dry mites out of the rising air. There is a clean, mindless grace in that carousel: rise on the sulfur breath, feel the sudden knife-blade of mountain freeze kiss your back-skin near the throat of the shaft, fold, drop like a slate shingle, spread wide again where the air thickens into soup. Never touching stone. Never stopping. 
+
+Except even in thought, my ribs ache against that much thinness. To hang in air, even crowded air, is to live inches below annihilation, spending every heartbeat falling away from cold.
+
+Down at the bottom is the opposite refusal. Near the floor-fissures the room roars—not to the ear, which hears only the small *tick* and dry fizz of salt-sleet vaporizing against hot trachyte, but to the face. Down there the fissures are blinding white troughs of heat that flatten every small distinction into glare. To clamp there like a flagstone-grazer, belly-down on blistering rock with three tiers of blind gleaners stacked on your spine, is to be nothing but a mouth and a shield, scraping ash in a furnace. Necessary, honorable, too bright. Everything subtle gets burned out of the signal down there.
+
+What pulls me is the mid-wall, where heat has already passed through three or four bodies on its way outward and learned manners.
+
+Up between the third ledge and the chimney-roots, the fifty-degree roar from the vents has cooled into a deep, steady plum-warmth, complicated by the faint thirty-five-degree drafts trickling down the outer stone. Here the rush becomes syntax. When a hunter slips under two sleeping brooders ten yards below, you don't feel its hunger directly; you feel the two brooders tighten their segments by a millimeter, which nudges a fat gleaner’s knee against a ledge-grazer’s horn-plate, which sends a slow, lazy *shift-and-settle* rolling upward through twenty flanks until it arrives at your own hip as news: *something long just went east toward the cairn.*
+
+For a long stretch, wedged into the crook of the northern buttress, I could almost be one of those great, torpid ledge-grazers myself—one of the old, platter-wide ones that hasn't gone down to the floor-troughs in six seasons, content to lick salt-dust off its neighbors' toes while letting everyone else use its dense, tallowy body as furniture and telegraph wire. All day long, talk passes right through me on its way somewhere else. A girl up by the mortar-basins taps her heel twice against the rock—*more clinker, the paste is thin*—and the little double-thud enters my left shoulder blade, crosses my breastbone, and goes out my right knee into the packed tier below without even asking my name. There is a deep, sleepy satisfaction in simply being good fat for a message to travel through. Downy mites keep the creases behind my ears clean. Two warm loaf-brooders pulse across my shins in slow, three-beat agreement.
+
+Only my chest isn't touching flesh. My chest is pressed flat against bare, hand-chiseled basalt.
+
+That is how my own outline finally comes clear in the dark. 
+
+In this chamber, bare rock is unnatural. Leave six inches of stone uncovered for three days and a brooder-mat will cement itself over the spot, or bacterial grease and shed dander will felt across it until the rock disappears back into the upholstery. Yet the Ledger on the northern buttress has to stay crisp enough for a blind thumb to read an oat-grain scratch at the bottom of a score. Horn scrapers clean it, yes—but between scrapings, the only way to keep the living wall from swallowing the tally-grooves is for someone dry and wide to lie wedged directly across them like a pocket-flap over a wound, holding the crowd back with their own shoulder blades while keeping the stone sealed under a clean, talc-dusted belly.
+
+So I have hands after all. Wide, flat-knuckled, supple at the wrists, tucked neatly between my ribs and the carved buttress.
+
+If a spark went off right beside my elbow—which it doesn’t, because we grease the lintel above to turn the gliders three feet out from the wall—you would have to look twice to separate me from the basalt and the gleaners. I am smaller even than the women at the mortars above me, and flatter, cured down over many molt-seasons like a strip of meat kept high in dry smoke. My brow-pads are thick and scarred smooth; the velvety heat-cushion along my upper lip has gone a little dim at the corners from decades of squinting down floor-chutes in younger years. Down by the fissures I would be clumsy now, slow to spot a heat-viper tucked under a grazer’s skirt. Up here against the cooler stone, that slight dimming is useful. Bright things no longer dazzle me. I can press my cheekbone between the human grooves and the broader vent-basins and feel quarter-degree drifts deep inside the mountain’s neck that a sharper, younger face would miss beneath the hot chatter of the crowd.
+
+Under my left palm, right where my heart taps against the stone, are the eleven vertical scores.
+
+I know all eleven better than my own teeth, because every few hours a hand comes sliding in through the tight seam under my armpit—dry, familiar, smelling of sulfur-clinker or brooder-milk—to check them. Nobody asks me to move aside. Moving aside would let two gleaners wedge their snouts into the gap and waste heat. Whoever comes simply slips four flat fingers between my sternum and the rock, reads my ribs and the basalt in the same stroke, and lets me feel their thumb walk the count.
+
+*One. Two. Three.* Broad, deep bevels, slick at the bottom from old skin-oil. 
+*Four.* That one is mine.
+
+If you run a thumbnail down the fourth groove, you can feel where its walls were once deep and square-shouldered—cross-notched twice near the middle for two old mate-braids—and where, over the last eight molt-seasons, the lower half has been rubbed shallow again with grey pumice. I carry the pumice lump myself, knotted into a pouch of glider-parchment at my hip. Every season, as my joints dry down and my appetite shrinks to a thumb-sized pinch of ash-tallow a day, I reach under my own chest and sand my groove a hairbreadth flatter.
+
+There is no grief in that sanding. Quite the opposite: reach six inches further right, to the bottom of the tenth groove, and touch that tiny, sharp-edged side-notch no bigger than a mite’s back.
+
+Water does not appear out of basalt. For that infant ten feet below me in the third slate ring to grow plump and firm inside its knot of aunts, four pounds of ancient moisture had to come loose from somewhere in the treasury without anyone climbing out to freeze in the chimney. Half of it came from an old uncle we tucked under the river-cairn two seasons back; the other half came quietly, ounce by ounce over years, out of my own thinning calves and narrowing neck, passed back into the mortar-basins as rations I no longer needed to eat. When the scarred vent-man worms his way up from the floor-highways, wiping hot bacterial dust off his horn-callused forearms, and slips his hand under my ribs to touch that new oat-grain scratch on ten, his knuckles always brush the pumiced flat of four on the way out and give my sternum a single, slow press with the heel of his palm. *Still holding.*
+
+I tap two fingers against his wrist-bone before he pulls back into the press. *Still holding. Third vent sounds dry on the east lip—check it next wake.*
+
+Between visitors, I stay very still and listen both ways.
+
+Behind my back is the hot, velvet roar of everything living: forty thousand breaths sawed back and forth through dry cartilage baffles; a cluster of young gleaners clambering over my calves to reach a salt-smear; the faint, synchronous *throb-rest-throb* of the nursery ring down-wall, where someone is telling the older child a story by walking spider-fingers up his shins; the sudden crisp *tic* overhead when two gliders kiss wing-tips in the dark and drop six inches together before catching the draft.
+
+Against my front is the cold, dense bone of the mountain, older than flesh and far slower to speak. 
+
+Three dead elders live in my palms and collarbones—three sets of long, trembling three-hour farewells taken beside the river-cobbles before we pulled the warm brooders back over their faces. I have never felt what my own face looks like, and have no word for *river* beyond *Sky-Bone*, the cold, impossibly smooth stones under the cairn that must have been polished by a million softer bellies than ours. Yet through those dead hands I remember how hot the second floor-basin felt ninety molt-seasons ago, before my own notch was ever scratched, and how the northern buttress hummed two days before the minor chimney-slip that pinched the west draft thin.
+
+So I lie flat in my crease, cheek glued to the rock with a dab of tallow, breathing shallowly inward so my nose-baffles catch every thread of vapor before it escapes me. Through my spine comes the warm, bustling gossip of our eleven and our million; through my breastbone comes the deep, iron-slow purr of the volcanic throat miles down, telling me that for this season, and the next, and likely the molten childhood of the little oat-grain notched beside my ribs, the furnace holds steady—we can afford all eleven of us, and three-quarters more.
+
+Down-wall, someone laughs inside the slate ring, a silent, rhythmic heave of four diaphragms at once. Five seconds later the ripple arrives through nine packed yards of warm, suede bellies, lifts my hip half an inch against the basalt, and settles back down again as the mountain breathes us all inward together.

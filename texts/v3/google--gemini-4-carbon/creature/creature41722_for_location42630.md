@@ -1,0 +1,45 @@
+At first, if you watch the flush black-glass bays for long enough, you will think the place is entirely automated—a self-tending node dropped into the crust to prepare the rock for an arrival that hasn't happened yet. The rooms behind the transparent panes are spotless and still. There are no chairs, no dropped tools, no condensation fogging the glass from the *inside*. 
+
+Then a transit lozenge slides down its vertical recess, halts with instant, inertialess deadness at a middle tier, and an aperture irises open. 
+
+What steps out onto the cantilevered sill does not walk so much as pour and lock. 
+
+From twenty meters away, through the curtain of indoor rain, it looks briefly like a tall, gaunt surveyor wrapped in a heavy, articulated mantle of matte-slate composite—something tailored from the very metamaterials of the wall. It stands perhaps two meters high, narrow-shouldered, balanced on triple-jointed limbs that terminate not in feet, but in blunt, geometrically beveled spades. It steps up to the invisible threshold where the deflection field hisses against the falling water, and stops, inches from the wet.
+
+If you get closer—if you were somehow suspended in that pressurized, roaring void—you would realize that the slate-colored mantle is not clothing. It is an exterior chassis, seamless and boltless as the architecture around it, and the creature is not entirely inside it. 
+
+They are called—by the systems that print them, though nothing in this room speaks aloud—*the Secants*, or simply the *Tenders of the Cut*. They are as newly minted as the razor-sharp obsidian fractures in the wall, and they share the chamber’s terrifying lack of wear. 
+
+Look at the seam along the creature’s narrow chest and throat. The dark plates do not quite meet. Between them swells a dense, translucent, amber-tinted mesoglea—a firm, pressurized biological gel that holds its shape like vulcanized rubber. Deep within that clear tissue, faint blue and violet pinpricks flicker in exact synchronization with the status fields in the recessed rooms behind it. It has no face in the vertebrate sense. Its "head" is an elongated, sleekly canted cowl of black ceramic-stone, split down the center by a vertical acoustic slit lined with pale, feathery cilia that tremble constantly in the chamber’s deafening roar. 
+
+To us, the sound in the nave is white noise—an overwhelming, churning din of smashing water and thermal hiss. To the inhabitant on the sill, that roar is high-resolution sonar. 
+
+It stands motionless on the ledge, tilting its split cowl three degrees left, then four degrees down. The pale cilia inside the slit stiffen and part. It is reading the room through the echo-return of the falling sheets of water. It hears the exact millimeter thickness of the hepatic moss curtain forty meters across the void by the way the water’s slap softens against it; it hears the razor-sharp ninety-degree edge of a fractured obsidian shelf ten tiers below by the high, glassy *ping* of droplets shearing in half upon impact; it hears the bow-wave of an approaching transit capsule before the capsule has even cleared its upper lock.
+
+Why is the foliage so furiously lush, yet completely untouched by rot or insect? Because the chamber was seeded from sterile print-stock, and the Tenders are fanatics of boundary maintenance—though their fanaticism is utterly calm, devoid of haste or anger. They are creatures built for an architecture of phase-shifts and molecular precision, yet curiously reliant on the raw, messy vigor of those giant, waxy leaves. 
+
+Watch what happens when a broad, shield-sized leaf pushes an inch too far across an open bay, breaching a deflection field from the dry side, or choking a hairline thermal seam. 
+
+The Tender on the ledge moves. Its motion has the eerie, snap-locked fluidity of the standing waves on the basin floor below. It steps *through* the deflection field. Instantly, the ozone-smelling barrier parts around its slate chassis with a sharp crackle, sheeting water harmlessly off its hydrophobic shoulders. Where the warm rain hits the narrow strips of exposed amber flesh between its plates, steam rises faintly—the creature runs hot, nearly fifty degrees Celsius, part of the same thermal-exchange loop as the machinery in the rock.
+
+It reaches the offending vine. It does not pull or tear. A secondary limb unfolds from beneath its thoracic plates—a thin, multi-hinged caliper of glassy black material—and touches the stem as lightly as a physician taking a pulse. There is a tiny, localized *pop* of phase-disruption, a microscopic puff of bruised-chlorophyll vapor, and the stem is severed with the same sub-millimeter, uncrushed perfection as the cleaved bedrock. The heavy frond drops forty meters straight down into the dark geometric canals below, where the next automated sluice-surge will boom out and carry it into the digestion grates.
+
+Yet before the Tender retreats behind the deflection field, it does something unexpected. 
+
+It lingers in the hammering white ribbon of water. Along its forearms and ribs, the matte-dark plates slide apart by three millimeters, exposing wider bands of that translucent, glowing interior gel. It reaches out with its primary spade-limbs and presses the flat of its "forearms" against the wet, uncut broadleaves remaining on the wall, gathering the slick, mineral-heavy runoff and the thin exudate of plant sugars on the unchewed waxy surfaces. 
+
+The leaves here have no beetles or caterpillars to defend against, so they produce no bitter alkaloids; instead, bred for hyper-rapid carbon capture and thermal damping in the waste-light of the doped stone, they sweat a faint, clear mucilage in the heat. Through semi-permeable membranes in its exposed seams, the Tender drinks this straight through its skin—a trace supplement of complex organic sugars that its sterile cradle-vats back in the rock find energetically tiresome to synthesize from scratch. For ten, twenty seconds, the sleek, severe machine-creature stands drenched under a roaring indoor waterfall, gently cradling a giant green leaf twice the size of its own torso, absorbing the quiet, trembling life of the plant while blue telemetry data ripples softly through its translucent throat.
+
+There are perhaps thirty of them living in the vertical streets of this single nave, though you will rarely see more than two or three in the open bays at once. 
+
+Inside the dim, clean tiers behind the flush glass, their domesticity—if it can be called that—is vertical and quiet, muffled behind acoustic metamaterials that turn the nave’s great roar into a low, womb-like thrumming. They do not use furniture because their triple-jointed frames lock effortlessly at any angle; when off-cycle, three or four of them will stand clustered in a recessed alcove facing the raining void, their beveled spades magnetically or molecularly tacked to the floor, leaning slightly toward one another until the tips of their ceramic cowls nearly touch. 
+
+In these quiet huddles, the faint blue status lights inside their bodies slow down and synchronize with the deep, sub-audible *hum* of the planetary system cycling beneath the bedrock. Every few minutes, when that vast subsurface pulse shivers through the chamber and turns the water on the floor forty meters below into millions of tiny, crisp pyramids, a matching geometric ripple passes across the translucent amber seams of the resting Tenders—tiny, crystalline standing waves rising across their living gel for three seconds, sharing memory-states, structural stress-maps of the surrounding obsidian, and the slow, strange sensory pleasure of water hitting stone, before collapsing back into stillness all at once.
+
+And down at the very bottom? Down in the ruler-straight canals of the dark basin, where the warm film of water reflects the amber-violet glow above?
+
+Nothing with eyes or legs lives down there. Nothing *should* live down there. 
+
+Yet if you crouch on that wet black stone between the periodic booming flushes of the sluice gates, in the corners where the obsidian is sharpest and the ozone runoff from the deflection fields washes down in trace concentrations, you will see something the Tenders have not purged—perhaps because it makes no echo in the rain, and breaches no ninety-degree line. 
+
+Spread across the flat dark expanses between the canals are paper-thin, iridescent biofilms, no thicker than oil on a puddle, shaped into strict, razor-edged rectangles and hexagons by the recurring standing waves. Every few minutes, when the deep hum rises from the planetary mantle and the water leaps into its millions of three-second pyramids, this microbial skin stretches upward with the water, flashing briefly from dull oil-black to bright, electric violet as piezoelectric tension fires across the colony—feeding directly off the mechanical vibration of the machine beneath the floor, before dropping flat again, silent and invisible in the dark runoff, waiting for the next pulse in a brand-new world that doesn't even know it has begun to grow wild.

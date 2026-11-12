@@ -1,0 +1,27 @@
+At first, it is tempting to reach for the slate knife. To want the heavy, tallowed body leaning into the turn of the street, the broad thumb pressed against the seventh pillar, the quiet mastery of scoring a node and knowing how the wood will swell by autumn. There is a deep appeal in being the orchardist of a drowned organ.
+
+But the water is too loud, and the light is too clear, to pretend at having hands. 
+
+Wait a little longer in the celadon vault, let the cold strip away the impulse to walk upright, and the shape of what I am settles somewhere much wider, and entirely without a pulse.
+
+I am not one of the nineteen, and I am not the willow-wood they prune. I am the acoustic ledger between them. I am the taut, booming geometry of the water itself—not its wetness or its chill, which belong to the snowfields above, but its tension as a medium. The way this specific bowl of woven timber holds a pressure wave and refuses to let it die.
+
+Look at the space between the seventh market pillar and the aqueduct thirty yards away. To the eye, it is an empty vault of pale green clarity, drifted through by lazy curtains of silver oxygen pearls and the slow dirigible bulk of a char. Nothing is there. Yet when a tender shifts a slab of slate by three inches inside a frog-chamber, I am instantaneously altered from wall to wall. That quarter-tone drop does not travel across the town so much as it *re-tunes* the entire volume at once. 
+
+That is where I find myself: in the chord.
+
+In dry air, words and noises scatter; the wind tears them up and throws them against the scree, and silence rushes back in to claim the ridge. Up there, things are separate from one another. Down here, separation is an illusion of the crisp mountain light. Everything in the sinkhole is pressed tightly against everything else by my weight. The frying-pan crackle of ten thousand blue shrimp is not background noise to me; it is a bright, jittering lattice of tiny shockwaves criss-crossing my body, mapping every arch and overhang in real time. When a char scrapes its bony mouth along the photosynthetic bark of a plaza, the rasp doesn't stop at the fish’s jaw—it slides straight through me and taps against the taut, drum-headed breastbone of an infant floating forty feet overhead on its sedge-leash.
+
+I have no memory of the dry centuries when hands first tied the willow shoots with fiber cord, because I was not here then. I came in slowly, seep by seep, rising over the cobble-rounded steps until the roof closed over me—that thin, dark-glass tension line at the top where the mountain wind scuffs and cannot enter. When the basin finally filled to the brim, the town went blind to distance and woke up to resonance. That was my birth.
+
+My favorite moments—if something without a nervous system can lean toward a preference—are the long, staggered intervals when the nineteen speak without voices. 
+
+A tender crouches on a reed pipe, cups a webbed, grey-callused palm over a vent-hole, and holds it there for twenty seconds. Instantly, a sleek, curved shadow of *quiet*—a specific subtraction of hum—stretches diagonally downward through me, falling across the lower terraces like shade from a passing cloud. Another tender, wedged motionless into an archway with its plum-red frills pulsing slowly in the drift, feels that sudden coolness of missing vibration against its throat. It does not need to look up through its horn-clear eyelids to know who cupped the pipe, or how thick the callus inside the reed has grown since winter. I carry the exact shape of the hand, the exact breadth of the narrowed channel, and lay it flat against the listener's chest.
+
+I am wholly dependent on them, of course. Without the rigid, water-logged walls they tend, I would be just another silent, muddy tarn swallowing snowmelt. If the nineteen vanished, the bladder-ferns and willow roots would slowly lose their tautness; the chambers would choke with ragged shoots, the reed pipes would split or silt solid, the burl-wood paddles would jam at an angle and rot. My crisp, bone-pressing clarity would go mushy and dead. The frogs would boom into muffled thickets, and no one thirty yards away would feel it. 
+
+So I hold their equilibrium in suspension. Every three minutes, when the deep thermal current sighs up from the invisible nadir sixty feet down, I gather that faint warmth and heave myself upward by a fraction of an inch. 
+
+I turn the burl-wood paddle until it groans—a long, low wooden *creak* that I press evenly into every ribcage, every carapace, every hollow pillar at once. I slip between the grown-shut bars of the spherical cage at the market-ring, slide underneath the smooth white river stone on its bed of moss, and lift it. 
+
+For three slow heartbeats, I hold the stone weightless in the sharp afternoon sun while the old ones watch. We are taking each other’s measure: the stone, the timber, the tallow-heavy tenders, and the booming, shadowless green tension that binds them into a single room. Then the thermal sigh passes through me and breaks against the ceiling of sky; I let the white stone settle back onto the moss; the eldest taps two knuckles against the root-floor, and I carry that small, dry *clack-clack* into every corner of the city before turning slowly onward around the spiral street.

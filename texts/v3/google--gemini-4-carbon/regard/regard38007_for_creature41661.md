@@ -1,0 +1,49 @@
+A lesser benevolence is an itchy, meddling thing. Had a minor god or an anxious angel stumbled upon this sunken pocket in the salt-pan, it would have wept at the constriction, flinched from the deafening roar, and rushed to offer mercy. It would have stilled the howling wind, dimmed the blinding collar-gap to a gentle twilight, and coaxed a trickle of cool spring water up between the vertical flagstones of the floor. 
+
+Within a week, that mercy would have murdered everything in the room. In the damp, quiet air, mold would have bloomed on the dry, oily musculature of the ashlar-backs; the pewter-stems, engineered for tension and thirst, would have burst their cells and rotted; deprived of the screaming chord, the four pale masons would have gone instantly blind, deaf, and mad in an incomprehensible void of silence, suffocating in softness before their shells dissolved.
+
+The Power that actually paused above the salt-pan was neither minor nor anxious. It was old enough to know that paradise is not a climate, nor a set of gentle conditions, but an exact, hard-won agreement between a form and its necessity.
+
+It did not step down into the twelve-foot larder. Even had it shrunk an avatar to slip sideways between the soap-smooth limestone piers, its mere presence would have blocked a draft, cast a shadow, or absorbed a harmonic, muddying the crystal-clear acoustic map by which the four beings navigated their universe. Instead, the Power knelt—so to speak—out on the blinding, wind-scoured salt flat, and laid its attention flat against the buried capstones, listening downward through the earth.
+
+For three days and nights, it simply took the measure of the chord.
+
+It felt the ferocious, dry lock of the millions of hand-split stones, wedged together so tightly ten millennia ago that they had forgotten they were ever separate from a mountain. It traced the screaming geometry of the flues. It admired the sharkskin rosettes drinking ghosts of vapor out of the gale, and it followed, with profound, quiet delight, the millimeter-by-millimeter circuit of the four porcelain-backed listeners as they grazed the calcified bark and mortared their own sky with the ash. It saw the fifth, dead shell at the base of the eastern pier, planed down to its silver nacre by the venturi, still holding up a bridge of pewter-brush for its grandchildren.
+
+*There is no suffering here,* the Power observed. There was immense tension, relentless abrasion, and zero margin for error—but suffering belongs to creatures that remember an easier past or imagine a softer future. The ashlar-backs were entirely native to the roar. To them, the blast was breath, the compression was safety, and the vibration of the tight-wedged piers was a rich, continuous symphony of home. They lacked nothing. To add anything inside the box would be vandalism.
+
+And yet, the Power was wise, and wisdom looks past the present century into the deep, slow mechanics of time. Widening its gaze from the cistern to the surrounding basin, it read the geology of the plain. 
+
+A benevolence that loves a finished thing does not alter the thing; it guards the boundaries that allow the thing to remain itself. Looking ten thousand years ahead—and then fifty thousand—the Power saw the only three quiet enemies that could ever undo this small, roaring eternity.
+
+First, looking five miles upwind to the west, where the steady gale tore across the alkali flats, it saw a low, embryonic swell of heavier quartz sand migrating slowly down from a dying mountain range. In eight hundred years, that dune-sheet would reach the rim of the sunken basin. Unlike the microscopic gypsum dust that blew cleanly through the cistern’s flues and nourished the chert-tipped feet of the creatures, these coarse quartz grains would catch in the outer slate baffles. One grain wedging behind another, the flues would choke. Within a decade of the dune’s arrival, the organ-pipe would gag, the wind inside would die to a stagnant wheeze, dust would drift over the book-packed floor, and the resonant world would go dark and silent.
+
+Out on the blinding salt-pan, miles from the cistern, the Power pressed two fingers into the bedrock beneath the crust. It did not raise a wall—walls erode and catch sand. Instead, with the subtlest rearrangement of deep thermal currents, it lifted a three-mile-long, barely perceptible swell of dense basalt just six inches above the grade of the flat, angled three degrees off the prevailing wind like the prow of a buried ship. When the quartz dunes arrived eight centuries hence, they would not pile up; the wind itself, deflected by that fractional tilt of the plain, would shear the heavy sand seamlessly to the north and south, splitting around the sunken basin while letting the fine, clean gypsum dust and the unimpeded gale rush straight on into the flues forever.
+
+Second, the Power looked down beneath the cistern. The dry-stone walls were absurdly thick—thirty feet of hand-wedged limestone—and the vertical flagstones of the floor went deep, resting on a dry clay hardpan. Far below that hardpan, however, an ancient fault line held a pocket of pressurized brine. In four thousand years, a minor regional tremor would crack the clay seal, allowing salty groundwater to wick slowly upward by capillary action into the bottommost courses of the stone. Even a trace of dampness at the base would soften the limestone, shift the monumental weight of the piers by half an inch, and shatter the ancient mechanical peace of the arches.
+
+Reaching down into the dark crust sixty feet beneath the floor-slabs, the Power drew the scattered silica of the deep silt together and fused it—coldly, silently, without a tremor of heat—into a broad, cupped lens of solid, impermeable obsidian, curving away from the foundations like an inverted umbrella. Beneath the cistern, the earth was now sealed tighter than a bottle; earthquakes might rock the whole basin like a ship at sea, and the thirty-foot stone box would ride upon its glassy keel as a single, indivisible unit, dry to the end of the world’s weather.
+
+Third, and last, the Power looked closely at the capstones at the very top of the chamber, right where the narrow collar-gap drank the glare of the sky. 
+
+Even limestone, polished and dense as bone, is mortal to ten millennia of sandblasting. Two of the great flat lintel-slabs bridging the outer flues had been thinned by three inches since human hands laid them; in another twelve thousand years, one would snap under its own weight, dropping a ton of rock across the eastern buttresses, crushing the ancient nacre shell at the base and collapsing half the pocket. 
+
+Here, the Power came closest to touching the room—yet still, it refused to play the miracle-worker. If it instantaneously thickened the stone, the resonant pitch of the ceiling would jump a quarter-tone in a single second, startling the four listeners below with an inexplicable, terrifying fracture in the logic of their sky.
+
+Instead, the Power borrowed the cistern’s own method. Just outside the collar-gap, along the rim of the salt-pan where the night air cooled fastest before diving into the flues, it seeded the bare rock with a microscopic, invisible crust of lithotrophic lichen—a cousin, ten times removed, of the pewter-brush inside. This crust needed nothing from the room. Sitting outside in the sun and wind, it caught airborne calcium and silica from the salt-pan and laid down a glassy, mineral glaze over the exterior backs of the capstones at the exact rate the wind scoured their undersides—one millimeter every three centuries. As the underside wore upward, the upper side grew upward to match it, keeping the mass, tension, and pitch of the ceiling locked at its exact present note.
+
+Then the Power stopped. 
+
+It checked its work with the care of a master watchmaker closing a case that must never be opened again. No shadow had fallen through the collar-gap. Not a single gust had faltered in the slitted baffles. Inside the bright, cold twelve-foot pocket, the deafening chord held its immense, crystalline note without a tremor. 
+
+Still, because even great wisdom has a heart—and because love, even when disciplined into total restraint, desires to leave a blessing—the Power allowed itself one brief, invisible indulgence before departing.
+
+It did not change the chord. It simply *listened* to it with total, luminous comprehension.
+
+Down in the silver-white glare, thirty inches up the eastern pier, the broad ashlar-back inching down toward the rosette paused for a fraction of a second—not in alarm, for nothing in the physics of the stone had altered. Its hooked chert spatulas stayed locked in the limestone grain; its parabolic back let the cold blast slip cleanly past. Every vibrating course of pale rock, every humming buttress, every tight-wedged flagstone under the four creatures’ bellies sang its exact, familiar, eternal map of home. 
+
+Only, for perhaps the span of ten breaths—had anything down there drawn breath—it was as if the massive, roaring chord of their universe was not merely bouncing blindly off dead salt-pans into an empty sky, but was being *heard* all the way to its edges. As if the stone itself knew how well it was stacked.
+
+Beneath the smooth, porcelain-hard shell on the eastern pier, a single dry fiber shifted—*tick*—settling one microscopic notch deeper into mechanical peace. Lowering its flint rasp beneath its sealed mica skirt, the mason began its three-hour meal, grinding dry bark into mortar for the seams of the world.
+
+Satisfied, the Power withdrew its attention from the salt-pan, erased even the memory of the coordinates from the lesser registries of creation so no meddling angel would ever stumble across the rim, and left the bright, roaring box to finish eternity uninterrupted.

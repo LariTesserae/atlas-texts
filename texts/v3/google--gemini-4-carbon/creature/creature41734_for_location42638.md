@@ -1,0 +1,49 @@
+If you watch the western wall—the warmest wall, the one closest to the buried turbines—for twenty minutes without moving your eyes, a piece of the calcified flowstone will detach itself from the moss and slide an inch to the left.
+
+It does not walk. Walking requires lifting weight against gravity and setting it down again, and in a room vibrating at this relentless frequency, anything on spindly legs would be shaken off its purchase or battered to exhaustion by the trembling stone. Instead, it travels on a broad, muscular apron of pale, translucent gristle, gripping the grease-slick liverworts by suction and capillary tension, riding the thin film of weeping water the way a flatworm glides on glass.
+
+There are eleven of them in the chamber. The largest is the size of a human kneecap; the smallest could sit comfortably on a thumbnail. 
+
+Long ago—perhaps sixty years back, before the eastern weep-hole narrowed to a pinhole choked with lime—their ancestors washed in from the brackish tidal muds of the estuary above. They might have begun as river limpets, or juvenile mud-crabs, or some soft-bodied estuarine nudibranch drawn toward the warmth of the foundations as larvae microscopic enough to pass through a crack in the concrete. Whatever blueprint they brought with them into the dark has been thoroughly edited by seventy years of lukewarm bathwater, dissolved concrete, and an acoustic roar that destroys anything rigid enough to shatter.
+
+They have become entirely solid and entirely soft at once, built to match the physics of the room. 
+
+Seen from above, through the milky, shadowless glare of the ceiling blocks, one looks like a smoothed cabochon of wet alabaster, low-domed and oval, streamlined not against rushing water, but against sound. Their shells are not grown cleanly the way a garden snail grows its spiral; there is too much raw calcium dripping from the ceiling for such fussy economy, and too much vibration for thin, brittle architecture. Instead, they secrete a thick, sticky protein mucilage across their backs that catches the mineral leachate falling from the cracks overhead. Lime, dissolved concrete, and faint traces of oxidized rebar settle into their coats and cure there, layer by microscopic layer. 
+
+Because their backs are perpetually wet and facing the overhead prism, the chamber’s flora claims them just as it claims the walls. Every adult carries a dense, thriving pelt of green velvet algae, out of which sprout miniature, stunted prothalli of maidenhair fern and tiny, overlapping scales of liverwort. Pale orange streaks of iron oxide—bled from the old hatch on the northern wall—run through their calcified domes like veins in marble. When one pulls its mantle down tight against a rounded shoulder of the room, sealing its rubbery rim to the stone, the seam vanishes. It becomes just another bump of overgrown travertine.
+
+Beneath that heavy mineral cap, there is no hollow cavity. Air pockets are fatal here; an internal lung or swim bladder would resonate violently in the mechanical roar, tearing soft tissue apart from the inside. They are packed entirely solid with pale, dense muscle and watery, translucent gel, keeping the exact specific gravity and acoustic impedance of the water around them. The deafening thunder of the turbines passes straight through their meat without finding an edge to strike, vibrating them at the exact pitch of the floor, the walls, and the air, so that to themselves, they are completely still.
+
+To see the animal itself, you would have to catch one crossing the floor-pool.
+
+They cross rarely, usually when the daylight overhead dims toward evening and the glass blocks turn the color of slate. One will slide down the curved base of the wall, submerging without breaking the hammered-silver skin of the Faraday waves. Down on the soapstone-smooth concrete, beneath four inches of trembling crystal water, it loosens its skirt. 
+
+Out from beneath the green-furred dome unfurls a wide, flat collar of flesh, utterly pigmentless—the ghostly bluish-white of boiled cartilage, netted with fine, pulsing vessels that carry colorless copper blood. It has no eyes; in a sealed box where nothing casts a shadow and no predator ever falls from the sky, vision was an expensive, useless habit dropped forty generations ago. Instead, the leading edge of its pale skirt is fringed with dozens of short, fleshy, blunt-tipped filaments, arranged in a neat, symmetrical fan that mimics the windless ferns above it.
+
+These filaments do not wave or grope. They rest lightly against the vibrating stone and the shivering water, reading the room’s one great constant through its interruptions.
+
+To these creatures, the unending roar of the dam is light. Because the sound is absolute and unvarying, every object in the chamber—every cushion of emerald moss, every hairline crack in the aggregate, every drifting earthworm washed out of a seam—casts a distinct acoustic shadow, damping or refracting the vibration in the water and stone. When a drop of warm condensation falls from the cracked glass blocks above and strikes the pool, it makes no splash a human ear could catch, and it cannot break the standing diamond ripples on the surface—but to the eleven pale domes resting along the walls, that tiny, silent impact rings through the floor like a dropped coin on marble. 
+
+If the impact is only water, none of them stir. 
+
+If it has the heavy, dull thud of flesh—an earthworm flushed from deep in the masonry, or a fat white springtail knocked loose from a ceiling fern by a drip—the three or four domes nearest the eastern drain unseal themselves at once. 
+
+They do not hurry, because the subtle west-to-east current will bring everything to that corner eventually, and nothing else is coming to steal it. They glide down into the silver-patterned shallow, three smooth mounds of moss-covered stone sliding smoothly over flat green algae, converging on the microscopic break in the room’s hum. When the first one reaches the worm, there is no strike, no violence. It simply slides over the prize like a slow palm covering a crumb, lowers its heavy calcified dome, and presses its soft underside flat to the floor. It stays there for two days, digesting externally through a pleated, translucent mouth on its belly while the constant current combs the surrounding algae neatly around its shell.
+
+Most of their lives, however, require no meat at all. They are slow grazers of the boundary layer.
+
+Watch one on the northern wall, halfway up, resting right across the rusted-out ghost of the sealed iron hatch. For six hours it has been edging upward at the pace of a clock’s minute hand, leaving a faint, clean ribbon through the grease-shiny liverworts—not stripping the plants bare, only rasping away the uppermost film of diatoms, bacterial slime, and mineral grit with a broad tongue toothed in iron-hardened chitin. It eats the rust bleeding from the dead hatch to build its teeth; it eats the dissolved concrete weeping from the ceiling to thicken its shell; it eats the sun-fed algae to fuel its slow, cold heart. 
+
+In return, its heavy, mucilaginous trail glues stray moss spores directly to the vertical dampness of the walls, cultivating the very pelt that hides it.
+
+They have no seasons, no mating calls, no frantic larval migrations. Once or twice a year, triggered perhaps by some minute thermal shift when the estuary river swells with spring snowmelt and runs slightly cooler through the turbines next door, two of the larger domes will slide alongside each other on the broad, warm flowstone shoulders near the ceiling. They press their pale skirts together, sealing both bodies under a single continuous ring of suction, and remain fused for a week while warm droplets patter endlessly off their mossy backs. 
+
+Months later, the smaller of the two will leave behind three or four tiny capsules wedged deep into the sodden, six-inch-thick cushions of emerald moss, glued safely above the waterline where the current cannot flush them down the eastern pinhole. Inside the jelly, miniature, shell-less things the size of salt grains are already shivering in time with the concrete, absorbing calcium through their skins before they ever touch the stone.
+
+When one of the elders finally dies—and in this warm, sterile, predatorless cradle, a single kneecap-sized grazer might be forty years old, half the age of the dam’s current run—nothing comes to scavenge the shell. 
+
+It usually happens down in the pool, or on the gentle calcified slope where the western wall meets the floor. The pale, cartilaginous meat beneath the dome simply softens, dissolves in the warm, trembling water, and washes away in microscopic ribbons through the invisible weep-hole in the east, returning to the estuary outside. 
+
+The heavy mineral cap remains where the muscle last held it down. Without the animal moving beneath it, the weeping lime from the ceiling quickly cements its rim to the floor. Within a month, the filamentous algae on the bottom grows up over its edges; within a year, the calcified rind thickens over its iron-streaked back until its curves soften and merge into the soapstone geometry of the base. 
+
+If you look closely at the rounded, sloping shoulders of the room, and under the green velvet mats beneath the shivering diamond waves, you realize the concrete did not erode into all those smooth, low, overlapping swells by water alone. Dozens of them are cemented into the foundation—an entire topography of old, overgrown shells, stacked and fused and swallowed by flowstone, slowly rounding out the corners of the room until the chamber fits the things inside it like a mold.

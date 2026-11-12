@@ -1,0 +1,45 @@
+I am not at the bottom, where the Tappers sit in the clicking dark with their bone quills, and I am not up under the lip where the sun strikes like an axe for forty minutes and the kites drop scraps of warm fur. 
+
+Look across the forty-foot void at the level of the fifth tier, where the main load-bearing cables of twisted agave-leaf cross from the great bulge of the east wall to the forked hip of the oldest bottle-tree. Follow the thickest line—three cables braided together until they are thick as a thigh, greased black with a century of coney-fat and palm-sweat so the fibers will not fray in the dry draft. Where that braid meets the granite, wedged into an hourglass pinch of tallow-smooth stone, there is a small slung cradle of cactus-ribs, worn shiny as dark horn. 
+
+That is where my knees are hooked.
+
+At first you might think I am only the Rigging-Mender, an old man or dry-hipped woman half-blind from the amber gloom, spending my days splicing fresh white fiber into tired brown rope while the swifts scream past my ears. And I do have a marlinspike made from a plateau-fox’s shinbone tucked behind my ear, and a ball of sticky, chewed prickly-pear gum cooling against my thigh. My big toes—split wide from my second toes like thumbs—are locked around the main stay right now, feeling it hum like a bass string.
+
+Wait. Stay with that hum.
+
+In a town hung over ninety feet of air without a single iron nail, where dry mortar holds cobbles only by compression and grace, tension is life. Every time a child scrambles along a third-tier balustrade, every time four cousins turn over together in a sleeping-cupboard on the sixth, every time a bottle-tree swells fractionally before dawn as deep fossil dampness climbs up from the mountain’s core into its grey belly, the pitch of the ropes changes. 
+
+I am the listener in the web. My eyes are clouded over—milk-blue cataracts earned forty years ago when I lingered too long on the Unroofed searching for a lost goat-horn during a white midday gale—so the forty-minute sun-blade means nothing to me anymore except a sudden dry heat across my knuckles and the smell of dust baking on the east wall. Because I do not look, my fingertips and the thick yellow horn of my heels have become ears.
+
+Sit beside me on the cradle—slowly, hook your elbow over the secondary stay first so you don’t bounce the weavers below—and press your thumb against the main cable.
+
+Feel that? Not the fast, papery shiver; that’s just twenty amber bats shifting in their sleep under Evi’s eaves ten feet to our left because a bark-scorpion walked past their toes. Deeper down in the fiber. A slow, rhythmic *thrum... thrum...* like a heartbeat underwater. That is young Tern’s wife on the second tier grinding toasted grass-seed, leaning a little too hard into her left stroke because the baby slung on her hip is getting heavy. And beneath *that*—almost too slow to call a vibration, more a tightening in the twist beneath your skin—is the south strangler fig drinking. Its upper limb-collar has swollen a breadth of three hairs since morning. By tonight, before the Turning, I will have to climb twelve paces out over the shaft and slacken the bone toggle on the fourth-tier granary line by half a notch, or else by midnight the tree’s slow breath will pull three cobbles loose from Old Marn’s threshold and drop them straight down into the beetle-mattress.
+
+I know everyone in the bottle by weight, gait, and habit, without ever seeing their faces.
+
+I know when two teenagers from rival tap-clans are meeting secretly in the third storage hammock under the west overhang, because the agave mesh takes on a double-slung, breathless stillness that no stack of dried gourds ever had—and I say nothing, only reach down with my hooked stick to tighten the guide-line below them so their swinging won’t knock dust into the oil lamp of the cranky widow underneath. 
+
+I am very small, even for our kind. My legs have bowed inward over sixty years until my soles naturally face each other like praying hands, useless on flat ground—I have not climbed out through the throat in twenty-five winters, and I never will again until four strong nieces carry me up wrapped in twine when my chest stops moving. Up on the Unroofed I would be an insect blown sideways across a dinner plate. Down here, suspended in the exact center of the drum, I am a spider in a warm lung.
+
+Everything touches me on its way up or down.
+
+When the dry strigil-scrapings fall from the upper balconies after midday—little grey-gold ribbons of sage, skin-oil, and crushed air-plant—a dusting of it settles across my bare shoulders, smelling of bitter camphor and my neighbors’ salt. Moths land in my white hair to lick it off; two fat velvet geckos live permanently in the leather tool-pouch slung at my belly, poking their blunt, lichen-spotted noses out over the rim whenever a lacewing drifts close, their cold little toes ticking against my ribs through the hide. Sometimes a swift—one of the clumsy yearlings whose flight-feathers are still waxy at the base—misjudges a bank around the laundry lines and clips my shoulder at forty miles an hour, tumbling dazed into my lap in a bundle of furious hot heartbeat and dry, musky feathers. I hold it loosely for three breaths, feeling its needle-claws prick my palm while I check that no wing-bone is snapped, then open my fingers over the forty-foot drop and listen to the *whistle-snap* as it catches the rising thermal ten feet down and rockets back toward the violet slot of sky.
+
+My favorite hour is not the dawn sap-drawing, nor the forty-minute glare when the whole chamber smells suddenly of hot granite and waking kites.
+
+It is the three minutes *before* the evening Turning.
+
+Right when the high plateau goes purple and cold overhead, a hush falls over the stone tiers. The looms stop clacking. The stone mullers rest in their dishes. Two hundred people step back into their oval doorways, pulling cloths up over their mouths, and because everyone stops walking at once, all thirty-seven main cables go utterly slack and quiet under my heels. For about two hundred heartbeats, the rigging stops talking about human weight. All I can feel through the grease-blackened agave is the deep, ancient, immovable stone of the shield-rock cooling by one fraction of a degree at the collar, and the slow, stubborn pulse of the eight great trees holding back the desert with their buried thighs, and down at the bottom, seventy feet below my dangling toes, the faint, dry, warm seething of ten million black beetles turning yesterday into soil.
+
+I don't go inside a cupboard when the sky-slot begins to scream. Why would I? A doorway is just stone at your back, and I belong to the air between.
+
+I lash my waist-cord twice around the main fork, tuck my chin down between my knees until I am no bigger than a caudiciform burl on a vine, pull my greasy shawl over my ears, and stay right out in the middle of the shaft while sixty thousand bodies pass around me in the dark. 
+
+You have never felt anything like it. Up and down at once—cold-winged swifts plunging straight off the freezing plateau, carrying a sharp knife-edge of upper-sky chill in their feathers for three seconds before the town-heat swallows it, crossing inches away from warm-bellied bats pumping furiously upward out of the eaves, reeking of dry ammonia and sleep. The wind they make together swings my cradle four feet side to side like a pendulum. Wingtips flick my knuckles, my spine, the crown of my shawl—*whuff, tic, whuff, whuff*—never hitting me squarely because the bats map my curled spine with clicks I feel vibrating inside my molars, and the swifts know me simply as the lump on the fifth-tier cross-stay that has been there longer than their grandmothers’ mud-cups.
+
+Dust rises from the floor in a warm, musky cloud—feathers, sage-smoke, pulverized husk—and I breathe shallowly through woven agave cloth, rocking in the dark center of the cyclone, holding one thumb against the main stay just to make sure every knot holds fast while the world turns inside out.
+
+Then the roar thins to a rustle. The dust settles on my eyelashes. Across the dark gulf on the west wall, deep inside the wet green heart of the biggest bromeliad beside Evi’s door, a bronze frog goes *tink.*
+
+Below me, a floorboard creaks as someone steps out to uncover a lamp. Feel that? Two short taps of a bare heel on the fourth-tier catwalk—that’s my grand-nephew coming out along the rope with a warm packet of leaf-baked tubers tucked inside his shirt, stepping carefully along the outer strand so he won't wake the geckos in my pouch. I unlash my waist-cord, stretch my bowed legs out into the dark, warm, whistling air, and reach into my belt for my bone marlinspike to give him room on the cradle.

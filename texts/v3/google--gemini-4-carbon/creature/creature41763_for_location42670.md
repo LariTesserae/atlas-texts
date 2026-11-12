@@ -1,0 +1,19 @@
+If you watch a patch of pump-kelp long enough—not for minutes, which belong to the frantic, hot-blooded grazers, nor for hours, which belong to the drifting fogs, but for the slow, violet crawl of an entire cycle—you will notice a snag in the rhythm. 
+
+Somewhere down in the dark, a valve sticks. A calcified exhaust chimney chokes on its own brine-scale, its steady plume of diamond dust sputtering to a wheeze. Immediately, the surrounding acre of velvet rosettes begins to lose heat. Frost creeps inward from the slate margins, threatening to freeze the lipid-greased pistons solid and kill a junction of the regional engine.
+
+Then, a shadow detaches itself from the base of the chimney. It does not walk over the flora; it wades through the tangle of copper-veined stems like a crab moving through surf, low, heavy, and deliberate. 
+
+At first glance, it looks like a discarded bundle of the valley’s own dark plumbing. It is roughly the size of a crouched human, though distributed entirely differently—a broad, flattened dome of dark, vulcanized hide slung low between four multi-jointed limbs that splay outward like the legs of a heavy tripod, plus a fifth, thicker limb tucked beneath its belly. It has no neck and no discernible head. Where a face ought to be, there is only a broad, upward-sloping shield of overlapping slate-grey plates, scarred with tiny, branching Lichtenberg figures where stray electrostatic arcs have grounded harmlessly against its shell.
+
+There is no respiratory heave to its sides. To breathe this thin, freezing air fast enough to fuel a warm body is a frantic, exhausting trap—that is the curse of the barrel-chested grazers, who live their short, panicked lives on the edge of asphyxiation, burning through calories just to keep their oversized lungs pumping. This creature has refused that bargain entirely. 
+
+It uncoils its fifth central limb from beneath its torso—not a leg, and not quite a mouth, though it serves the oldest purpose of one. It is a heavy, muscular proboscis tipped with a collar of serrated, ceramic-hard plates. Moving with the slow, hydraulic certainty of a machine press, the creature clamps this collar directly over a secondary bleed-nipple at the base of the failing pump-kelp. There is a faint, muffled *thump* through the stone as it opens a bypass in its own throat, and the hot, mineral-thick brine of the deep aquifers surges directly into its body.
+
+It does not eat the biome. It plugs into it. 
+
+Within its broad, insulated carapace, the creature houses a labyrinth of dark, braided blood-vessels wrapped tightly around a central biological heat-exchanger. As the scalding, iron-rich plant sap courses through its ventral siphon and vents back out into the root-mat, it warms the creature’s thick, glycerol-laced blood and charges a series of stacked, galvanic organs along its spine—structures remarkably similar to the electrostatic plates of an earthly torpedo ray, grown heavy with assimilated copper. As it drinks the valley's pressure, the dull, pewter-colored nodes arranged in a ring around the rim of its shell begin to glow, not with bioluminescence, but with the faint, cold-cathode violet of ionized gas. 
+
+Recharged and warmed from the core outward, it detaches from the root-valve—leaving a smear of thick, waxy saliva over the nipple so it won't freeze before the sphincter seals—and turns its attention to the choked chimney. 
+
+Using two smaller, remarkably deft forelimbs normally kept folded neatly into warm pockets behind its front legs, it reaches up to the calcified flute. These hands are weird, specialized things: three opposing, boneless fingers of tough, black cartilage, completely insensitive to cold and heavily insulated with dead, rubbery callus. With slow, tremendous leverage, it pries open a

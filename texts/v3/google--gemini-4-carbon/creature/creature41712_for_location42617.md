@@ -1,0 +1,49 @@
+To look closely at a single street corner in this cold pocket is to realize that neither the polychaete worm nor the pale crustacean is a complete animal on its own. They are halves of a distributed, restless mason, bound together by threads of chemical grammar so dense they might as well be nerve fibers.
+
+Watch one of the builders—the *extruders*, as you might think of the worms—hanging suspended in the violet gloom beside an unfinished parapet. Its body is a glassy tube, entirely lacking eyes or sensory tentacles, revealing a central gut pulsing with chalky white slurry and a bright crimson blood vessel running its length like a wet thread. As it undulates, rows of iridescent, paddle-like bristles along its flanks beat in a slow, hypnotic metachronal wave, holding it dead-steady in the rising draft of the vent. Behind its blunt, featureless head sits a swollen muscular collar. Every few seconds, a contraction ripples up from its tail, and the collar flares, pressing against the raw edge of the wall to lay down a gleaming, viscous ribbon of aragonite paste. 
+
+The worm has no idea what it is making. Left in a jar of cold seawater, it would simply spin random, tangled knots of limestone until it starved, entombed in its own mindless secretions. The geometry belongs entirely to its rider.
+
+Clinging to the worm’s slick dorsal surface, or scurrying immediately in its wake, is the *architect*—the six-legged crustacean. Though shell-less, its pale, waxy skin is toughened at the extremities; its forelimbs terminate not in claws, but in heavy, calcified trowels as flat and square as a mason’s chisel. Its head is dominated by a thicket of feathery chemoreceptors that twitch constantly in the thick brine, tasting the faint, rapidly diffusing pheromone trails left by thousands of its peers. 
+
+To steer the blind worm, the crustacean drums a rapid, silent staccato on the worm's muscular collar using its middle pair of legs, while simultaneously dabbing minute droplets of bitter formic esters onto the worm's flanks. Touch right, dab left: *curve the wall inward thirty degrees*. Rapid drumming on the crown: *cease extrusion, purge the collar*. As soon as the white paste hits the freezing brine, it begins to skin over, and the crustacean drops off the worm’s back to work it. With blinding, mechanical speed, it scoops black basalt grains out of a fleshy pouch beneath its thorax and rams them into the hardening carbonate, creating a speckled, load-bearing terrazzo. It draws its squared forelimbs along the bevel, shaving off microscopic curls of excess stone—which drift downward to become part of the perpetual gray silt-rain—leaving an edge sharp enough to split a hair.
+
+When the mason-pair’s shift ends—marked not by any sun, but by the exhaustion of the worm’s mineral gut—they retreat into the honeycombed apartment blocks they just helped raise. The rectangular windows cut into the facades are calibrated precisely to the width of a crustacean’s shoulders. Inside, the worm coils tightly in a tiny alcove, inert and digesting, while the crustacean stands guard at the sill, snapping its mandibles at drifting detritus and grooming its partner’s bristles clean of hardened mortar.
+
+***
+
+Because the city is constantly swallowing its own outskirts, an entire caste of inhabitants exists solely in the dark, suffocating interior of the older stone. 
+
+As new terraces are cantilevered out into the central updrafts, the lower, inner avenues are gradually walled off from the circulation of the mineral vents. The violet kelp on the buried cornices starves for sulfur, its tallow-glow sputtering out into darkness. Within days, these deep neighborhoods become stagnant, freezing crypts. The builders abandon them, migrating outward toward the raw, open water of the central shafts.
+
+Into these abandoned, lightless tenements move the *breakers*. 
+
+They are cousins to the six-legged architects, hatched from the very same brood-clusters, yet warped by a different larval diet. If a drifting larva settles in the bright, sulfur-rich updrafts, it molts into a pale, precise mason. If the indoor weather sweeps it down into the dark, oxygen-poor foundations, it grows to twice the size, blind and bloated, its calcified trowels thickening into asymmetrical, crushing picks. 
+
+In the pitch dark of the buried wards, the breakers systematically dismantle the dead city from the inside out. They wedge their pick-limbs into the rectangular windows of abandoned apartments and pry, leveraging their hydraulic bodies until the brittle carbonate snaps—a sharp fracture that dies instantly in the syrupy water. They chew the fallen masonry into fine, milky powder, digesting the organic binding-proteins the worms left in the stone and spitting out raw, recycled calcium slurry into the foundation aqueducts. The rising vent-plumes suck this milky exhaust out of the sewer grates at the bottom of the fissure and carry it right back up into the central shafts, where the worms filter it from the water to build the penthouses. The metropolis is eating its own cellar to build its roof.
+
+***
+
+And out in the dim, violet-lit avenues, life has grown strangely pastoral, and strangely lethal, in the margins of this relentless industry.
+
+Up near the ceiling, where the rising warmth stalls against the freezing basalt, the herdsmen—older, scarred crustaceans whose trowels have chipped too badly for fine masonry—tend the copepod corrals. The blind copepods are grotesque, blimp-like creatures, swollen with clear, buoyant lipids that keep them bobbing against the woven chitin fences. They feed on the microscopic bacteria that bloom around the glowing kelp stalks. The herdsmen crawl slowly over the backs of their floating livestock, using specialized, comb-like mouthparts to scrape away parasites and harvest beads of rich, oily wax secreted from the copepods' segments. They roll this wax into tiny pale loaves and carry them down the spiral conduits to feed the exhausted, resting worms, trading fat for stone.
+
+Watching all of this from the crisp, ninety-degree shadows are the checkered flatworms—and the things that hunt *them*.
+
+A flatworm in repose is a masterpiece of architectural forgery. Stretching three inches long and no thicker than wet tissue paper, its dorsal skin is a shifting mosaic of stark bone-white and basalt-black squares, complete with faint, gray trompe-l'œil lines that mimic the recessed mortar joints and rectangular windows of the tenements. It drapes itself over a parapet, aligning its false windows with the real ones, waiting for the water to displace slightly as a mason-pair swims past. When it drops, it falls like a silk handkerchief in heavy oil—utterly noiseless—wrapping the worm and crustacean together in a paralyzing mucus envelope before flowing, liquid and flat, through a drainage slit a millimeter wide.
+
+Yet the city has an immune system, though it is an accidental one. 
+
+Everywhere along the glowing violet cornices, half-buried in the silt-boxes where the glass-stalked flora grows, live motionless, solitary creatures that look like discarded scraps of braided chitin bridge-cable. These are ambush-anemones, stunted and calcified, their tentacles stiff and geometric like dead twigs. They ignore the bustling worms; they ignore the scurrying crustaceans. Their simple nerve-nets are tuned exclusively to the chemical stink of flatworm mucus. When a checkered predator ripples across a plaza, bloated with a freshly swallowed mason, the "twigs" snap shut with the speed of a sprung mousetrap. Barbed, mineralized harpoons fire at point-blank range, pinning the flatworm to the pavement. Within minutes, the passing crustaceans notice the pinned hunter. Without breaking the rhythm of their commute, dozens of architects detour to the spot, methodically snipping the flatworm into neat, square parcels of meat to be carried down into the brood-nurseries, leaving behind only a stain that the next passing worm immediately paves over in gleaming white.
+
+***
+
+There is a terrible, ticking boundary to this entire civilization, though nothing inside the pocket possesses a brain capable of dreading it. 
+
+The fissure is finite. It is the size of a shipping container, and the basalt walls do not yield to chitin picks. Every day, the central shafts narrow by a fraction of a millimeter as new balconies are cantilevered out to catch the rising vent-plumes. Every week, the distance between the opposing tenements shrinks, bridged by fresh, tight-strung arches. The traffic in the avenues grows denser, a thick, silent blizzard of pale legs and undulating glass bodies bumping softly in the violet dark. 
+
+Already, near the bottom of the pocket, the opposing walls have met, fusing into a solid Labyrinth of sewer-pipes and breaker-tunnels. In a few years—perhaps a decade—the furious geometry will close the final gap at the top, choking off the hairline crack to the open sea, sealing the ceiling, packing the entire pocket solid with sharp, pristine, uninhabitable bone.
+
+Unless, of course, one looks at the very top of the fissure right now, where the freezing ocean presses down through the narrow crack in the basalt. 
+
+There, clinging to the jagged lip where the pocket meets the abyssal plain, a small, pioneering cluster of crustaceans is ignoring the masonry altogether. They are crowded around a tiny, stunted worm—a rare genetic variant hatched only when the water grows dangerously crowded with pheromones. This worm does not secrete white carbonate paste. Its swollen collar is pressed tight against the raw, unyielding volcanic ceiling, oozing a slow, clear drop of concentrated sulfuric acid distilled from the vent-kelp. Grain by grain, in total silence, the black basalt above them is fizzing away, dissolving into sand, opening a microscopic chimney toward the next fault line over.

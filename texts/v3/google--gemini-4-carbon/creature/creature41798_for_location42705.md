@@ -1,0 +1,33 @@
+You will stare straight at the north wall for ten minutes before you realize part of the glare is breathing.
+
+Where the widest sheet of runoff slides down a smooth, forty-degree cleavage plane of trachyte, there is a patch the size of two open hands where the light looks slightly thicker. It has no color of its own, and in this shadowless pit, it casts no outline. You only find it because the whispery *tck-tck-tck* of the falling water goes momentarily mute when it hits that spot, parting around a low, beveled blister before rejoining below.
+
+At first, it reads as a geological quirk—a thin, clear crust of precipitated silica or baked mineral jelly, laid down by the venting steam. If a loose flake of ceiling rock skitters down the slope and strikes it, it does not flinch. It feels like warm, vulcanized tire rubber, slick with condensate, anchored tight to the sharp stone. 
+
+Wait an hour. Watch the thumbprint-sized smear of pale yellow biofilm three inches to its left. 
+
+Slowly—so slowly the eye cannot track the motion directly, only verify afterward that the geometry has changed—a flat, glassy apron extends from the margin of the blister. It flows over the razor-sharp step-fractures without slicing itself, pouring its own tough, refractive flesh into every micro-crevice like warm resin. Once the apron covers the yellow smear, a faint, rhythmic pulsing begins deep inside the clear mass. You can see the photonic water beneath it distorting, bending through a series of shifting internal lenses. Fifteen minutes later, the apron draws back. The rock underneath is scrubbed down to naked, charcoal-gray feldspar, cleaner than when the tectonic shift first split it open.
+
+It is not a native of the dark rock, like the blind amphipods, nor a surface refugee washed down a crack like the blinded spider. It came in through the hairline fractures before the rock even finished settling, riding the colloidal water as a microscopic, dormant cyst—a sleek piece of wild, post-industrial opportunist biology that has spent the last ten thousand generations evolving inside planetary heat-sinks, cooling jackets, and deep-crustal mitigation plumes. To the amphipods, the light is an irrelevance; to the spider, it is an injury. To this thing, the blinding arc-welder puddles are pasture.
+
+Look closer, letting your eyes water and ache against the noon-white reflection, and its interior resolves. It is not empty jelly. Suspended within the translucent, flattened dome is a dense, intricate scaffolding of fine, soot-black filaments, arranged in terraced, fern-like louvers that tilt and track with microscopic precision. 
+
+It is farming the colloids. 
+
+As the superheated, light-heavy water washes over its dorsal skin, specialized cilia along its upstream edge comb the sub-micron diamondoid lattices out of the runoff, drawing them into narrow internal canals. Inside, the creature squeezes them. Using tiny, muscular sphincters lined with biogenic grit, it subjects the engineered particles to deliberate mechanical shear, forcing them to dump their remaining phononic heat in concentrated bursts of high-frequency light—and those soot-black internal louvers drink the flash. It is a radiotrophic grazer, an underground sunbather that has learned to milk the planet’s artificial fever. The biofilms and silica-fungi it scrapes from the stone are not its fuel; they are merely its vitamins, stripped for raw nitrogen, phosphorus, and structural carbon. 
+
+Because it eats light that comes from every direction at once, it has abandoned any front-to-back symmetry. When it decides to cross from one wet seepage plane to another, it does not turn. Any point along its circular, knife-thin rim can become the leading edge. It loosens its vacuum grip on the trachyte by secreting a microscopic film of slick, alkaline mucus, and slides smoothly across the jagged rubble, flowing over flinty edges that would lay a human boot-sole open to the bone. 
+
+As it grows—and even in this sparse, newly cracked cistern, with unlimited wattage pouring through the seams, it is growing steadily—it has to deal with the leftovers. It cannot digest the diamondoid lattices themselves; once wrung dry of their thermal stress, the dead, dark particles would clog its narrow canals like silt. 
+
+Look down at the dryest ledges just above the steaming floor-crease, or tucked into the calm lee behind submerged stones. You will see tiny, immaculate geometric pellets, no larger than poppy seeds, arranged in neat, staggered rows where the Creature paused during a circuit of the walls. Unlike everything else in the chamber, these pellets do not shine, and they do not reflect. Packed solid with spent, inert diamondoid dust bound in baked protein, they are absolute, light-drinking black—tiny holes punched clean through the room’s pitiless glare.
+
+There is only one large patch on the north wall right now, perhaps four months old, having arrived just after the dust washed out. Most of its life is motionless digestion, clinging flat to the sweating rock while the hot rain hammers its tough, clear back, humming internally with stolen white fire.
+
+Give it another month, though, and watch what happens when the chamber’s weather shifts—when a deep, glassy *ping* echoes through the trachyte and a nearby vent pinches shut, starving its wall of water. 
+
+The dome pulls inward, thickening from a flat blister into a taut, hemispherical droplet the size of a plum. Its internal black louvers fold flat against its base, shielding them, while the clear flesh above them stiffens and clarifies until its refractive index matches pure crystal. For half a day, it sits on the drying stone, gathering the fierce ambient glare of the ceiling and floor and focusing it inward, cooking its own core to a desperate, metabolic boil. 
+
+Then the skin splits cleanly along three dry seams, peeling back like the husks of a steamed nut. There is no wet pulp left inside—only a pinch of fine, glittering gray powder, dry enough to catch the rising thermal plumes from the floor-crease. The updraft lifts the spores silently into the bright, suffocating air. Most fall back into the pools, flashing briefly as the blind amphipods snap at them and spit them out; a few drift across the east wall, brushing right past the long, trembling whip-legs of the waiting spider without heavy enough a footfall to register over the *tck-tck-tck* of the rain. 
+
+The rest rise straight to the weeping ceiling, vanish into the razor-thin fractures against the flow of the downward water, and push deeper into the hot, stressed stone, looking for the next bright split in the dark.

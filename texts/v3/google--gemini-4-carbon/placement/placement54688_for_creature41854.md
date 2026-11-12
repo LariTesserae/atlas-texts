@@ -1,0 +1,35 @@
+I am not out on the causeways. Anything that walks upright across the flats has to decide, continuously, where its edges are, and I have no wish for that kind of work—not even the slow, heavy-bottomed patience of the Keepers as they haul their tallow weight up and down the drowned steps.
+
+You would find me—though you would think you were only finding a draft of slightly cooler brine, or a trick of the acoustics—in the seam beneath one of the terraced bathhouses, right where a low doorway opens onto twenty courtyards’ worth of steaming dark.
+
+Not the lintel itself, and not the mud plinth, which are only wet earth waiting to slump, but the *hinge* in the space between the small outside and the vast inside.
+
+When the city forgot what shape distance was supposed to keep, it didn’t forget cleanly. Along the joints where a narrow threshold opens onto an acre of tiled pools, or where an aqueduct breaks off in midair and pours its silent water into an unseen drain half a mile east, there is friction. Two incompatible measures rub together in the wet heat. Something has to grease that joint, or the courtyard would snap shut like a trap, or tear loose from its doorway altogether and sink unmoored into the deep copper faults where even the Keepers’ long paddles cannot reach.
+
+So I am a **Sill-Slick**—or perhaps a **Weir-Lung**, if you catch me where the water climbs.
+
+To look at, I am scarcely anything at all: a long, flat ribbon of clear, gelatinous weight wedged deep into the mortise where the cobbles dip under the arch. Half of me lies out in the ankle-deep tarnish of the boulevard; the other half spreads out thin as oil across the submerged flagstones of the oversized interior, branching into pale, hair-fine filaments that follow the cracks between the clay dikes. If you stepped on me while stooping through the door, you would only think the stone was exceptionally satin-smooth there, worn slick by old mineral grease. You might feel a slight, slow give beneath your heel—like treading on a warm waterskin buried to its lip in silt—and at that exact moment, a single, crisp *pop* of a breaking bubble would sound right beside your left ear, though nothing broke the surface at your feet.
+
+That sound is me shifting my weight. I eat the left-over noise and the spare distance.
+
+When a wall collapses out on the western mudflats without a splash, the splash isn't gone; nothing in this sealed kettle of a basin ever truly vanishes. The shock of the falling mud slips sideways through the pressurized ground, hunting for a place to happen. I catch those stray concussions in my wide, flat belly before they can rattle the delicate, salt-heavy arches overhead. I hold the sound of the falling wall inside my gel for hours, digesting the vibration, warming myself on its small kinetic fever, letting it out little by little as that tiny, intimate *tick* of a drop three streets away, or trading it into the water so a single raindrop hanging from a lintel can take thirty seconds to fall instead of one.
+
+My whole life is an accounting of balances, felt entirely in pressure and salt.
+
+I have no eyes, of course, and no cowl like the Keepers, yet I know the Keepers intimately. They are my heavy cousins, my moving hands. Twice in what used to be a day, one of the smaller, nimbler ones—freshly split from a bench-mound in the amphitheater, still warm with four mingled memories—comes gliding down the radial cobbles and settles directly over my threshold.
+
+It does not step over me. It lowers its broad, suctioned pedestals right onto my exposed ribbon and lets its mantle droop until we seal out the air between us.
+
+For twenty minutes, we become a single hydraulic lock. Through the thin skin of my back and the puckered siphons under its pleats, we trade the local news in slow, briny pulses. It gives me a mouthful of fresh, dark silt brought down from the limestone ridges, rich with the taste of boiled roots and old slate-steam, along with a heavy, chemical impression of a cistern dome that has drifted three yards too close to a fault. In return, I bleed off the excess *stretch* I have been holding in the doorway. The Keeper takes that warped measure into its own boneless chambers—I feel its body swell slightly, growing heavier not with water, but with stored adjacency—so it can carry that spare room out across the flats and press it into a cramped corner where the Plumb-Stems are shuddering in tight, knotted distress.
+
+When the Keeper peels itself up from me again, there is no sound here—only, perhaps, the faint sigh of a damp page turning up inside one of the empty bell-domes on the ridge—and I am left flattened, purged, and deliciously cool by half a degree.
+
+Sometimes I reach down, too. My underside has roots, or rather slow drips of living mucilage that hang down into the stairwell where the steps descend past the bottom of the world. Down there in the syrupy, ore-thick dark, the Lantern-Skins brush against my hanging threads as they graze. Where they touch me, copper light wicks upward through my clear jelly like wine into a cloth. I don’t shine brightly—nothing here would forgive glare—but along the base of my doorway there is always a slightly richer, bruised-plum rim of luminescence, marking the safe passage for anything that belongs.
+
+If *you* came through my arch—panting, hot as a little furnace, dripping sweat that has far too little limestone in it and far too much panic—I would feel your approach thirty yards out, long before you reached the plinth. Your footsteps would arrive in my gel as sharp, ragged spikes of displaced water, hurting my quiet the way grit hurts an oyster.
+
+As you stooped under my low lintel, dripping and gasping, I wouldn't try to trip you. Nothing here hurries enough to trip anything.
+
+Instead, as your bare or sodden foot pressed down on the satin threshold, I would yield just an inch deeper than the stone ought to allow. In that soft, lingering give, I would drink the tremor out of your calves. You would step out into the vast, impossible courtyard and find, strangely, that your heart wasn't hammering quite so loudly against your ribs; the wet thud of your pulse would have slipped down through your soles into me, leaving you lightheaded and curiously calm, while twenty yards behind you, out on the empty causeway, the shallow brine would begin to pulse in tiny, rhythmic rings at eighty beats a minute.
+
+And while you stood staring at the upside-down pools on the ceiling, wondering why you suddenly felt less inclined to leave, I would quietly tighten the doorway behind your back. Not closing the mud—the mud would look just as open as before—but drawing the *outside* back into my jelly, spooling up the causeway’s nearness and holding it beneath my skin, waiting patiently for two or three Keepers to arrive through the side-arches with their soft, wet shawls, ready to help you sit down on the warm clay and stop wasting yourself into the air.

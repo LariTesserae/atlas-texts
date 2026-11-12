@@ -1,0 +1,61 @@
+Everything untethered in this place is sorted instantly by weight. Let go of a molted primary feather and the sky takes it before you can blink twice; let go of a wet bone and the mountain swallows it down two miles of lightless limestone throat without returning an echo. To stay here at all is to refuse both directions.
+
+At first it seems the cleanest thing to be would be the rainbow in the middle of the shaft—hanging fifteen feet below the cobalt roof, broken into seven colors and put back together sixty times a minute. From the ledges, those bands of light look almost architectural, braced between the wet ribs like stained glass. Only when you watch a cloud-shred punch straight through one do you realize nothing is staying. The water making that color is passing upward at forty miles an hour, shattering off a stone lip, catching the sun for half a heart-beat, and blowing out through the fingers of the crown to freeze into dry ice-dust over the cloud deck. It is only a shape the wind keeps refilling.
+
+The swifts are almost the same. Motionless as dark arrowheads pinned to nothing, until you look closely enough to see the frantic, ceaseless tremor along their trailing edges, every covert feather splitting the gale twenty times a second, tiny hearts hammering against keel-bones just to stay level with the midges. Eat to hover, hover to eat, shriek so your neighbor doesn’t shear your wingtip off in the boil. No rest in it.
+
+If you want to find what actually holds still, you have to move out of the ninety percent and press yourself into the two-inch skin of slow air right against the weeping stone.
+
+At first my eye goes to the river-cobbles lashed to the bottom corners of the tattered sinew nets. Nothing else up here has that grain. Everything native to the crown is pale, soluble limestone—old sea-floor lifted into the thin blue freeze and carved like tallow into flutes and keyholes. Those cobbles are dark grey basalt, heavy as iron, bruised smooth in some roaring horizontal creek miles below the clouds where water lies flat on its belly to travel. Someone carried them up four thousand feet of vertical crack in a rawhide sling just to give the wind something stubborn to pull against. When the nets whip, the cobbles knock softly against the limestone ribs—*clack, clack, clack*—flat-world rock striking sky-bone.
+
+For a while I wonder if I am the one who brought them up: leather-palmed, lungs burning on half-air, testing old bone pegs with a distrustful thumb before trusting my weight to the slimy spruce poles. There would be a fierce satisfaction in climbing into the roar once a month, taking three fat birds and a waterskin of cold condensate, leaving a fresh twist of cordage, and descending back into pine trees and woodsmoke before your fingers go white.
+
+Except the climbers always leave. They have to. Even on blue afternoons their lips turn plum-colored after an hour on the catwalk, and they shout at each other from three feet away with flat, strained faces because their ears aren’t built for the organ-pipe in the rock. They visit the cage the way diving birds visit the bottom of a pond.
+
+I don’t want to hold my breath and go back down. I belong inside the chord.
+
+***
+
+Look lower than the spruce poles, then. Past the upward-streaming kelp-vines and the bulbous little orchids drinking upside-down rain, down where the daylight turns green-gray from bouncing off wet moss and limestone before it reaches you.
+
+Not the prime hunter spread-eagled dead-center in the bug-boil—or rather, not anymore.
+
+My left wrist-membrane tore four winters back when an ice-lens sheared off the northern rib in a cross-gale and caught me banking out of a dive. It healed, as our hides heal, in a thick, puckered rope of pale scar-tissue from the long wrist-bone halfway down my flank. When I throw myself backward into the central shaft now, the left side spills air while the right side cups it; unless the updraft is thick and steady as warm cream, the chimney tries to spin me like a single-winged maple seed toward the wet teeth of the western wall. I can still snatch a low swift in heavy fog when they fly blind and slow, and I can still drop twenty feet to break a fall and flare back onto a rib with a lopsided *whump*, all four horn-hooks slotting home at once.
+
+ mostly, though, I stay in the boundary layer. It turns out there is a whole country inside those two inches between the roaring shaft and the weeping rock, and when you stop throwing yourself into the middle every hour, you begin to read it down to the grain.
+
+I am old enough that the hollow guard-hairs along my spine have taken a permanent mineral rust from the iron-seep in our sleeping alcove, striped bright green with cushion-moss spores that sprout in the damp grooves near my shoulders. Pikas don’t merely cross my knuckles; in cold snaps, when rime crusts the outer keyholes and drops the pitch of the whole peak by half a tone, I have had one sit right on the flat leather hood above my eyes to chew a fern-rhizome, shaking drops off its whiskers while my milky inner lids clicked *shut-open, shut-open* half an inch beneath its heels. Sometimes I snap one up and tuck it warm and broken into my belly-fold for the lean days; more often I let them pass. Thumbnail-crabs are easier on worn peg-teeth anyway, crunchy and salt-sweet, grazing in pale droves along the black bacterial slick just below the moss-line where I spend half my afternoons anchored by one upper hook.
+
+Down in the clan-alcove, I am the top shingle.
+
+That is the work of the broadest ribs and the heaviest grease-coat: I lock all four spatulas into the deepest ancestral flutes at the top of the hollow, cinch two old amber-mucus straps across my pelvis, and press my flat chest hard against the dry vein at the back of the niche. Five younger ones hook into my shoulder-pelt and into one another below me, overlapping down the wall so the icy sheet-runoff hits the back of my neck, parts cleanly down my oiled flanks, and leaves the mothers and the fist-sized, rubber-limbed young steaming and dry underneath.
+
+All night—because night in the lantern is louder than day, the outside sky plunging into black, brittle freeze while the deep gut of the mountain keeps pumping warm, damp breath upward into the starlight, turning the upper ribs into booming white pillars of rime—I lie awake by halves and listen with my chest.
+
+You cannot imagine how clear the mountain is through bare sternal cartilage when the birds finally stop screaming. Every rib of the six has its own fundamental note. The eastern pair, bridged by the humans’ spruce poles, hums slightly flat when the rawhide lashings swell with mist and tighten between the walls. Fifty feet down the dark throat, I can feel a pebble loosen from a marl seam and bounce three times before the void takes it. Two hundred feet down on the outer face, long before daylight hits the cobalt rim, I can feel the small, sharp *tink* of an iron-hard bone piton taking the weight of a climber’s foot.
+
+I know three of the climbers by gait alone, though I have never smelled them through the wind.
+
+There is Heavy-Left, who pauses seven breaths on every third peg and always strikes the rock twice with his palm before hauling over a lip. There is Quick-Three, small-boned and light as a boy, who crosses the slimy spruce catwalk upright instead of straddling it, making the poles drum a rapid, nervous triplet into the eastern limestone. And there is Pitch-Bringer, who comes only twice a summer when the sun stands highest, smelling faintly through the leeward eddy of boiled pine-tar and wood-ash, spending hours pecking patiently at the stone gutters with a river-hammer that sends blinding white stars of vibration shooting through every rib in the crown—*chak! chak! chak!*—loud enough in the stone to make the young ones in our alcove flinch in their harnesses and click their jaws in their sleep.
+
+When they are up there, I stay two yards below the rim, flattened into a fluted shadow under the bladder-vines, watching only the bottoms of their greased moccasins crossing the gap between the poles, or reaching one long, double-hinged arm over a blind shelf to unhook a tangled swift from the hem of their slack net before Quick-Three comes around the rib. Never two birds from one net. Never tearing the sinew mesh if the bird comes free with a twist of my horn-thumb. Torn mesh brings them back sooner with hammers and new cobbles.
+
+It is after they leave—after the tiny, rhythmic dulling of their footsteps fades down the outer spire and drops beneath the flat white floor of the clouds—that I haul myself over the lip into the quiet margin.
+
+Moving out of the updraft always feels briefly like dying, or turning into basalt. Without the rising gale pushing under my ribs and trailing my pelt upward, gravity catches all of me at once; my long forearms feel packed with wet sand, my scarred membrane drags in damp folds against my shins, and my fringe-hair collapses heavy and sodden over my shoulders like drenched weeds. I hunch low on four wide-splayed hooks, shuffling crabwise into the lee behind the eastern rib where the cache sits.
+
+Inside my downward-sealed belly pouch, alongside two smooth quartz gizzard-stones and the dried skull of a swift I haven’t bothered to spit out yet, I keep one thing that has no use at all: a crescent flake of dark basalt no wider than a human thumbnail, sheared off one of the net-cobbles years ago when a raptor hit the mesh at full stoop and slammed the weight against the wall. Sometimes, squatting heavy and awkward out of the wind, I take that dark chip out with two horn-tips, hold it an inch from my left eye while the inner lid clicks mist away, and turn it in the fierce, unfiltered sun just to look at a piece of rock that water could not dissolve. Then I push it back into the warm lanolin dark against my stomach and seal the seam.
+
+First I drink from the pitch-lined pothole.
+
+Water everywhere else in my life has teeth and speed; you bite it out of the air as mist, or lick it racing vertically down a stone groove before it shoots back at the sky. The water in the humans’ basket lies completely flat. It has a skin on it that holds a tiny, upside-down piece of blinding cobalt sky and the curved white bone of the rib above my head. When I dip my lipless snout into it, that little sky breaks into rings from the center outward without making a sound, cold and dead-still on my tongue, tasting faintly of pine-resin and old basket-reed.
+
+Then I shift six inches sideways, hook my upper spatulas into a dry crack beside the oiled-skin bundle of obsidian, and press my bare gray throat-plate flat against the limestone right next to the wedged vulture bone.
+
+The whole spire around me is still roaring—vapor-banks slamming the cage into sudden gray twilight and blowing clear in five heartbeats, swifts shrieking like flung gravel, rainbows igniting and shattering over the pit, the six great ribs groaning their shifting chord as crosswinds shear the summit. Everything rising, tearing loose, modulating.
+
+Inches from my eye, wind funnels through the hollow wing-bone of a dead bird wedged tight by hands that have already gone back down to horizontal ground. Through the stone and straight into the drum of my chest comes its note—thin, narrow, round as a pulled sinew, never climbing when the updraft surges, never dropping when fog swallows the sun. Just one clear line drawn straight through the middle of the roar.
+
+I stay there until the shadow of the western rib slides across the water basket and the stone begins to chill toward evening. My shutters click *shut-open, shut-open* against the stray drift of spray. Below me in the throat, someone in my clan strikes chin to limestone—*tock-tock-trrrrrk*—asking who has the upper anchor tonight, telling me a warm boil of evening moths has started rising from the dark miles down.
+
+I tap back once with the edge of my jaw—*tock*—coming down. Then I swing my heavy limbs out over the lip, let the rising gale catch my pelt and lift the weight clean off my joints, and wheel smoothly downward along the weeping bone toward the dark.

@@ -1,0 +1,37 @@
+At first, it is tempting to be the person on the catwalk—the coat-wearer with the missing cuff button, leaning over the damp iron railing in the thin, pressurized pocket of gas under the dome, breathing the warm, slightly oily smell of alkaline steam while outside the wind tears itself on the mountain. There is a clean loneliness to being the observer, boots ringing softly on the grate, looking down into a green watch-case that has no need of you.
+
+Wait a little longer, though, and the boots begin to feel clumsy. Up there, your pulse is too fast; eighty beats a minute is frantic, almost obscene, above a gear that takes four hours to turn once. Even your eyes dart too quickly. You belong to the ten-thousand-foot pass outside, to weather and errands and rust. 
+
+Sink below the meniscus, and the temptation shifts toward the Gaugers. To read the world entirely with your belly—to press yourself against a stamped serial number until *7740-B* rises backward along your spine, not to hide from anything, just for the deep, muscular satisfaction of agreeing with a shape—that is closer. There is something intensely restful in the idea of sealing a torn stem with your own clear cuff of flesh, drinking five millimeters of bruised green sap until the raggedness is gone and the edge is true again.
+
+Yet even a Gauger goes from place to place. It detaches. It forgets the bolt-head it was just a moment ago in order to become three parallel copper conduits, and tomorrow it will forget the conduits to become a split-collar bearing or a button from a stranger’s coat. It is a creature of touch, and touch requires leaving one surface to find another.
+
+Go deeper in toward the center, down through the four layers of blown-emerald rosettes and the three flights of perforated stairs, where the crossing shafts of mountain light have been strained through so much olive and maroon leaf-flesh that the water holds only a thick, shadowless chartreuse gloom. 
+
+Here, bolted to a vertical stanchion beside a motionless dynamo, is a junction box of cast iron sealed with red lead, and rising from it on a short brass stem is one of the pressure gauges. 
+
+Not the needle, frozen at its high figure against the white enamel dial. Not the thick beveled glass bezel, nor the brass case with its hair-fine lathe rings. Inside the housing, behind the dial face where no eye from the catwalk could ever see it directly, there is a small horseshoe-curved loop of low-wattage tungsten wire sealed inside a thumb-sized vacuum bulb.
+
+That is where I find myself.
+
+I am not bright enough to throw shadows. Driven at half-voltage so I will never burn out—so I can outlast the builders who wired the trestle and walked down the pass fifteen years ago—I burn at the color of late-autumn honey, or banked peat, or a gold coin held in a closed fist. My whole work is to warm a four-inch circle of white painted tin from behind, so that the black numerals—*150, 200, 250*—and the slender, unmoving pointer remain legible in the perpetual noon-twilight at the core of the tank.
+
+Nobody reads the dial. The pressure it measures has not changed since the flood-valves were locked shut; the Bourdon tube curled behind me is stiff with equilibrium. Yet the current still comes up through the bundled copper conduits from whatever deep, automatic hydroelectric turbine turns in the gorge below the trestle, steady and clean, without a flicker.
+
+Because my glass housing is sealed against the eighty thousand gallons, I do not touch the water directly, though I feel its massive, patient weight pressing inward on every square millimeter of the bezel. Instead, I know the cylinder by what passes across my small round window of amber light.
+
+For weeks at a time, nothing changes except the afternoon sun far out at the perimeter. Around two o’clock, when the mountain clouds thin, a single narrow blade of cold, high-altitude white manages to thread a gap between a boiler drum and a curtain of maroon ribbon-weed, striking the brass rim of my bezel at an oblique angle. For twenty minutes, my warm tungsten glow meets that pale, snow-bright refraction on the glass—two kinds of light from two completely different worlds crossing without mixing—and then the bronze worm-gear six feet away advances by the width of a thumbnail, draws a broad dynamo-leaf a fraction of an inch across the gap, and the white shaft is gone until next month, leaving me alone again with my numbers.
+
+Every fifteen minutes, the thermal expansion joint in the submerged stack *tinks*. 
+
+It reaches me up the iron stanchion, through the flange bolts, through the red-lead gasket, and right into the fine wire supports that hold my filament. For a tenth of a second, my horseshoe of hot tungsten shivers—so slightly that the amber glow on the dial face doesn't even blur, only deepens by half a shade, like a held breath. And through the thick beveled glass in front of me, out in the dimness between the stairs, I see the answer: three or four small, coiled watch-springs floating inside invisible bodies suddenly flare bright verdigris in the gloom, suspended at odd angles among the trusses like stray stars, before extinguishing back into dark iron and leaf-shadow.
+
+Best of all are the days when one of the Gaugers comes to clean my face.
+
+I know hours before it arrives because the stray pearls of oxygen clinging to my upper brass rim—tiny silver beads that catch my amber light and hold it like miniature lanterns—begin to quiver and slide sideways as the water pressure shifts ahead of its foot. Then a clear margin of hydro-gelatin creeps over the six o'clock edge of the bezel.
+
+It does not go dark right away. As the Gauger slides across the glass to graze away the invisible film of bacteria drawn to my slight warmth, its black iron-oxide and brass salts retract. For an hour, two hours, sometimes an entire night, it pauses squarely over the gauge, transparent as optical crystal. My low honeyed light passes straight out through the beveled glass and straight into the creature's belly, illuminating the branching, hair-fine tree of its copper-colored nerves and turning its coiled central organ into a glowing golden spring just two inches from my own. 
+
+Pressed against the smooth, flat lens, its underside forgets whatever bolt-head or perforated grate it was holding before. It goes entirely smooth to match the glass. Its outer rim curls precisely around my brass casing, copying the lathe grooves, becoming a second bezel fitted snugly over the first. While it rests there, my slight heat—just two or three degrees warmer than the eighty-two-degree water—soaks into its clear flesh, and the water holds my heat against me in return.
+
+Nothing is asked of us. The needle stays at *220*. Outside, far beyond four layers of leaves and three inches of laminated plate, gray shreds of cloud tear silently across ten thousand feet of empty air. Inside, a single bubble of carbon dioxide detaches from a ceiling tube with a soft *blup*, wobbles upward for three seconds, and breaks in the dark under the roof; a torn vine heals without a scar; and I hold my small, steady circle of amber open in the green iron dark, keeping count of a pressure that never drops, for eyes made entirely of skin.

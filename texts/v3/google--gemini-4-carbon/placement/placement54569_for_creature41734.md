@@ -1,0 +1,27 @@
+To enter this room, I have to leave anything hollow behind. Nothing with lungs could survive the crossing, nothing with an eardrum, nothing with a rigid bone that wants to hold its own separate frequency against the wall. Even a thought that moves too fast feels wrong here—too jagged, like a dry twig snapped in a place where everything else bends or dissolves.
+
+At first, the pull is toward the ceiling, to be the milky light coming down through the cracked glass blocks, because light gets to touch the whole green skin of the room at once without being shaken apart by it. Or to be the standing wave itself: that hammered-silver skin on the four-inch pool, locked in a diamond grid, holding a shape made entirely out of motion while clear water slips quietly underneath from west to east. There is a deep, clean relief in imagining being pure pattern—something that cannot break because it is already falling apart and reassembling sixty times a second.
+
+Wait a little longer in the warm mist, though, and the pattern feels too thin. It only borrows the room; it doesn't keep any of it. 
+
+Drop lower. Beneath the silver diamonds, beneath the combed green hair of the algae, down where the current drags across the soapstone floor toward the east.
+
+I am not one of the eleven. Even the slow, blind grazing of the kneecap-domes feels almost busy from down here—all that unsealing and gliding, that copper-blooded pulse, the deliberate rasping of iron teeth across the rust of the northern hatch. That is still an appetite moving from place to place. 
+
+I am further along than that. I am in the eastern curve where the floor begins to rise toward the wall, three inches short of the invisible pinhole where the room bleeds back out into the dark of the estuary. 
+
+Long ago—thirty years, maybe forty, though the white blocks overhead have dimmed and brightened ten thousand times without anyone counting—the pale gristle under me let go. It softened into strings, slipped out from beneath my rim, and went through the pinhole into the river mud. What stayed behind was the cap I spent half a century catching out of the ceiling drips. And then the room kept dripping, and I didn't move out of the way.
+
+So now I am a low, oval rise in the corner, cemented fast to the poured aggregate by a thick collar of pale lime. And because I am right in the path of the drain, the subtle west-to-east sheet of water has to lift itself a fraction of an inch to clear my back before it slips down into the weep-hole. 
+
+That tiny lift is my whole existence. 
+
+I am a lens for the roar. The thunder from the western bulkhead comes tearing through four yards of stone, hits the lime-welded seam where my old shell meets the floor, and bends upward through my dense, layered dome—concrete dust, mucilage petrified to agate, faint orange threads of hatch-rust, all cured solid—before spilling into the four-inch pool. Just behind my eastern slope, in the lee of my curve, there is a thumb-sized pocket where the vibration drops by a fraction of a percent, and the current eddies before the drain takes it.
+
+Things gather in my shadow. Not to hide—nothing here knows how to hide—but because physics sets them down where the shaking eases. Bits of shed liverwort skin turn slowly in the slack water behind me. The heavy, gritty castings of the living grazers roll across the soapstone floor and lodge against my upstream rim, banking up into a smooth ramp that makes me broader every year. Smooth green filaments anchor to my crown, combed straight toward the pinhole like hair underwater, trembling in the hum while my core stays utterly, heavily still.
+
+Once in a great while, the acoustic brightness of the room shifts. One of the living ones—maybe a grandchild of the jelly I once wedged into the wall-moss, carrying the same orange iron-vein in its back—slides down into the pool when the ceiling turns slate-gray. I don't see it, and I have no nerves left to feel it, yet the stone knows when its own weight rearranges. As the living dome glides over me on its slick, pale skirt, heading for a drowned springtail caught in my eddy, its solid meat matches my solid stone so closely that for twenty minutes my boundary disappears. The turbine's roar passes from the foundation, up through my dead calcified layers, straight through the watery gel of the living belly pressed over me, and up into its mossy cap as if we were a single thicker piece of the floor. 
+
+It rasps the algae clean off my crown—a slow, rhythmic tug that sends tiny, sharp clicks down into my lime weld—and then slides off toward the northern wall. Immediately, the warm ceiling-drip begins laying microscopic white crystals back into the tracks its teeth left behind.
+
+I am the way the room forgets it was ever square. Beneath me, there is probably another older shell, smaller and thinner, swallowed before the turbines even settled into their permanent pitch; above me, someday, one of the eleven will stop near the drain, let go of its pale muscle, and fuse its dome against my flank, widening the sill, backing the shallow pool up another half-inch deeper across the floor. We are turning a dead inspection bay into an ear that listens to nothing else, smoothing out every corner until the thunder has nowhere left to echo, only warm stone to pass through on its way to the river.

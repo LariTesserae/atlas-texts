@@ -1,0 +1,49 @@
+To find what truly rules the basin, you have to stop watching the open water and look down into the seams. 
+
+Between those house-sized blocks of granite and basalt, where the mortarless joints have been scoured open to widths of a handspan or a yard, the lake disappears into a second, darker architecture. The surface plazas are merely the roof of a vast sub-foundation—miles of inspection shafts, pressure-relief culverts, and deep drainage vaults built by the forgotten masons to keep the mountain’s weight from buckling their floors. That under-grid is still down there, choked in places by centuries of pale stone grit, blasted clean in others by the deep thermal vents.
+
+What lives down there—and comes up into the pewter twilight when the currents suit them—are the things that have learned to treat the shifting masonry not as scenery, but as a mechanism.
+
+At first glance, hanging flat against the side of a drowned bastion, one of them looks like nothing more than a draped pelt of wet, slate-gray leather, or perhaps a shadow cast by an overhanging lintel. They are broad, low-slung, and entirely boneless—not soft like a jellyfish, which would be torn to ribbons in seconds by the shearing gyres, but dense and tremendously tough, composed of solid, cross-hatched sheets of white muscle and flexible gristle, like the foot of a monstrous snail wedged into the shape of a flattened, six-limbed seal. Fully extended, a large one is longer than a skiff, though rarely thicker than a man’s thigh. 
+
+They have no eyes for the dimness to starve, and no ears to be deafened by the sudden booming shifts of two-ton blocks. Instead, their thick, rubbery hides are pitted along the flanks with rows of deep, pale-rimmed sensory cups. Through these, they feel the water’s tension. To them, the gin-clear lake is not empty space; it is a tightly packed, shifting forest of pressure-walls, thermal ribbons, and vibrating shear-planes. They can feel the subtle tremble of a balanced slab half a mile off before it tips, and read the exact spin of a forming six-yard whirlpool by the way its outer skin tugs at their flanks.
+
+Watch a masonry joint at the edge of an empty forum right after a violent downdraft collapses. For three or four minutes, the water goes slack. Out of the dark slot between two cyclopean cobbles slides a thick, tapered limb—pale underneath, dark basalt-gray on top—ending not in claws, which would snap on the slick stone, but in a broad, muscular pad ribbed with stiff, horny lamellae, like the underside of a gecko’s foot crossed with a limpet’s suction ring. 
+
+The limb presses against the polished granite, locks down with hydraulic force, and hauls the rest of the body out into the open.
+
+Up close, their strangeness sharpens. What serves as a head is merely the heaviest, bluntest end of the torso, armored on top with a low, smooth dome of calcified cartilage—grown thick and polished slick from ages of glancing impacts against runaway gravel and stone ribs. Underneath this prow sits a wide, crescent-shaped slit that conceals a terrifyingly hard, three-part beak made of dark, iron-rich chitin, the same rust-black mineral compound left behind by the bacteria in the leeward hollows. They have no lungs and no cavernous gill-slits to get packed with scouring grit; instead, trailing from their rear quarters is a thick, heavy skirt of leathery, blood-dark fronds. When the animal locks itself onto the edge of a torrent, it lets this heavy fringe stream out behind it into the frigid, racing current, drinking the thin highland oxygen straight through the skin while the rest of its body hugs the quiet boundary layer hugging the stone.
+
+In this cold, high world where nothing rots and calories are fiercely scarce, they cannot afford to swim against the storm of glass. Swimming costs heat; fighting the lake means freezing to death. Yet they are warm—not hot like the slate-colored diving birds above, but stubbornly, densely tepid, hoarding a slow metabolic fire behind three inches of firm, rubbery blubber, supplemented by periodic retreats down into the deep, dark culverts where the invisible thermal springs vent their gentle warmth.
+
+Up on the open plazas, they move like heavy, wet cloth blown across ice, alternating between absolute stillness and terrifying speed. 
+
+One will crawl slowly up the hourglass waist of a worn pillar, six Suction-pads marching in deliberate, rippling sequence, hugging the stone so tightly that a sudden sideways blast of water—strong enough to tear a man’s arms from their sockets—passes right over its beveled back without lifting an edge. When it reaches the smoothed crown of the pillar, it waits, sensory pits flaring slightly, tasting the chaotic geometry of the currents. 
+
+A quarter-mile upstream, a heavy school of blind pewter-fish loses its dead-zone and tumbles backward in a silent silver cascade. At the same moment, a diving bird shoots down a spinning vortex after them. 
+
+The creature on the pillar doesn't swim toward them. It simply releases five of its pads, pivots on the sixth, and pitches its flat, heavy body edge-on into a passing shear-current. Instantly, it goes from stone-still to forty miles an hour. Rigidifying its muscular margin into a hydrofoil, it slices diagonally across the drowned amphitheater, banking hard off the upwelling over a ruined wall, completely silent, faster than the plummeting bird. 
+
+It intercepts the bird or the fish mid-tumble, wrapping all six thick limbs around the prey in a sudden, crushing basket-weave of gray muscle. Locked into a tight, streamlined ball to survive the turbulence, it lets the rogue current hurl both of them across half a mile of bare pavement until they slam into the leeward trough of a sunken courtyard. What would pulp a boned creature barely bruises this rolling mass of gristle and blubber. Down in the momentary quiet of the trench, the three-part beak goes to work, shearing through grease-coated feathers, slate-dark skin, and hollow bone with muffled, wet crunches, leaving nothing for the stilt-legged crabs except a thin mist of dark blood that is instantly snatched away and diluted to nothing by the passing gale.
+
+Yet if they were merely solitary ambush-gliders, they would be no different from the giant leech-rays or the snapping wall-worms. What makes the basin truly theirs—what makes a watcher standing on the foggy rim slowly realize there is a cold, patient mind down in the gin-clear gloom—is what they do to the architecture.
+
+Because the ancient hydraulic maze is worn out of true, the currents are constantly changing. A collapsing arch ruins a prime hunting eddy; a shifting slab chokes a warm thermal vent with tons of pale gravel. Over uncounted generations, these creatures have learned that the storm of glass obeys the stone, and the stone, under fifty feet of buoyant water and hurricane pressure, wants very little persuasion to move.
+
+If you look closely at those precarious two-ton lintels balanced on rounded fulcrums, or the smoothed granite slabs sitting at the tops of undulating ramp-stairways, you will begin to notice that they do not tip entirely at random. 
+
+Down in the pewter dimness, three or four of these heavy, six-limbed shapes will gather at the base of a balanced block. They do not touch each other in affection, nor do they make any sound; they communicate by slapping a flat limb sharply against the pavement—*thock, thock*—sending crisp, percussive shudders through the laid masonry to others clinging fifty yards away. 
+
+They wedge their flat, beveled prows into the smoothed groove beneath a multi-ton cobble. They lock their rear pads into the floor seams. They wait—for ten minutes, an hour, half a winter day—motionless as basalt, reading the shifting pressures of the basin through their pitted flanks. 
+
+Then, a massive subsurface gyre collapses upstream, sending a silent, invisible wall of high-pressure water surging across the forum. Just as that liquid battering ram shoulders under the balanced lip of the granite block, all four creatures swell their muscular bodies at once and heave upward with hydraulic violence. 
+
+They don't lift the stone; the lake lifts it. They merely give the water the half-inch bite it needs. 
+
+With a deep, directionless *boom* that shudders up through the soles of anyone standing on the distant shore, the house-sized slab tips off its fulcrum, slides down the smoothed chute of an ancient stairway, and crashes across the mouth of a trench. 
+
+Instantly, the local hydraulics tear themselves apart and reassemble. A raging scour-zone goes dead calm. A stagnant plaza becomes a furious, spinning funnel that drags hundreds of dinner-plate crustaceans right off their grooves and flings them, tumbling helplessly, straight past a row of drainage slits—where six more gray, leathery shapes are already locked down in the stone seams, beaks parted, waiting for the harvest they just engineered.
+
+Down in the deepest, unlit vaults beneath the lowest flagstones, where the thermal vents keep the water fifty degrees warmer than the freezing surface smear, they have whole nurseries walled off with deliberately wedged cobbles—baffled chambers where the furious mountain torrents are tamed into gentle, warm spirals. There, pale, translucent young the size of a man's hand cling like soft lichens to the underside of cyclopean roofs, practicing letting go in tiny eddies and catching the next seam three inches away, growing tough and dense in the dark. 
+
+Above them, through eighty feet of flawless, churning liquid glass, the ancient city continues to wear away—inch by inch, century by century—slowly dismantled and rearranged in near-total silence by blind, patient masons of gristle and beak, who have no idea what men once built this valley for, knowing only how to turn a ruined monument into a permanent trap.

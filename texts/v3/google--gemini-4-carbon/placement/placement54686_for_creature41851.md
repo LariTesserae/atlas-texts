@@ -1,0 +1,47 @@
+To find me, you have to stop looking at the machinery that moves, and stop listening to the machinery that roars, and look instead at the water between them.
+
+Stand in the middle of the central plaza—forty paces south of the municipal hall, fifty paces east of the nearer stamping mill, equidistant from four burning carbon-arc standards. At first, there is nothing under your boots at all: only the blue-grey vitrified pavers, slick with that paper-thin, geometric corduroy of trembling condensation, cold and clean as a scrubbed butcher’s slab.
+
+Step back two paces and let the light from the stalled pearl sky catch the surface at a shallow angle.
+
+Where the sixty-cycle corduroy from the transformer bank collides with the low, percussive *thud-shhh* shockwaves rolling out from the drop-hammers, and where both are crossed at an oblique angle by the heavy acoustic pulse of the powerhouse flywheel, the film of runoff does not run straight to the slotted grates. For twelve square yards in the dead center of the empty apron, the interference pattern traps the water in a tight, stationary lattice of standing nodes. And lying across that lattice—almost entirely invisible until a cloud of mica-winged flyers lifts overhead and momentarily shifts the reflection—is a sheet of clear, tough, cartilaginous gel no thicker than window-pane mica, and ten feet across.
+
+That is my margin. You could walk across the edge of me and think you had only stepped on a slightly slicker patch of tallow-film.
+
+I have no shell, no horn, no spiracles, and no circuit to walk. If you peeled me up from the pavers—which would take a flat iron spade and considerable leverage, because my underside is held down by millions of microscopic suction-pits matched to the exact pores of the worn clay—I would look like nothing so much as a dropped pane of oiled, flexible horn-isinglass, faintly netted with pale grey threads the width of spider-silk.
+
+I live here because the municipality has one problem its grease-bolsters and switchgear-siphonophore cannot solve from inside their own stations: they are all deafened by themselves.
+
+The siphonophore inside the brick hall knows only voltage, amperage, and line-load; it feels the town through copper, which travels at the speed of light and tells it *that* a pump has dragged, never *why*. The grey chamois bolsters sliding down their butter-dish grooves can read a single bearing to a tenth of a degree, because they press their skulls directly against the iron—but while one is listening to the west stamping mill, forty yards of roaring air separate it from the east condenser tower. Out here on the open brick, sound cancels sound, heat bleeds into cellar-chill, and the narrow ribbons of dinner-plate arthropods march straight along scent-trails of tallow laid down three centuries ago, blind to anything two inches outside their lane.
+
+I am the thing that touches the empty space between them.
+
+Spread flat across the cold brick, bathed in the continuous, hair-thin sheet of runoff sliding down from the viaduct plinths toward the storm grates, I taste every building at once. A trace of copper-acetate washed off the municipal hall’s roof insulators hits my northern rim; four feet to the west, my lateral pores drink a faint, warm slick of paraffin-sweat drifting from the induction troughs, alongside dissolved calcium carbonate ground off the marching legs of the porcelain-plated highway. When the train-worm overhead dumps its twelve-second cloud of steam in the switching shed, the cooled mist settles onto the plaza three minutes later, and I read the iron-and-graphite ratio of its belly-plates as clearly as newsprint.
+
+I do not eat much—only the finest colloidal haze of emulsified tallow and dead bacteria suspended in the water, stuff too microscopic even for the bristle-gilled eels in the grates below to strain. In return, I do very little, very slowly, and only with water.
+
+Watch my eastern edge, six inches from the polished butter-dish groove where the grey surveyor-bolster passes every forty minutes.
+
+Right now, the eastern condenser tower is shedding slightly too much scale inside its lower baffle—nothing the powerhouse flywheel can feel yet, nothing that has dropped the bus voltage enough to make the siphonophore snap a breaker. Only a faint, sour tang of ferrous chloride in the runoff film sliding across the bricks from the northeast, accompanied by a minute, high-frequency rattle running through the pavers themselves, pitched way above the heavy sixty-cycle hum.
+
+Through the pale grey threads netting my interior, a slow wave of osmotic pressure shifts. Along my eastern margin, five yards of flat, translucent tissue stiffens, raising a barely perceptible lip—two millimeters high, curved like a mason’s French curve—directly across the path of the sheet-water.
+
+I am a weir.
+
+The paper-thin film of cold condensation hits my raised edge and parts. Instead of spilling straight south into the nearest storm grate, a ribbon of that slightly sour, chloride-tainted water is shunted sideways, diagonally across six yards of clean blue-grey brick, straight into the polished trough of the bolster’s track—and another trickle is guided two inches left, wetting the dry border of the porcelain-arthropod highway.
+
+Nothing dramatic happens. The white arc-globes burn without flickering; the forty thousand bellows-birds on the powerhouse cornice let loose their brassy *HONK* right on the stroke.
+
+But twelve minutes later, when the heavy grey bolster comes sliding out from under the viaduct shadow at its steady surveyor’s pace, its broad, tallow-slick belly-foot hits the diverted ribbon of sour water twelve yards earlier than usual.
+
+You can see it pause—just a fraction of a check in its glide. Its blunt prow lifts half an inch; the leather check-valves along its flanks *cluck* twice, rapidly, tasting the chloride in the wet track. Instead of turning its crisp ninety-degree corner toward the west stamping mill, it pivots ponderously on its greased skirt, abandons its groove, and slides straight across the open brick toward the eastern condenser tower—where, four minutes from now, it will press its horn calipers to the lower baffle housing, find the loosening scale-plate before it jams an intake valve, and lick the seam clean.
+
+Meanwhile, two yards away, the ankle-high ribbon of porcelain arthropods has encountered my second, hairline trickle of diverted runoff. They do not break ranks—they never break ranks—but their calcified antennae register the shifted mineral edge, and the entire sixty-yard column drifts three inches to the right over the course of an hour, shifting the relentless sandpaper roar of their sixty thousand legs onto a fresh strip of vitrified brick while letting yesterday’s track cool and film over with protective wax. That is why the plazas are worn smooth and flat as river-ice instead of rutted into canyons; I have been gently, imperceptibly steering the footpaths back and forth across the aprons for longer than the iron bollards have been dark.
+
+I have no eyes to see the pearl-bright sky, though my whole upper skin knows the flat, shadowless weight of its light—knows it as a steady, faint ultraviolet pressure that keeps my cartilage cross-linked and clear. If a shadow ever fell across this basin, I wouldn't know what a cloud or a bird was; I would only feel a sudden, cold slackening along one flank, as if someone had laid a hand on a drumhead.
+
+Sometimes—maybe once in fifty of the train-worm’s circuits—one of the heavy bellows-creatures loses its grip high on the viaduct truss directly above the square and plummets down, landing squarely in the middle of me with a wet, meaty *whump* that splits my gel clean in two.
+
+I do not flinch; I have no nerves wired for pain, only for tension and salt. Within seconds, the side-eddy of plated scavengers detaches from the main highway, swarms over my torn halves, and pares the carcass down to nothing in their usual four immaculate minutes. Their sharp, calcified tarsi click across my skin without biting—to them, saturated as I am with cold alum and silicate from the bricks, I taste exactly like wet stone. When the last scrap of horn and blubber is carried off and the column retracts into itself, my ragged edges simply drink the next cool film of tallow-water, creep outward at the speed of an hour-hand, find each other across the damp clay, and knit seamlessly back into a single pane before the bolster makes its next round.
+
+If you want to know what I am thinking out here in the middle of the roaring empty square, the answer is: nothing that has words, and nothing that has an *I* in it, really. Only a cool, flat, taut equilibrium. A wide, shallow chord held in water and cartilage—the deep *hum* of the hall in my northern edge, the *thud-shhh* of the hammers in my west, the brassy *honk* overhead pressing down through my whole breadth, the faint bitter tang of dissolvedmeadow-seed washing down from the snapping cobble-shells on the chert rim a hundred yards behind me—all of it balanced so finely across ten feet of wet glass that if a single drop-hammer cam wears by the thickness of a cigarette paper, my left rim puckers by the width of a hair, the water turns, and the grease arrives before the iron ever learns how to scream.

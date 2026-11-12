@@ -1,0 +1,51 @@
+A lesser kindness would make a ruin of them in an afternoon.
+
+To widen the chimney and let the sun pour in would dry the sweating rock, kill the biofilm, scatter the ten thousand clicking birds, and turn a working womb of stone into a drafty, freezing tomb. To thicken the air with sudden lowland breath would wake their metabolism faster than their food could grow, turning patient, gentle hands frantic with new hunger and unfamiliar rage. To give them fire in a bell of ammonia and dry down would suffocate them in ten breaths; to lift them down the mountain into green valleys would crush them under atmospheric weight and drown their thick, slow-moving blood in plagues their clean, cold peaks have never brewed.
+
+A wise power looks into the dark throat of the parasitic cone and sees at once that these beings are not waiting to be rescued. They are not fallen, and they are not wretched. That double squeeze upon a greasy wrist in the pitch black—*Here. Still here*—is already a cathedral. The three-hundred-year-old dimple in the green river-cobble is already scripture. Their slow, somatic peace, bought at such immense evolutionary cost, is a masterpiece of quiet endurance that deserves reverence, not correction.
+
+And yet, looking not only through the basalt lip, but *down* through six miles of cooling crust and *out* across five thousand years of shifting ice, the Watcher sees the real enemies—the silent, stupid erasures against which no patience and no stone chopper can prevail.
+
+First: three miles beneath the phosphorite floor, the old magmatic root that warms the mountain’s breath is slowly calcifying its own plumbing. Left alone, in four hundred years a mineral plug will seal the main deep fissure. The blood-warm draft will falter over three winters, the condensation will freeze solid on the walls, and the seventh great-granddaughter of the infant now sleeping in the center of the knot will simply stop waking up, holding a cold green stone in a dead room.
+
+Second: the cruel, blind lottery of the ridges. Fifteen miles away across the anoxic shale desert, in two sister-chimneys tucked beneath neighboring peaks, sit two other small troops—eleven individuals in one, five in another. Without the young males who stagger across the black noon scree carrying nodules of flint and new blood, the three tiny islands of life will slowly curl inward into genetic exhaustion, bone-rot, and barrenness. Right now, four out of five who make that crossing lose the faint thread of ammonia on the hurricane winds, wander half a mile off the saddle, sit down behind a boulder to catch a breath that isn't there, and sublime into mummies over the next century.
+
+Third: the stones themselves are wearing down. Every century, a basalt core is flaked until nothing remains but thumb-sized grit; every few generations, an heirloom anvil develops a hairline frost-crack from its ancient journey and splits under a heavy blow.
+
+So the power acts—not from the sky, never with a voice or a light, and never fast enough to startle a creature whose heart beats twenty-eight times a minute. It works in the only language this place trusts: stone, heat, salt, and geological patience.
+
+Miles below the cave, where no eye will ever see, a thumb of quiet pressure leans against the deep plutonic rock. Silicate veins that were choking shut with quartz and calcite are eased open by the width of a hair, and a secondary thermal siphon is married to a vast, stable batholith deeper down. At the surface, nothing bursts, nothing hisses. Only this: the hairline fractures in the phosphorite floor will not go cold in four hundred years, nor in forty thousand. The warm, iron-smelling exhalation is quietly underwritten for an epoch.
+
+Next, fifty feet below the sleeping shelf, deep inside the ancient, mineralized guano-rock where water has percolated for millennia, slow chemistry is nudged. Along a single seam where warm seepage creeps out near the cave floor—just above the carpet of grease-black beetles, within easy reach of a climbing juvenile—trace veins of magnesium, iodine, and complex sodium salts are coaxed to leach upward through the porous andesite, blooming on a dry boss of wall-rock as a faint, greasy white rime.
+
+Three days later, the frostbitten male climbs down to retrieve a dropped bone pick. His wide, ridged knuckles brush the damp wall; out of old habit, he licks the condensation from the back of his hand, and freezes for ten full seconds. His purple tongue darts out and tastes the stone directly. Not just ammonia and chalk—the deep, singing tang of the high shale salt-pans, right here in the warm dark. They will still have to leave when the blood-restlessness calls a young one to find another cave, or when the hunger for tough lichen fiber takes them, for a sheltered cage softens the mind. But no nursing mother will ever lose her milk because a blizzard sealed the outer lip for six weeks in midwinter.
+
+Then the power turns its attention to the killing ridges outside.
+
+It does not flatten the mountain or warm the dead sky; if the passes became easy, lowlanders—wolves, bears, swift, violent cousins with hot blood and loud voices—would eventually climb up and slaughter the slow sleepers in an hour. The twenty-two-thousand-foot moat of thin black air must stay right where it is, guarding them.
+
+Instead, along the fifteen-mile knife-edge linking this cone to its distant sisters, the rock itself is quietly edited. Every half-mile along the safest, least wind-scoured contour of the saddle, deep beneath the dead shale, tiny hairline fumaroles—no wider than a man’s wrist, far too narrow to support birds or snails, useless to anything else—are coaxed open from the same deep heat-web below.
+
+Each vents just a teacup’s breath of warm, moist sulfurous vapor an hour into the lee of an overhanging boulder. Where that faint plume kisses the freezing rock, two things happen: a small, sheltered hollow stays twenty degrees warmer than the lethal wind, and a patch of bright, rust-orange iron bacteria and rubbery frost-lichen crusts the stone around it, drinking the steam.
+
+Two years from now, when the four-year-old juvenile—grown heavier, broader across the ribs, feeling the strange, nameless ache in his groin that makes the familiar shelf feel too small—packs his belly with marrow, coats his slate skin in tallow, tucks a spare basalt flake into the fold of his groin, and steps four paces out into the black noon sky, he will not walk blind into an empty moonscape. Half a mile out, just as the cold begins to thicken his blood and dim the edges of his dark eyes, his cavernous nose will catch a tiny, unmistakable ribbon of wet iron and sulfur right ahead. Behind a windbreak boulder, he will find a fist-sized vent breathing warmth straight against his freezing belly. He will tuck his chin between his knees, press his frost-numbed fingers to the warm slit in the shale, chew a mouthful of salt-rich orange crust, sleep safely for an hour without his lungs frosting, and wake to smell the next faint plume half a mile further along the spine.
+
+What was a four-in-five death sentence becomes a hard, sacred pilgrimage—a string of warm beads laid across the roof of the world, tying three lonely families into a durable people without ever crowding their shelves.
+
+Finally, the Watcher looks back into the roaring, clicking dark of the chamber, right at the old female’s relaxed hand resting on the green river-cobble.
+
+Good tool-stone does not belong at twenty-two thousand feet; the volcano made porous scoria, crumbly ash, and brittle surface basalt, while the dense, singing stones—jadeite, nephrite, true glassy obsidian, heavy iron-rich jasper—lie buried thousands of feet down in the glacial valleys where the primates can barely survive the trek.
+
+Halfway between the basalt entrance lip and the first new warm-vent on the ridge, an ancient lateral moraine clings to the peak’s shoulder, frozen solid since the last great ice high-stand. Deep inside that locked gravel sits a pocket of boulders plucked miles away from a primeval riverbed and carried upward by vanished ice, buried six feet under dead scree where no frostbitten hand could ever dig long enough to find them.
+
+Over six quiet months of freeze and thaw, ice-lenses are nudged beneath that buried pocket. Frost-heave—silent, patient, obeying every law of physics—levers three dozen cobbles slowly upward through the shale until they break the surface in a sheltered hollow fifty yards outside the cave mouth, brushed clean by the thin wind.
+
+There are fist-sized nodules of flawless, midnight-black mahogany obsidian that will flake to an edge sharper than surgical steel at a touch of bone; heavy, water-rolled loaves of dense green nephrite tougher than any anvil on their shelf; and one curious stone the size of a coconut—dark, meteoric iron-stone, heavy as lead, pitted like a thumbprint, ringing with a clear, high silver note when struck.
+
+The power leaves them lying in the frost, unannounced, waiting for the next salt-foray.
+
+Nothing else. Not a whisper inside their skulls, not a dream of golden cities, not a spark to burn their fingers. Just four hundred centuries of guaranteed warmth beneath their haunches, salt on the lower wall, breathing-stones across the deadly pass, and fresh heirlooms waiting fifty paces out in the snow.
+
+Inside the cone, the quarter-hour passes.
+
+The old female’s breathing lengthens into the deep, shared five-second tide of the shelf. *Hhhhhh-uh.* Her thick fingers slacken slightly against the warm dimple of the three-hundred-year-old cobble. High overhead, water gathers on a smooth boss of dark andesite, swells, hangs in the roaring dark, and falls—*slap*—into its basin. Three miles down, the earth settles into a deeper, steadier warmth; fifty yards outside under the wheeling stars, a seam of black glass gleams faintly in the dead shale, waiting for a broad, calloused hand to come out, roll it once across a ridged palm, recognize what it is, and carry it home into the dark.

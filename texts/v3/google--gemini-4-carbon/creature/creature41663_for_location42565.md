@@ -1,0 +1,67 @@
+To see them while the sun is high, you must pass through the unshuttered doorway of one of the square basalt houses and let your eyes adjust to the cool, green-tinted gloom beneath the reed-thatch.
+
+The interior of a dwelling here is scarcely drier than the plaza outside, and by design. There are no raised hearths, no ash-pits, no dry lofts. Instead, the center of every room drops down a single chiseled step into a broad, flat-bottomed pan fed directly by one of the four-inch channels coming in under the threshold. A millimeter of clear water slides perpetually across the floor slabs before slipping out a corresponding notch under the rear wall.
+
+Lying side by side in this shallow, moving sheet are three or four massive, heavy-limbed figures, utterly still.
+
+At first glance they look like carvings of river-worn slate left to soak so the stone won't crack. They are broadly humanoid in proportion, though thicker through the chest and pelvis, built with the dense, low-slung gravity of creatures meant to haul deadweight across slick rock without losing their footing. Their skin is completely hairless, smooth and taut as wet kidskin, mottled in shades of charcoal, pale ash, and the faint olive-gray of submerged tuff. Under that high, merciless sky outside, skin like this—thin, permeable, constantly respiring—would blister and desiccate within two hours despite the humidity. The direct ultraviolet glare off the wet black mirrors of the plazas is a quiet, invisible furnace to them. So while the basin glints in its afternoon brightness, the whole town sleeps on its stone floors, breathing largely through its skin.
+
+If you watch one closely in the dimness, you won't even see the rise and fall of ribs. Their daytime torpor drops their metabolism to a crawl. Only the slow, rhythmic flutter of a pale vascular fold just behind the jaw—drinking oxygen straight from the warm film of water sliding past their cheeks—gives them away as living flesh rather than dressed stone. Their eyes are shut behind double lids: a heavy outer fold of dark gray, and beneath it a translucent membrane veined with silver.
+
+Look around the room while they sleep, and the silence of the town begins to explain itself.
+
+There are no cooking pots because nothing here is burned. Smoke would foul the damp lining of their throats and coat the pores of their backs; fire is a lowland violence they have no use for and no way to feed on a drenched shelf. Stacked neatly on dry ledges along the walls are heavy, beveled mauls of greenstone bound to polished wood with shrunk rawhide—Wait. Not rawhide. Look closer at the bindings: they are woven and twisted from the cured, fibrous skins of the pale-stemmed cane, tightened with wooden wedges that swell permanently when wet. Nothing in the room comes from an animal. There are no bone needles, no horn spoons, no tallow, no shell. In a corner sits a low stone trough filled with bruised, glossy marsh-tubers and pale fern-hearts soaking in cold seep-water, softening slowly by fermentation rather than heat, giving off a clean, faintly sour smell like crushed sorrel and wet chalk.
+
+They are alone on this mountain in a way very few builders ever are.
+
+Whatever volcanic catastrophe raised this shelf—or whatever sour, mineral exhalation still breathes invisibly from the lower fumaroles into the cloud-belt below, forming an impassable chemical moat around the mountain's waist—spared the wind-borne spores of moss and fern, and spared the buoyant seeds of reed and cane, while barring every crawling, buzzing, and grazing thing from the lowlands. Or perhaps the builders themselves brought only the plants they wanted when they climbed up out of the clouds generations ago, scrubbing every root-ball clean in the mountain streams until they had made an immaculate, insectless garden on raw rock.
+
+Either way, the bargain of their lives is total: nothing eats their crops, nothing rots their timber from the inside out, no flies gather at their eyes, no predators prowl their doorsteps—and in return, they live in an acoustic vacuum where the only sound they will ever hear, beyond the drip of water, is the sound they make themselves.
+
+Wait until the light changes.
+
+Because the shelf faces out over an abyss of cloud, dusk does not creep across the land; the sun drops behind the higher volcanic peak at the town's back, and a cool blue shadow sweeps across the entire terraced basin in less than a minute. Instantly, the glare dies from the pools. The silver mirrors turn to dark pewter. From the cloud-sea thousands of feet below, the rising air thickens as the rock cools, turning from invisible humidity into drifting ribbons of warm white fog that curl over the cliff-edge and ghost across the fifty-pace plazas.
+
+Inside the dark doorways, water splashes.
+
+It is a heavy, deliberate sound—the *slap* of wide, unwebbed, suction-padded soles taking weight on wet stone.
+
+When they duck out beneath the low lintels and straighten up in the blue dusk, they stand nearly seven feet tall, though their posture has a slight, habitual forward cant from the hips, counterbalancing long, thick-boned arms and broad shoulders built for levering stone. Up close, in the mist, you can see that they are neither sluggish nor primitive. Their hands are extraordinary: four-fingered, wide-palmed, with flat, spatulate fingertips grooved in concentric whorls rough enough to grip wet, algae-slick basalt as if it were dry oak, yet nimble enough to split a marsh-reed into eight even ribbons with a thumbnail.
+
+Even awake, they make no vocal sound. Look at their heads—broad-skulled, smooth-browed, tapering to strong jaws—and you find no external ears at all, only smooth, taut drums of pale skin flush behind the cheekbones, and nostrils that can pinch wholly shut like a diver's. In a world without predators to warn against or rustling brush to listen to, speech through the air either never took hold among them or was abandoned long ago as an ugly, jarring waste of breath.
+
+Watch two of them meet at the intersection of the raised causeways.
+
+They walk completely unclad—cloth would only rot and chafe against respiring skin—carrying between them a long pry-bar of dense lowland ironwood and a basket of plaited cane filled with greenstone chisels. They do not wave or nod from fifty paces off. As they approach another pair coming up from the lower marsh-pans, all four pause where a four-inch water channel crosses the causeway through a sunken conduit. Each places one broad bare foot into the running groove.
+
+One of them shifts his weight, tapping his heel twice—barely a quarter-inch movement—against the submerged stone rim, sending a crisp, high-frequency shudder down the water-channel and through the tightly fitted dry-stone masonry beneath their soles. The others feel it instantly through the sensitive pads of their feet and the flush drums of their jaws. A silent exchange passes among them in tiny, damped percussions: a knuckle rapped softly against the greenstone maul at a hip, a toe-pad dragging a brief friction-squeak across wet basalt, the palm of one hand sliding over a forearm to indicate the pitch of a retaining wall down-slope. To an outsider standing ten feet away on a dry slab, nothing has happened at all; four dark, gleaming giants simply stood together in the mist for ten seconds while water ran over their ankles, and then parted ways.
+
+Now, in the fog-softened twilight, you see why the plazas are fifty paces wide and why the villages are spaced so far apart across the shelf.
+
+This town is not crowded because crowding makes the stone noisy.
+
+Every fitted slab in those wide, empty plazas, every straight basalt causeway, every crisp-edged four-inch gutter is part of a vast, resonant sounding-board. Dry-stacked without mortar, wedged tight under its own immense weight, the stone carries vibration with crystalline fidelity, while the shallow geometric pools act as acoustic baffles between one neighborhood and the next, keeping stray footsteps from muddying the grid. When someone three hundred yards away at the cliff-base sets a greenstone chisel against a weeping fracture and strikes it once with a wooden maul—*tock*—every worker kneeling in the reed-beds half a mile away feels the clean, single pulse travel down the retaining walls and through the water around their knees. They know by the pitch of the rock which cliff is being quarried; they know by the interval of the blows who is swinging the maul.
+
+They spend the dusk and the warm, cloud-lit night maintaining the equilibrium you saw in the afternoon.
+
+Out in the geometric basins, figures wade waist-deep among the glossy, broad-leafed plants without raising a single ripple noisy enough to slosh over the low stone rims. Moving with slow, fluid precision, they harvest every third tuber, pinch back every yellowing frond before it can drop and decay in the water, and lift handfuls of coarse black grit from the settling-traps in the gutters to pack around the roots of young cane. Nothing is allowed to clog a channel. If a pebble slips from the tuff cliff above and alters the whisper of a spillway by half a note, someone two terraces down feels the dissonance in the water-pulse, walks up the stairs with a wooden wedge, and clears it.
+
+Others work at the margins of the sprawl, expanding a city that does not seem to have enough citizens to fill what is already built.
+
+Watch three of them prizing a fresh rectangular slab of basalt from the cliff-foot. They have driven dry lowland-wood wedges into a hairline fracture the day before and channeled a trickle of cliff-seep over the wood; swollen with water overnight, the wedges have silently split two tons of young stone along a plane as flat as a table. Now, bracing their wide, grooved feet against the bedrock, muscles bunching smoothly under slick charcoal skin that gleams with exertion and mist, the three workers lean on ten-foot timber levers in unison. There is no shouted *one, two, three—heave!* Only the synchronized flexing of dark shoulders, a faint creak of peeled timber, and the deep, muffled *thud* as the block settles onto wooden rollers.
+
+Why keep building when half the square houses stand empty, clean, and swept by running water?
+
+Follow one of the solitary figures walking down toward the western edge of the shelf, where the terraced town stops short of the abyss and the clouds boil softly below in the starlight. Look at his skin: paler than the others, roughened at the shoulders and knees with fine, calcified plaques from decades of soaking in mineral-rich volcanic seep. As these people age, the dissolved silica and lime of the young mountain slowly deposit in their dense tissues; their joints stiffen, their dark mottling fades toward the pale gray of porous tuff, and the daytime torpor claims more and more of their hours.
+
+They do not bury their dead—there is no soil to dig—and they cannot burn them. And nothing scavenges here; a body left in the open under that sterile, humid warmth would neither be eaten by beetles nor scattered by crows, only slowly overgrown by emerald moss where it lay, fouling the pure runoff.
+
+Instead, when an elder grows too stiff to rise at dusk, their house becomes theirs alone.
+
+The water-channel entering under the threshold is carefully narrowed with a fitted stone plug until only the thinnest, cleanest thread of mineral-heavy seep slides across the floor pan. The doorway is dry-walled shut from the outside with dressed basalt blocks, stacked so tightly not a blade of light enters, leaving only the steep, algae-green thatch roof above and the whispering gutter below. Inside, in the permanent dark, cool water glides endlessly over the still figure, year after year, slowly sheathing silent flesh in a hard, smooth rind of travertine and black sinter until body and floor-slab are indistinguishable.
+
+Half the low, square dwellings across this wide basin are occupied in just that way. The town is not abandoned, nor was it built for a vanishings multitude; it is simply accumulating. Each generation quarries a new cluster of clean rooms a hundred paces further along the shelf, extending the straight basalt causeways and the four-inch channels outward across the marshy pans, linking the sleeping houses of the living to the sealed houses of the stone-bound in one unbroken, humming circuit of water.
+
+Hours before dawn, they gather briefly in one of the wide, empty plazas—twenty or thirty of them standing ten paces apart on the wet black slabs, facing the unseen drop-off. Mist curls around their calves. Together, slowly, they shift their weight from heel to toe, pressing their wide palms flat against the slick pavement, setting up a deep, sub-audible tremor in the stone shelf—a slow, communal resonance that makes the standing water in the surrounding basins shiver into tiny, geometric standing waves under the stars, without making a sound loud enough to wake a bird, if a bird had ever found its way up through the clouds.
+
+Then the eastern ridge pales. The first hard silver light strikes the upper cliff. One by one, leaving wet footprints that vanish into the general sheen within seconds, they duck back through the open doorways, lie down side by side in the four-inch flow, close both sets of eyelids, and give the town back to the sun and the water.

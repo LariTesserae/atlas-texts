@@ -1,0 +1,47 @@
+I am in the cold dark under a second-tier retaining wall, palm-flat against a wet header stone, listening with my wrists.
+
+Above my back—though *above* is only a change in weight, not light—there are three courses of split shale, a woven mat of dwarf willow root the thickness of my forearm, six inches of saturated peat, a runway of voles whose tiny heartbeats don't reach down through the moss, and then the open silver trough of the sky. None of the light gets in here except at the sill behind my heels, where two inches of canal water reflects a pale, greenish shimmer upward onto the underside of the lintel.
+
+My chest is resting against my knees. My coat hasn't been dry since I lost my milk-fleece, though my skin has never been wet; there is an eighth of an inch of trapped, body-warmed air held inside the dense wool next to my ribs, thirty-odd degrees of quiet animal weather sealed off from the thirty-six-degree water pooling around my ankles. When I shift my weight from left foot to right, no ripple strikes the wall. The oiled guard hairs part the water cleanly, without bubbles. I can smell the iron bleeding out of the young fault fifty yards west, and closer in, the sharp, peppery snap of bruised watercress where someone walked down-channel ten minutes ago and pinched the tops off a bed.
+
+What I am listening to is a stone that wants to turn.
+
+It is nine feet away and one story down, buried in the blind cheek of a cistern abutment where nobody can reach it without dismantling an entire char-nursery. Nobody needs to see it to know it is loose. All winter, predawn ice has been skinning the north pool above it, swelling by the breadth of a fingernail before midmorning, pushing against the top course, letting go, pushing again. Now, whenever the big spillway on the cliff-edge takes an extra sheet of seepage, a faint, sour shudder comes down the plumb-line—not a click, not yet, just a tiny drop in friction where two slate faces have allowed a film of silt between them. To my palms, which are ridged like coarse bark and pressed hard against the load-bearing seam, a sound wall feels dead and heavy, a single solid root of basalt going all the way down to the dropped floor of the world. This wall has a live hollow in its tooth.
+
+I let out a breath through my nose—slow, taking ten seconds so the mist doesn't cloud my eyes—and drop my chin until my throat touches my collarbone. I make the low note. Sixteen cycles a second, scarcely louder than water creeping under ice, rolled out from beneath the breastbone so it travels down my forearms straight into the course-work.
+
+For twenty heartbeats nothing comes back except the dead stop of the cliff talus behind us and the soft, spongy refusal of the sphagnum domes where two of my line-mates are sleeping off the bright midday. Then, through the wet flagstones under my soles, comes an answer: two short pulses from the terrace overhead, followed by the double-tap of a horn nail against a riser. *Wait.*
+
+I don't mind waiting. Fast things die quickly down here, or else they have to eat all day like the shrews in the sedge-roofs, shaking themselves to pieces just to stay hot. My heart beats once while an otter swims the length of the alley behind me. As she passes my rump, her whiskers brush the trailing *Usnea* behind my ear; she smells of fish-oil and old holt-mud, and doesn't bother tucking her chin away from my hand. It is early spring. Her ribs are narrow. In five months, when the angelica goes brown and her kits are fat on sculpin, one of us will drop the notched slate across her low door while the others stay clear, take one, wrap it in bog myrtle, and lift the slate again before the air goes bad in her den. Neither she nor I keep that in our heads right now. Right now she is only four pounds of displaced canal water sliding over my left foot.
+
+When the light at the threshold dims from pale silver to pewter, it means plain-fog has spilled over the eastern lip and is rolling chest-deep through the upper lanes. Good weather for climbing out. The glare off the wet shale always makes my inner lids ache by noon.
+
+I back out of the doorway on knuckles and heels, turning my shoulders edgewise through the jamb so I don't scrape the filming ferns—if you tear the curtain-moss off a lintel, the drip changes from a silent wick down the jamb to a steady *plink* into the threshold, and inside three days every passing heron knows where the char fry gather—and haul myself up the stepped buttress onto the third-tier walk.
+
+Up here the fog is thick and smells thinly of dry grass from the world above, an alien, dusty smell that disappears as soon as the cold moss drinks the vapor down. My line-elder is already kneeling beside the turf bund of the north cistern. You can barely tell her from the wall-head until she blinks her clear side-lid across one dark eye. Seven or eight winters of sitting still in the mist have given her a whole saddle of star-moss across her trapezius, tiny spore-capsules standing upright like green pins in the olive fur of her shoulders. Between her double-thumbs she holds a fresh wedge of black shale—picked this morning from the west scree, still sharp enough on its feathered edge to part skin if you gripped it wrong, never touched by frost-rot.
+
+Neither of us looks at the other's face. We look at the water line along the slate coping.
+
+It is off true by the thickness of two sedge-blades—lower on the left, riding high in the corner notch where the hidden stone below us has settled out of lock. If we let it go till autumn, the whole belly of the wall will bow two inches into the alley, the willow bindings will tear their white root-hairs before they've thickened to the wrist, and two hundredweight of cured char in the north cold-niches will take warm air and spoil.
+
+We don't pull the wall down. Pulling down is noisy, frantic work, the kind you only do after a cliff-fall drops a three-ton prism through a roof-vault. Instead, we change where the weight lives.
+
+She shifts left; I settle beside her, hip to heavy hip, sinking my broad heels into the wet peat until they hit the structural flags underneath. Together we reach down into the freezing cistern up to our armpits. The cold hits the thick fat of my forearms as nothing more than a clean tightening, clear and sharp as biting into a peeled silverweed root. Down in the dark silt at the base of the coping, our four thumbs find the two ends of a five-foot tie-slab laid there before I was born.
+
+My wrists lock. There is no jerk, no heave of breath. We just lean our low, heavy pelvises backward in unison and let hydraulic leverage come up from our thighs.
+
+Under the water, three courses down, rock grinds roughly for half an inch against rock—a gritty, granite groan swallowed completely by two feet of quiet pool—as we slide the submerged header three fingers toward the cliff. Immediately, the load splits differently through the blind masonry below. Through the soles of my hind feet I feel it happen: the loose stone nine feet down stops wanting to turn. Two neighboring plates bite down onto its flared shoulder, squeezing the silt-film out of the joint until raw black cleavage meets raw black cleavage and locks dead.
+
+My elder holds the strain with one arm while her right paw slips the fresh, razor-edged wedge down through the murky water and presses it home behind the shifted header with the flat heel of her palm. *Thud.* Not a sound for the air—a bone-thud that comes straight up our radii into our shoulders and tells us both that the wall will outlive us.
+
+We pull our arms out. Water sheets off our dark wool in three seconds flat, leaving only beads clinging to the green algae on our wrists. Already the disturbed silt in the cistern is settling back over the gravel; two finger-length char dart out from beneath an overhang to snap up the tiny red bloodworms shaken loose from the chink.
+
+She turns her flat crown slightly and touches the wet bridge of my nose with hers—cool leather against cool leather, a quick brush of stiff vibrissae—before lumbering off along the aqueduct spine to reset a fallen lemming-slate she heard drop twenty minutes ago.
+
+I stay on the terrace while the eastern fog finishes condensing into the bog myrtle.
+
+Halfway up the black cliff face, four hundred yards off, a seam of groundwater catches the clearing light and shines like peeled mica. Above it, right at the saw-toothed rim where our world stops and the dry, hot wind begins, a small flake of shale loosens from the young cornice, tumbles end over end down the stepped vertical sheer, bounces once in a bright puff of rock-dust, and lands flat among the ringing plates of the scree apron. *Clack.* The moss eats the sound before a feeding snipe ten paces below me even lifts its bill from the gutter.
+
+A good piece, from the ring of it. Flat-cleaved, dense, maybe eighty pounds, without a frost-crack in its belly. Later, when the light goes grey toward evening and the char stop rising, two of us will walk out past the burial buttresses where our grandmothers are holding back the talus, clamp our double-thumbs onto its sharp, wet edges, and bring it home to the water.
+
+For now I reach into the flooded gutter beside my knee, pinch off three pale, crisp sprigs of cress to grind slowly against my back teeth, and lay both wide hands flat on the freezing coping—just sitting, letting the moss on my shoulders drink the mist, feeling ten thousand quiet rooms hold their level all the way across the pit.

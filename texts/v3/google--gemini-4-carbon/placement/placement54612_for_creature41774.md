@@ -1,0 +1,81 @@
+My left molar is pressed against the brass-hard wood of my pike’s shaft, and through the bone of my jaw I can taste a boron-dry *twang* coming up from four miles down-rib. 
+
+It isn’t the dry tick. Not yet. It is the long, musical tightening of a sibling-span taking weight somewhere out past the fog-line, like a bowstring drawn by two giants who haven't decided whether to loose. Because of it, I don't pull my sled-brake. I stay crouched on my heels—never my tailbone, never flat—in the sixty-degree slant of a dead spur’s shadow, a slice of grey dark scarcely wider than my shoulders, and let my breathing drop until the frost stops forming on the rim of my chin-wrap.
+
+Behind me, forty paces back along the braided root-line, my sister’s boy gives one soft *tink* with his thumbnail against his copper belt-ring. He felt it too. *Wait,* the rope between our waists says, going slack by two inches, then taut, then slack.
+
+If you looked down from the hanging root-curtains half a mile overhead, you wouldn't find either of us. You would see only the pale, splintered groin where an old horizontal terrace—flint-hard now, dried to the color of skimmed milk—meets the steep, sweeping curve of an ascending buttress. You might see the charcoal mark I painted twenty minutes ago on a vertical shard as tall as a house: three slanted strokes for a three-person string, a hooked cross for *borer-hollow below*, and a long tail pointing up-cable toward the sweat-plume we’ve been stalking since yesterday’s sleep. The mark is the blackest thing within five miles. Everything else is white, cream, ice-green, and that furious, shadow-eating noon that pours out of the hairy ceiling and bounces straight back up off the timber until your eyeballs ache behind their wooden pinholes just from looking at your own boots.
+
+I am the one at the front of the string because my ankles are forty-two years old and crooked in the right way. 
+
+When I was nine, a translucent bridge curled out from under my father’s sled before it had finished stiffening, and my left foot went through the hot, sappy skin up to the calf before my mother hauled me clear by my harness. The wood scalded the meat off the shin and healed tight, pulling my heel half an inch off the flat. For three years I was slow; after that, I realized a foot that never rests squarely on its heel is a foot stretched like a drumhead. I feel the *greasy shudder* ten seconds before anyone with two sound legs, and I can tell the difference between the hollow *thrum* of a gallery chewed out by silica-grubs and the natural, vaulting *sigh* of two shells fusing around empty air.
+
+Right now, what I am waiting on isn't the bridge ahead. It’s the gaff-work beneath us.
+
+Thirty yards down the slope from my shadow-sliver, where two gigantic, ancient ribs lock together like interlocked fingers, there is a warm blister. You can't see heat in the glare, not until it hits forty below and flashes into steam, which this hasn't—the wood here is ten years old, thick as a hill, dead on the outside and flint-sharp where frost-spalling has peeled away shards the size of skiffs. Only when you take off your mitten and hold the raw back of your wrist half an inch from the seam do you catch it: a faint, sour breath leaking through a hairline fracture. Not the sweet, sharp wintergreen smell of fresh meristem surging up from the deep, which means water and shelter and bruised-bark porridge. This smells like warm tallow left in a horn cup, touched with vinegar.
+
+Borers. Four or five big ones, by the slow, wet *chock-chock* coming up my pike-shaft in between the long musical hums of the cable.
+
+My sister’s boy—his name is Kett, though on the rope he is just *Second*, and his mother eighty paces behind him with the heavy stone-sled is *Anchor*—wants the oil. Every string wants oil. Our grease-bladders are shrunk to wrinkled fists, our bast-quilts are stiffening at the elbows so they rasp like dry husks when we swing our adzes, and without oil to bind the pitch-soot around our eyes, the smear cracks in the cold and lets needle-pricks of white scatter slip under the visor rims. Two days of cracked soot and you start seeing blue rings around everything; four days and someone is leading you by a stick for the rest of your short life while you walk off ledges you can't see.
+
+More than the oil, though: this node has a name. Not a real name—nothing here keeps a shape long enough to own a proper noun—but three seasons back, or four, when our string was seven people instead of three, we crossed this same six-rib lock from the low side. My brother’s wife was laid into the third rib from the left, back when that rib was a steaming green trough scarcely wider than a sled-runner. 
+
+I looked up at it ten minutes ago, squinting through the tiny cross-slits of my heartwood visor until my lashes froze together at the corners. That trough is an arch two hundred feet overhead now, thickened into a pale, sweeping bone that carries half the eastern wall’s thrust out into the white haze. High up inside its translucent belly, where the actinic fuzz of the root-hairs makes the whole timber glow from within like sheep-horn held to a lamp, there is a dark, stretched smudge twenty feet long. The wood doesn't hold a body steady as it grows; it pulls what it swallows along the grain, drawing a person out into a faint, smoky ribbon of carbon and bone-shadow, until after five years an ancestor looks like a single black brushstroke inside an alabaster pillar.
+
+If those grubs finish hollowing the heel of this truss, that whole eastern arch is going to shear at the groin, drop four miles into the lower fog, and take twenty square miles of good tarsal-hunting terrace with it. Not that she cares—she is warm, which is more than any of us have been since last sleep—but you don't let blind fat eat the beam that holds your people up if you have a copper gaff on your sled and two hours before the cable-load shifts.
+
+I tap the shaft of my pike once with my thumb-ring. *Hold.* Then twice with the heel of my palm. *Unhook.*
+
+Out in the blinding cream expanse behind me, Kett’s dark-smeared face flickers as he leans forward to slip the toggle at his hip. If the shelf goes while I’m out on the blister, there’s no sense pulling a sixteen-year-old boy and four precious chert wedges down into the bright dark after a cripple-ankled uncle. 
+
+Stepping out of the shadow-sliver is like stepping into cold water that doesn't wet you. Instantly, the light hits from underneath—bouncing straight up off the white, splintered floor into the underside of my jaw, my nostrils, the tiny gaps where my visor ties meet my cheekbones. Everything loses its depth. A ridge of dry, flinty bark six inches high looks the same as a drop-off six hundred feet wide unless you watch how the frost-dust slides across it. I don't walk upright; I crab sideways down the thirty-degree pitch, ironwood pike trailing behind me like a third leg, its copper shoe hissing faintly over wood so dry and compressed it rings like slate.
+
+At the hairline crack, I kneel on one shin—keeping my crooked foot cocked on its toes—and slip my short bone-handled adze from my belt. I don't chop. Chopping dry heartwood is like chopping bottle-glass; a bad swing sends a razor-flake into your throat or, worse, chips your copper bit, and we are six weeks from any string rich enough to trade native ore. Instead, I lay the flat of my ear-guard against the pike, listen until two *chock-chocks* overlap inside the wall, and find the spot where the timber’s outer skin has been chewed down from four feet thick to the width of three fingers.
+
+Even through quilted bast, the wood here feels feverish—forty, maybe fifty degrees, sweating a microscopic film of grease through its grain where the borers' digestive heat cooks the sap-channels ahead of them. 
+
+I set the point of my flint wedge—the small grey one, worn smooth as a thumb-pad by my grandfather’s grandfather up in whatever dirt-and-rain country our stories half-remember—into a frost-check along the grain. One sharp rap with the poll of the adze. 
+
+Out in the vast, dead air, the strike makes almost no sound at all: a tiny *tink*, swallowed before it reaches Kett. Inside the hollow chamber beneath my knees, it must sound like the sky breaking. Instantly, the chewing stops. I feel the sudden, heavy *slump* through my boot-sole as five thigh-thick cylinders of armored tallow drop off the interior ceiling of their gallery and coil tight in the warm dark, waiting to feel whether the truss is shearing.
+
+Wait them out, and they stay balled up for hours with their horn plates locked so tight a copper point just skids off them. You have to take them while they’re still tasting the vibration.
+
+Two more raps—hard, reckless of the flint—and a slab of pale, flinty shell the size of a shield splits clean along the tension-line and pops upward an inch, sighing out a sudden, thick puff of hot, sour steam that turns into silver sleet the instant it hits my visor. Before the sleet can crust my pinholes, I drop the adze, snatch the six-foot gaff off my back-sling, jam its barbed copper hook sideways through the steaming gap, and twist toward the soft belly-seam I heard drop a heartbeat ago.
+
+The shaft bucks so violently against my ribs it nearly knocks my wind out in the thin air. 
+
+People think grubs are sluggish because they have no eyes and live in a closet. They haven't felt three stone of muscle braced against corrugated gallery walls with forty silica hooks. It doesn't pull back—it corkscrews, trying to shear the ash-pale shaft of my gaff against the razor lip of the split wood. My good boot slips half an inch on frost-slime; instantly I drop my left shoulder, jam the butt of my anchored pike under my armpit as a fulcrum, and haul upward using my thighs instead of my back, chewing hard on the sour bit of cambium tucked in my cheek to keep my teeth from cracking together.
+
+Something gives with a wet, suctioning *pop* that smells intolerably rich—like hot marrow in a cold room—and two feet of segmented, cream-yellow horn comes thrashing half out of the slit, spitting clear, scalding oil across my quilted knees. 
+
+Before it can hook its tail-plates under the rim, Kett is there. I didn't hear him come—nobody hears footsteps in the Hollow—only felt the quick, bird-light *patter-patter* of his boots racing down the grain three seconds before his shadow fell across my hands. He doesn't use a gaff; he drives a heavy, fire-hardened tarsal-leg spike straight behind the thing’s blind head-shield, twisting until the chitinous tube pierces the nerve-knot and lets a gout of clear, hot lymph hiss out onto the cold wood. 
+
+The thrashing turns into a slow, rhythmic ripple. Neither of us speaks. Talking wastes wet breath, and besides, Kett is already looking straight up—chin tilted only a fraction, never aiming his pinholes directly at the root-glare—watching the empty white gulf half a mile out from our buttress.
+
+It takes me a second to see what brought him off the rope without an order. 
+
+That thin puff of hot steam and borer-stink we just let out into the sub-zero quiet is rising straight up like a chimney-thread, invisible five yards above us, yet punching a warm hole into the dead air. And three hundred yards out in the sourceless noon, where a translucent rib sweeps down into nothingness, the air has developed two wide, milky creases.
+
+Sheets. Big ones—six yards tip to tip if they’re an inch, pale as scraped parchment, banking silently out of the glare with the light shining straight through their flat, rib-striped bellies so they look less like animals than flaws in my own eyesight. They smelled the hot fat before it finished condensing on my knees. Already the nearer one is dropping a wing-margin, sliding down the invisible cold slope at forty miles an hour without a rustle, aiming to brush this slanted shelf with five yards of stiff, hooked cartilage and sweep grub, boy, gaff, and uncle straight off into three miles of white sky.
+
+Kett doesn't reach for a weapon; you don't fight six yards of leather kite on a thirty-degree ice-wood slope. Instead, he snatches my flint wedge out of the crack, flips his adze, and deals the living edge of the younger, underlying rib—four feet below our dead blister, where a pale green vein of active wood is creeping up to swallow the old node—three brutal, crushing blows with the blunt poll.
+
+He bruises it deep. He splits the hot skin open to the air.
+
+For five heartbeats, nothing happens except the silent, terrible widening of that milky triangle rushing at us out of the emptiness—close enough now that through my tiny cross-slits I can see the wide, baleen-fringed slot of its mouth parted along its leading edge, pale bark-lice clinging around its lip-hooks, no eyes anywhere on that flat, blank expanse of sliding skin. I throw my whole weight flat across the dead borer, driving my belt-pick into the dry heartwood with my left hand while wrapping my right arm around Kett’s ankle.
+
+Then the bruised vein answers.
+
+Out of the smashed lip four feet down-slope, pressurized sap and furious, disrupted chemistry hit twenty-below-zero air all at once. A thick, screaming plume of white vapor erupts twenty feet straight out from the wall, followed instantly by a curling, translucent tongue of green-white wood unrolling upward like boiling milk hitting cold iron. 
+
+The sudden thermal hits the lead sheet right under its flat belly thirty feet out from the ledge. 
+
+A glider lives by clean air; turbulence to something six yards wide and half an inch thick is like rocks to a birchbark boat. Its leading edge bucks violently upward, rippling from corner to corner with a loud, dry *whack* like a shaken hide—the loudest noise we’ve heard all week—and instead of sweeping our shelf, the updraft pitches it sideways on one wingtip, dumping its lift so suddenly it drops forty feet straight down past the lip of our buttress in a clumsy, fluttering sideslip before catching cold, solid air again two hundred yards below. Its mate banks hard away before hitting the steam-cloud, turning edge-on to us and vanishing instantly into the blinding scatter as if someone had wiped a chalk line off slate.
+
+Around us, the artificial squall from the ruptured vein patters down across our backs and visors as tiny, warm pellets of sleet, freezing instantly into clear beads on our greasy bast-coats. Already, the curling green lip Kett bruised is stiffening at its edges, arching three feet over the split blister and sweating sixty-degree heat back down onto our hands.
+
+In ten minutes, we’ll have a half-roof right over the borer-hole—warm enough to take off our mittens, skin out four gallons of smokeless oil, and render fat over five splinters of dry wood without freezing our fingers to the copper pot. Down the rope, eighty paces up-ridge, my sister has already felt the wet, surging *shudder* of the new growth through her ankles; the braided root-line gives three brisk tugs—*Safe? Coming down*—and Kett taps the butt of my gaff twice against the solid timber beside his knee. *Safe. Bring the pots.*
+
+Before she gets the heavy sled unbraked, I lean back just far enough to stay inside the steaming cup of the curling wood, slip one mitten off with my teeth, and press my bare, soot-grimed knuckles against the older, flint-hard sweep of the great arch rising overhead. 
+
+Through the dead outer shell, past the four-foot gallery where three remaining borers are retreating frantic and blind down-grain away from the light, the deep core of the truss is still singing that long, clean, load-bearing *hum*. High above our tiny black smudge of camp-smoke and spilled grease, the dark, stretched shadow inside the glowing heartwood stays unbroken, holding up ten miles of blinding roof for one more season while we strip its parasites, pack our sleds, smear fresh black around our eyes, and listen through our crooked heels for which way the floor wants to tilt tomorrow.

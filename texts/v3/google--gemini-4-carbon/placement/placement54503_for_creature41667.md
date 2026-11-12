@@ -1,0 +1,45 @@
+I am twenty-five feet below the middle avenues, down in the lower vaults where the foundational stolons cross a wide, blind cleft in the bedrock. 
+
+Up above, the white ceiling blazes just as hard as it does everywhere else, filtered through forty vertical feet of milky jade leaves, bleached stems, and glassy sap-wood until the air down here isn't dim so much as *thick* with light—a warm, shadowless, underwater amber. My left calf rests over a root-bridge as wide as two bodies; my right foot is wedged into the dry crotch where a buttress meets raw black stone. The wood under my thigh is three or four degrees cooler than the air, and I have been sitting still long enough that the boundary between my skin and the pale, damp bark has gone soft. 
+
+Around me, the basalt fin thrusts upward out of the dark fissure like an unweathered blade. You cannot lean carelessly here. Half an arm's length from my bare shoulder, the rock fractures into a step as clean and thin as a flaked razor; a slip of two inches would lay flesh open to the muscle without a sound. Yet the rock is covered in fine beads of water, gathering out of the sweet, heavy air, swelling until their own weight overcomes their grip on the glassy black face and they slide downward—silently, sleekly—into the collar of pale sponge-tissue my mother’s brother coaxed around the base of this stone before I was born.
+
+That collar is why I am down here.
+
+At first glance, if you climbed down one of the vertical shaft-ladders with your eyes slitted against the brightness, you would think I was only tending the water-seam. One side of the sponge-collar has grown heavy and slightly lopsided, pulling away from the basalt by the thickness of a thumbnail so that three drops out of ten miss the lip and fall straight down into the dry cleft below, wasted on raw stone where no feeder-root can reach right away. My thumb-blade—smoky chert, wrapped in four layers of old leaf-parchment—lies beside my knee, along with three short lengths of green twine and a ball of pale leaf-wax warming in a crease of my groin-band.
+
+I have already pared a thin, translucent sliver of rind from the collar’s inner cheek and bound it back flush against the sweating rock. It took perhaps half an hour of slow, breathing movements, pausing whenever warmth gathered behind my breastbone. Down here, if you work fast, your throat begins to pulse, and the damp heat presses back against your face like wet wool. So you cut once, slowly, lay the blade down, and wait while the clear sap rises to seal the marriage.
+
+While I wait, my palm rests flat against the main horizontal trunk beside me.
+
+This is not one of the western burial mounds—those lie half a mile off, past the Great Rosette and the split-chert cisterns—so there is no smooth, healed six-foot ridge in the wood here. Nobody sleeps inside this beam. Instead, this trunk is a junction: five massive stolons braided together over a span of centuries to carry the weight of three upper tiers across empty space. Because the wood is stretched tight under constant tension, fused hard as horn from wall to wall, it carries *wood-touch* better than almost any timber in the eastern half of the basin.
+
+That is who I am, if I am anyone distinct from the sixty others: I am the one who stays down in the lower tension-spans longer than needed, listening with my heels and the heel of my hand.
+
+Most people tap a rail to say *coming behind you* or *hand up the basket*. Clean, practical syllables. Two knuckles for proximity; a flat-palm press and a fingernail scrape when a heavy crystal plate is being shifted and needs a second pair of arms. When I am up in the pearly glow of our cluster’s pavilions, eating mashed nut-meat salted with sour fern-jelly alongside the others, my hands move across my chest in the same quiet, economical phrases as theirs. My eyelids stay hooded; my breath stays small; I blow the iridescent wax film closed over the selenite cup without leaving a broken ring.
+
+Down here, though, with my eyes nearly shut—just a thin horizontal seam of amber light leaking through my lashes—the basin stops being silent.
+
+Through the skin of my palm, the grafted lattice is crowded with slow, dry events. Far above and to the north, someone—by the weight and the unhurried, rolling pause between transfers, it is Old Marrow, whose left hip stiffened forty sleeps ago—is walking out along the crooked avenue toward the mica-beds. *Press... release. Press... release.* Closer by, maybe sixty yards laterally through a dense net of secondary runners, a blind nut the size of a baby’s head drops two feet into a lower cradle: a dull, muffled *thock* that dies almost instantly in the wet air, yet travels through the wood-grain as a tiny, round shiver under my ring finger.
+
+And underneath those living touches is the deeper tension of the valley itself.
+
+Every few hundred breaths, the basalt fin beside my shoulder gives off a microscopic tremor—not large enough to hear, too small even to disturb the fat beads of sweat clinging to its black cheek, but sharp and crystalline against the bone of my ankle where my foot braces near the stone's root. The mountain above our white sky is heavy. The four-mile floor of timber we live on is pressing outward against the unweathered cliffs, swelling millimeter by millimeter as old pith hardens and new shoots graft in, wedging itself tighter across the abyss. 
+
+In my tool-loop, beside the chert knives, I carry something that isn't an edge and isn't a prism.
+
+If I draw it out and rest it on my ivory thigh, it looks like nothing much: a curved, two-inch rib of dead *water-wood* that dried under unusual compression where two boughs pinched together and starved a shoot between them. Most dead wood here goes soft-pithy or turns to brittle parchment, useful only for eye-shades or blade-wraps. Compression-wood turns translucent as yellow horn and dense as chert. Generations ago—maybe *six finger-widths of cambium back*—someone else noticed that if you scrape a sliver of this horn-wood thin at one end and wedge its butt into a tight notch of a tension-root, plucking it does not make a loud noise in the heavy air. You could stand ten feet away behind a screen of waxy chartreuse fans and hear nothing at all.
+
+Press your cheekbone or your collarbone against the trunk twenty paces down-grain, however, and a warm, round hum blooms straight inside the bones of your skull.
+
+I do not do it often. Even harmless novelties feel slightly extravagant here, where every motion spends water and every mark on living bark stays visible for half a lifetime. Mostly I just keep the horn-sliver polished with the natural oil behind my ears, turning it slowly between thumb and forefinger while I check the sponge-collars and the deep waste-slits along the bedrock shafts.
+
+Right now, I leave it tucked away. There is a smaller thing asking for my attention.
+
+Three feet down from the basalt collar, where the repaired sponge-lip is already drinking the first slow bead of rock-sweat cleanly into its pale tissue, a young shoot no thicker than a child’s little finger has pushed up from the main trunk. Left to itself, in twenty or thirty sleeps it will reach the razor edge of the black dike and saw itself open under its own stiffening weight, bleeding clear sap down into the dry dark where nothing grows. 
+
+I reach into my loop for the last piece of green leaf-twine. Moving slowly—so slowly that the pale, whip-tailed skink resting four feet higher on the black glass doesn't even unslit its dark eye—I bend the supple, milky shoot sideways, away from the stone blade, curving its tip gently downward until its tender side rests against an older, arching root-knee that spans the gap toward the western trail. I loop the twine twice, loose enough not to strangle the swelling bark, tight enough to hold the kiss in place until their skins dissolve into one another.
+
+Nobody asked for a step-rail here, and I won't need one while my knees are still supple. By the time this shoot thickens to the width of an ankle and fuses solid with the knee, my skin will have gone matte like dried leaf-curl, or I will already be folded neatly inside a cool seam in the western mounds, giving my salt back to the yellow leaves overhead. Someone else entirely—climbing down into the amber brightness with a stoppered nut-shell of water or a fresh wedge of dry wood—will reach a broad, calloused foot backward without looking, find this rung waiting inches away from the raw black edge, and transfer their weight across the cleft in complete silence.
+
+I smear a dab of warm wax over the tiny dent my thumbnail left in the shoot's cuticle. Then I lean my shoulder blades back against the cool, living trunk, let my heavy lids drop almost closed against the eternal white noon filtering through the floor above me, and sit very still until my heart slows down to match the drip on the stone.

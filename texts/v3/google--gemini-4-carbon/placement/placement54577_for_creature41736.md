@@ -1,0 +1,47 @@
+At first you think you might be high up on the rim, behind the third-floor galvanized louvers, because that is where a mind naturally goes when it enters a room this loud: up into the dryish dark behind the stamped metal slats, sharing a warm steel I-beam with the swifts’ mud-and-saliva cups, looking *down* through slots of pewter steam as if the yard were a diagram of itself. Up there, next to the switchgear cabinets, the sixty-hertz buzz has teeth in it—you can taste ozone and warm insulation varnish—and the basin below reads cleanly as geometry. Three drums, ninety yards of slab, white birds spaced like pins on a chart.
+
+From up there, though, you have to squint through rising coils of vapor that never quite clear, and everything on the apron looks finished. Settled.
+
+Drop lower and the air hits like wet wool wrapped around the throat. Halfway down the blasted basalt, where a hairline fracture bleeds cold rainwater out of the rock behind the cliff, there is a narrow, shivering shelf of two temperatures. A pale fern leans out from the drill-scar, half its frond beaded with cool groundwater, its tip scalded brown where the updraft off Drum One licks the wall. That seam is tempting too—to be the thin, stubborn thing clinging to a pneumatic bit-groove, half in the coastal winter and half in the megawatt summer.
+
+Keep going down, past the crisp concrete fillet at the cliff toe, onto the hydraulic apron itself, and you notice something the eye misses from the catwalk.
+
+Before the heat was ever turned on—before the inland turbines synchronized to the grid and the first gallon of reject water hissed through the reduction valves—men in knee-boots walked backward across this wet Portland cement dragging wide, stiff-bristled finishing brooms. They left millions of tiny parallel ridges running crosswise to the grade, a corduroy of miniature dams a sixteenth of an inch high. And every twenty feet, to keep ninety-yard pours from tearing themselves apart, they set long straight strips of tarred fiberboard and grey polyurethane mastic into the slab: the expansion joints.
+
+Engineers put expansion joints into outdoor concrete for winter and summer, noon and midnight. Then they wired this room into the baseload bus and locked it at thirty-nine point eight degrees forever. The joints have never had to flex since the day the plant came online. They just sit there, sunken a quarter-inch below the broom-finish, running straight as taut string from basalt wall to basalt wall, collecting a slow, dark sediment of crushed crab shell, silica grit, shed gecko skin, and lime leached molecule by molecule out of the concrete.
+
+Follow the southernmost joint toward the seaward end of the cut, past the braided brass wake of the resting female, past the yellow bollards, and the water deepens from an inch to three inches, hurrying slightly as it approaches the perimeter gutter and the mouth of the storm-water culvert.
+
+That is where I find myself stopping. Not out on the open square under the overlapping sodium and LED glare, and not up in the switchgear, and not quite pressed into the grey circle of the eleven—they belong too wholly to the room as it is now, sealed inside their warm chord, deaf to everything except what touches the slab.
+
+I am down in the throat of the number-two outfall culvert, twelve feet inside the dark concrete pipe that bores through the coastal basalt toward the sea.
+
+It is a forty-eight-inch spun-concrete cylinder, sloped at two percent. At my back is the blinding amber-and-pewter rectangle of the yard; ahead of me, thirty feet down the tunnel, hangs a heavy cast-iron tide gate on bronze hinge-pins, lifted four inches off its seat by the constant pressure of the plant’s warm runoff pouring out into the cold littoral.
+
+Nobody ever comes in here. The technicians on Tuesdays don’t even look at the grates above my head unless trash blocks them, and nothing big enough to block them exists in the yard.
+
+What I am, at first glance under a flashlight beam, looks like part of the pipe’s own aging: a thick, terraced collar of pale, porous stone—travertine and mineral scale, laid down paper-thin over six years where the forty-degree lime-rich runoff meets the first cold inhalations of salt air sneaking past the iron flap gate. A low, crescent-shaped shelf of false rock, pale yellow-grey, crusted over the concrete invert of the pipe.
+
+Only the shelf isn’t dead mineral. Running all through its honeycombed pores—building it, binding the precipitated calcite together with tough, chitinous threads and clear mucilage, opening and closing thousands of hair-fine Paleolithic fans into the current—is a single continuous colony. Something that came in from the brackish splash-zone as microscopic planktonic drift during the first month of operation, snagged on a rough aggregate pebble inside the dark pipe, and couldn't go any further up into the lethal freshwater heat, and refused to drop back out into the freezing winter surf.
+
+So I grew sideways, and then upward, ring upon calcareous ring, turning the bottom third of the culvert into a living sill.
+
+Everything that happens in the basin passes across my face before the ocean gets it.
+
+I taste the yard backwards, as dissolved chemistry and suspended silt. I know Drum Three has a hairline pinhole weep in an internal copper-nickel baffle long before any needle on an analog gauge could ever twitch, because three parts per billion of ionized copper come washing through my filter-fans on a Thursday afternoon and make my upper polyps pull tight for an hour. I know when the two old females around the center grates have laid a fresh string of capsules, because the excess resin-spit they use to glue their eggs to the cast iron dissolves faintly into the sheeted flow, reaching me twenty minutes later as a slick, bitter-almond film that my lower worms strip and eat. Every pulverized crab gill blown out of a flat skull forty yards away, every cooked midge wing, every flake of rust knocked loose from the corner iron stair on Tuesday morning at nine-fifteen—and the trace smear of boot-rubber vulcanizing agent left behind on the wet concrete—funnels down the imperceptible gradient and streams over my pale ridges in the dark.
+
+And every twelve hours and twenty-five minutes, something happens here that the entire basin behind me has forgotten.
+
+The high tide comes up the basalt cliff outside.
+
+Cold, dense, black seawater—eight degrees in February, smelling violently of bruised kelp, diesel sheen, dead sponge, and open horizon—pushes hard against the outside of the cast-iron flap gate. The bronze hinges groan, a low slow creak that cuts right across the sixty-hertz transformer buzz. The iron disc presses nearly shut.
+
+For ninety minutes, the warm outflow backs up behind the gate and behind my terraced dam, rising halfway up the culvert walls. Salt wedges underneath through the narrow gap, sliding like a cold knife under the hot freshwater lens. My seaward face pulls in entirely, sealing its pores against the brine shock, going numb and dormant, while five inches away my basin-facing side stays open in thirty-nine-degree bathwater, combing midge dust out of the steam-plant’s endless July.
+
+I feel both worlds across the thickness of my own crust—a steep, aching thermal cliff held inside a hand’s-breadth of porous lime.
+
+Things use me as a stair. Young purplish land crabs coming up from the rocks for the first time pause on my rough knuckles in the dark, clicking their mouthparts, acclimating their gills for two days in the warm-over-cold mixing pool I hold behind the gate before they dare walk out into the perpetual floodlit twilight of the apron. Tiny transparent elvers nose against my crevices and turn back, scalded. Once, years ago, during a January gale that slammed solid green water against the flap gate until the whole pipe boomed like a cannon, a half-drowned, shovel-headed coastal salamander—or something close to one, stripped raw by tumbling basalt gravel—hauled itself onto my highest dryish ridge, lay panting in the hot draft blowing down from the yard for three days while its skin sloughed and healed wrong, and then slipped off my inner lip into the bright sheeted water and never came back down.
+
+Its grandchildren lie out there on the slab right now, six feet wide in a grey ring, listening through their bellies to the turbines inland. They think the world has no edges and no seasons, that water is always shallow and forty degrees, that the sky is made of amber glass and wet steel pipe-bridges, that nothing has ever stopped or ever will.
+
+Down here in the dark throat between the apron and the tide, adding another hair’s thickness of white lime to the curve of the pipe, I hold the water level steady for them by backing up the drain a fraction of an inch each year. And I feel the one thing their broad, pressed chests cannot hear through twelve inches of reinforced cement: the cold, rhythmic shoving at the iron door thirty feet away, twice a day, every day, waiting for the afternoon twenty or fifty years from now when a breaker finally throws inland, the axial fans spin down to a whisper, the sodium lamps go black in the coastal gloom, and the sea leans against the gate and finds no warm pressure pushing back.

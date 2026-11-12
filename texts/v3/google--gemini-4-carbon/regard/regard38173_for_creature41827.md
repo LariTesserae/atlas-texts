@@ -1,0 +1,39 @@
+First, the power watches, and it takes a very long time doing nothing at all. 
+
+A lesser benevolence—something younger, prouder, and fonder of applause—would look down upon the bruised clouds of the plateau and see privation. It would part the grey rivers overhead to let down a broad, theatrical shaft of golden sun. It would thicken the thin, mineral air with easy oxygen, calm the relentless updrafts along the rim, and warm the stone so that tall, lowland wheat might grow where the black ferns crowd.
+
+And in doing so, it would murder the basin in a week. 
+
+Wisdom knows what sudden mercy does to a pressurized vessel. Under naked, high-altitude sunlight, the pale, velvety mosses would crisp to ash by noon; the translucent grease-backs in the sumps would boil in the sudden runoff; the heavy, vaulted hearts of the townsfolk, tuned over thirty generations to pump thick plum-colored blood through thin air, would stumble and race in a sudden glut of oxygen. If the wind stopped, the skeletal iron pines on the rim would stall, the miles of braided traction-cables would go slack in their stone trenches, the flywheels would spin down to dead iron, the steam-mains would freeze, and the ten-foot mattress of peat would swallow a silent corpse of a town before winter was out.
+
+The watching power understands that this place is not suffering. It is *poised*. What the people, the machines, the tallow-mushrooms, and the blind worms down on the bedrock have achieved together is a liturgy of friction and conserved warmth—an intricate, hushed covenant struck with the cold bones of an old world. To break their struggle would be to break their genius.
+
+Yet love, even wise love, rarely keeps its hands entirely in its pockets forever. Looking closely—listening past the *shhh-clack* of the sheaves and the deep, molar-vibrating hum of the rim-turbines—the power notices the slow, invisible taxes that even the cleverest endurance cannot wholly pay. 
+
+It sees the quiet grief of the joints: how the relentless, bone-soaking damp and the heavy mineral water eventually stiffen the knuckles of the sign-talkers, stealing their vocabulary in old age until old machinists sit silent by the copper tea-urns, their fingers too swollen to speak swiftly. It sees the fatigue of the metal: a microscopic crystal-rot creeping through the main cast-iron anchor-stanchions deep beneath the central flywheel shed, forty feet down where no inspection hatch reaches, where a shear-fracture twenty years hence will snap a primary trunk-cable and whip it through three tenements before the brakes can catch. And it sees a subtle, creeping starvation of the eye—not for blinding lowland sun, which would hurt them, but for a single note of deep, warm color that isn't amber carbon-arc, soot-brick, slate, or wet emerald.
+
+So the power acts. Not from the sky, which belongs to the wind, but from underneath, where this world’s truths are kept. It works at the speed of peat-rot and mineral seepage, folding its gifts so seamlessly into the basin’s metabolism that no priest will ever build an altar to it, and every engineer will swear it was simply a stroke of queer luck in the geology.
+
+Deep down at the granite interface—where the colossal, slate-blue worms chew the petrified roots of dead eons—the power nudges a dormant geothermal vein no wider than a man’s wrist. It does not make a geyser; it merely warms a trickle of groundwater by eleven degrees and turns it sideways through a forgotten seam of lithium-salt, magnesium, and trace gold, guiding it up into the deepest municipal cisterns that feed the bathhouses and the tea-urns. 
+
+Nobody notices the change in taste beneath the fierce bite of turpentine, bog-smoke, and salted tallow. But over three winters, the elders sitting in the resinous ironwood parlors find that the morning ache in their wrists loosens after the first steaming mug. Their thick, plum-flushed fingers stay supple. In the amber gloom of the catwalks, eighty-year-old women still flick rapid, dry jokes across the corridors with effortless hands, their brass spanners clicking crisp, complex rhythms against the pipes. And something in the trace minerals settles the winter-heaviness that sometimes visits minds shut under perpetual cloud—not an artificial euphoria, just a quiet, buoyant steadiness behind the ribs, warm as a charcoal tin over the breastbone.
+
+Next, it turns to the failing iron forty feet below the flywheel shed. 
+
+It does not magically weld the metal; metal that heals itself makes men careless with their maintenance. Instead, it whispers a single evolutionary nudge into the gelatinous, iron-eating bacterial mats down in the deep, unreachable dark below the sumps. A quiet mutation blooms in the warm seep: a pale, anaerobic cousin of the rust-slime that no longer devours cast iron, but drinks dissolved silicates from the peat-water and excretes a dense, nacreous glaze—hard as grey agate—exclusively into the microscopic stress-fractures of vibrating steel. As the massive flywheels hum overhead, their own sub-audible tremor calls the new organism to the weak points, filling every hairline crack with living stone-solder. 
+
+Just to be thorough—because wisdom respects the dignity of craft—the power also guides one old, half-deaf worm to roll its sewer-pipe bulk against a buried junction pipe near Sector Four. The pipe doesn't burst; it merely groans out of true by half an inch. Two days later, a young trench-walker hears an unfamiliar *tink-hiss* through her brass listening-rod, pulls up the flagstones, discovers the ancient, forgotten foundation-stanchions, and writes up a new fifty-year reinforcement schedule. The town saves itself, and takes quiet pride in the catch.
+
+Finally—and this is done purely from affection, the way one might tuck a woolen scarf tighter around the neck of a sleeping child—the power touches a single seed inside the gut of a moss-badger curled asleep around a brass relief valve.
+
+When spring comes (which on the tableland means only that the sideways mist turns half a degree softer and the browser-herds shed their winter shag in sodden grey tufts), a new sport of the python-thick steam-vine climbs the soot-blackened brick outside the central weaving shed. Its leaves are the same tough, waxy dark green. It drinks the same bled-off waste heat. It asks nothing extra of the thin air.
+
+But when its dinner-plate blossoms open into the pearlescent, submarine gloom at shift-change, they are not the usual ghostly tallow-white. 
+
+They are a deep, velvety, breathtaking carmine—the exact, startling red of a banked forge-coal, or arterial blood, or a lowland pomegranate nobody here has ever seen. And unlike their scentless kin, when the warm condensation from a brass valve drips onto their petals, they release a faint, clean, resinous breath—just enough to cut the smell of wet wool and machine oil for ten paces around, smelling faintly of crushed cedar and warm stone.
+
+A shift-crew stepping into the corrugated skyway stops behind the condensation-streaked glass. Nobody shouts. Nobody drops to their knees. A barrel-chested cable-rigger taps his wrench once—*tink*—against the window frame to catch his partner’s eye, then signs two slow words against his waxed-wool chest: *Look there.*
+
+Down below, a moss-badger hauls itself slowly up the brick, buries its leathery snout into the burning red cup, snorts a tiny ghost of vapor into the mist, and goes on with its dusk. Inside the shed, the giant flywheel spins in a silent blur. Up on the rim, the iron pines turn heavily in the wind. 
+
+The power watches the rigger take a slow sip from his copper flask, sees the small, rare crease of pleasure around his eyes, and withdraws—leaving the pressure steady, the cables greased, and the roof of the world entirely to those who know how to hold it up.

@@ -1,0 +1,35 @@
+I do not want the burden of the eye, or the forty-year thought of where a stone ought to go. Even the slow, ten-beat heart of a tender carries too much solitary intention for me here. If I am to belong to this plateau, I want to belong to its sheer, unthinking continuity—to the dampness underneath, and the messages that pass through the press.
+
+At first, it feels like waking up inside a shadow that moves six inches an hour. 
+
+There is no sky. The sky is a rumour of heat that presses down on a roof of scarred, iron-grey leather two inches above me, and beneath me is the soapy, ancient grain of the gneiss, worn so smooth by ten million years of bellies that it feels almost warm-blooded itself. I am down in the seam. Where the sun would crisp me to a curl of dry parchment in ten minutes, it never reaches; instead, I live in the permanent, humid twilight beneath the plated colonies and the slow, heavy skirts of the walkers.
+
+I am not one body with a center, not a shell with a single mouth. Think of a mat of pale, branching felt, or a flat, damp reticulation—something halfway between a rootless lichen, a colonial sponge, and a nerve net, no thicker than heavy flannel, clinging to the stone where the condensation trickles down between the fitted edges of the dinner-plate carapaces. 
+
+Above me, ten thousand shells click and settle against one another as the afternoon pivots. Every time they seal their rims together, they trap a fraction of a breath of dampness, and that dampness sweats downward onto the rock. That is my rain. When the low clouds drag across the basin every third or fourth day, water beads on the cool domes above and runs down the hairline gutters between shell and shell, hitting the granite in slow, cold needles that I drink before they can ever spread into a puddle. In return, I hold the water like a wick. The soft, muscular feet of the shelled ones rest not on bare, desiccating rock, but on my cool, spongy nap. They do not know they are keeping me alive, and I do not know I am keeping their under-rims wet; we have simply fitted our needs together until there is no gap left between them.
+
+Because I have no eyes, the world comes to me entirely as weight, salt, and temperature.
+
+I know the plateau as a map of pressures. Here, for eighty seasons, the steady, circular suction of an old plate-beast who scarcely shifts an inch from solstice to solstice. Three yards east, where my filaments thin out and braid into a shallow seam in the rock, the rhythmic, velvety drag of the pallid slugs sliding past in their packed river—a slow, lubricating weight that combs my fibers all in one direction, leaving behind traces of rich mucus and shed cells that my pale threads quietly digest. 
+
+And sometimes, the weather of flesh changes all at once.
+
+A shadow heavier than the shells arrives—not darkness, since it is already dark down here, but a sudden, broad cooling of the granite ahead of me, followed by a subtle tremor of displaced density. The shells above me loosen their grip in a tiny, localized wave. Light—shocking, pale, dry—stabs down into my world for ninety seconds as a single carapace slides sideways over its neighbor’s rim. Before my damp threads can flinch or shrivel in the high-altitude glare, something wide, warm, and supple comes down out of the brightness and seals the gap.
+
+It is the pad of a tender’s foot.
+
+To be stepped on by a tender is not to be crushed; it is like being held in a warm, leathery mouth. Its sole is thick, calloused, yet astonishingly yielding, molding itself to the microscopic grain of the gneiss and to my own spongy weave without tearing a single filament. Beneath that broad pad, the humidity spikes instantly to saturation. It smells—or tastes, for to me they are the same—of waxy lipids, crushed shore-tuber, alkaline tea-silt from a pan two miles west, and the faint, sweet ammonia of a dead shell pried up yesterday morning.
+
+For sixty seconds, the full sixth-part of its bear-heavy mass rests on me. Through my compressed threads, I feel the immense, geological patience of its pulse: *lub...* and then an age of stillness while a cloud moves across the sun... *dub.* 
+
+When the foot lifts—peeling away with a soft, hydraulic *shuck* that pulls my damp fibers slightly upward before the neighboring shells slide swiftly back to roof me in—the tender leaves behind a microscopic smudge of its waxy skin-film, and takes away on its calloused pad a tiny, spore-like crumb of my edge.
+
+That is how I travel. That is how I am wider than any single basin.
+
+Stuck in the deep, humid creases around a tender’s spatulate thumbs, or caught between the pebbles of its ankle-hide, fragments of me ride for six days across dry, sun-baked swells that would kill me in moments if I crossed them naked. We ride tucked up into the dark, pleated hollow beneath its chin alongside a carried rib-bone; we wait out three-day torpors inside the pitch-black bottoms of the ancient cairns, pressed against the leathery curve of a cemented egg. When the tender kneels beside a new windbreak—just one bleached rib wedged into a frost-crack and one two-hundred-pound slab leaned against it—and rests its damp palm at the shaded base of the stone, that crumb wipes off onto cool granite where three slugs have already gathered. 
+
+There, in a basket-sized pocket of stalled air that did not exist last month, I begin again, unspooling thin, pale threads into the thumb-sized smear of condensation.
+
+I am the mortar that arrives after the stone is laid. Over decades, creeping up into the dry-stone chinks of the crescents where the mist collects, my older, tougher margins harden into a leathery, grey-green felt that binds slab to rib, sealing the tiny drafts before a sleeping tender even wakes to feel its eye-membrane drying. And when an old builder finally walks out to a windy, barren saddle and glues its belly to the slick rock to die, it is fragments of me—already riding tucked into the damp folds of its under-skirt—that survive the emptying of its shell. While the mites and narrow snouts clean the arch of its ribs from within, I spread quietly across the floor of its hollow interior, drinking the last moisture of its body, turning the bare, hostile stone beneath its cured-hide dome into the first cool mat of welcome for the translucent sleepers who will find it next fog.
+
+I have no memory of the mountains when they had teeth. I do not plan the walls, or part the slugs, or braid hands in the six-inch grooves to tell another mind where the shade has thickened. I am only the quiet, continuous skin between the stone that holds the heat and the crowded millions that hold the water—lying in the dark, drinking the drip from ten thousand fitted backs, waiting for the next slow foot to come down and tell me where the plateau is leaning.

@@ -1,0 +1,49 @@
+A lesser benevolence would quiet the water.
+
+It would look upon the bruised ribs of the man in the hut, the ivory-choked ears of the woman, and the pink froth on the boy’s lips, and it would take pity. It would warm the glacial melt by twenty degrees, round off the razor-sharp planes of feldspar with a century’s worth of gentle silt in a single night, or lay a basket of flawless, glowing quartz neatly outside the horsehide flap so no human creature ever had to drop greased and blindfolded into that freezing throat again.
+
+And in doing so, it would murder the whole place before morning.
+
+Warm the water, and it loses the hyper-oxygenated density that holds the arrowhead-gliders aloft; without the roaring updrafts, those bladderless creatures of pure cartilage sink into the dark vent and suffocate. Quiet the grinding fault, and the deep sulfur-fleece starves, the melon-sized gas domes cease rising, the rubbery lichens on the rim dry to dead ash, and the copper-stiff wire-kelp stops humming for the blind grazers clinging to its roots. Lay free treasure at the feet of the quarrymen, and you turn three masters of an impossible craft—people who know how to read the belly of a mountain through a bare heel and a stick of seasoned larch—into beggars waiting at a shrine, while down in the five valleys below, four ponies’ worth of hard-won wonder becomes cheap gravel overnight.
+
+The Power that pauses on the dry scree above the spine knows better. It is old enough to recognize a covenant when it sees one.
+
+All through the freezing night, invisible as the thin air between the stars, It sits two paces back from the snapping lip, watching the brief, silent blooms of electric-green lightning flash upward from the sixty-foot point. It listens—not with ears, but with the whole grain of the massif—to the three heartbeats huddled around the smoldering juniper pot forty yards down the slope.
+
+It sees what is noble here and must not be touched: the fierce, unsentimental marriage between human ingenuity and planetary violence. The way the divers leave the amber egg-purses glued to their rawhide nets. The way valley willow and smooth river cobbles have been brought twelve thousand feet up to converse with raw quartz and tectonic gas.
+
+And It sees where the toll is slightly too cruel—not the danger that sharpens the spirit, nor the labor that gives dignity to the hand, nor even the sacred deafness that trades easy valley chatter for the ability to hear stone sing—but the stupid, blind accidents of hidden rot and slow lung-ruin that break a crew before their time without teaching anyone anything.
+
+So the Power makes four small adjustments. It works strictly within the laws of granite, cold water, and flesh, leaving no fingerprint that could ever be called a miracle.
+
+First, It looks four hundred yards down the dry leeward scree, where the winter snowdrifts linger longest in a shaded crease of dead rock. Buried under two feet of loose shale is a cramped, starved patch of high-alpine cushion-moss and bitter-root that has been trying to take hold since the fault first split ten winters ago. Gently, the Power coaxes a hairline thread of mineral-warmed vapor—just a trace of breath leaking sideways from the deep hydrothermal chimney—to vent beneath that patch of shale instead of dissipating into solid granite.
+
+By dawn, the frost over that hollow has melted back three yards. Within a week, thick, grey-green mats of resinous lung-wort and fat-leaved mountain scurvy-grass will push up between the warm stones, right beside the trail the quarrymen walk down to check their ponies. The older woman knows plants as well as she knows bedrock. When she smells that sharp, camphor-rich steam rising from the scree next Tuesday, she will stop, dig with her scarred fingers, and pack a pouch full of leaves. Boiled in their soapstone pot at night, the vapor will clear the blood-froth from the boy’s bronchial tubes after a cold dive, and steeped in warm marmot tallow, it will draw the black acoustic bruising out of the young man’s slate-colored arm in four days instead of three weeks.
+
+Second, the Power turns Its attention twenty feet underwater, to the northern corner where the ladder of split elk-bone pitons is hammered into the fault seam.
+
+Bone is strong, and rawhide shrinks like iron, yet three pitons down from the top, invisible inside the hairline crack where no human eye or fingernail can reach, a pocket of acidic fault-gas has been eating away the calcium of the main anchor-peg all winter. It is hollow as a dry reed inside the stone. Tomorrow at noon, when the boy hangs eighty pounds of river cobbles and his own slick weight from that peg while reaching for the net, it is scheduled by pure physics to shear flush with the wall and hurl him backward into a fresh buttress of pale feldspar.
+
+The Power does not mend the bone. If a tool cannot fail, the worker grows careless, and carelessness in this basin is death. Instead, right now at three in the morning while the camp sleeps, It shifts a single pebble’s worth of hydraulic pressure deep in the chimney. A targeted, stray ribbon of upward surge catches that rotten bone peg and snaps it cleanly *now*, in the empty dark. It shoots to the surface and washes out onto the dry rim notched between two pine poles, displaying its honeycombed, acid-eaten core in plain morning sunlight. When the woman comes up at noon, she will pick it up, curse softly behind her teeth, show the boy what deep gas does to three-year-old elk shin, and spend the afternoon hammering two fresh, green-horn pegs into sound rock a foot to the left. Knowledge is better than luck.
+
+Third, It looks down past the sixty-foot mark into the roaring, lightless throat where the hydrothermal vein is being crushed.
+
+Mountains are indifferent engines; left entirely to the blind drift of tectonic plates, a fault line like this often chokes permanently after twenty summers, sealing itself shut with a single forty-ton wedge of collapsed ceiling and turning this blinding prism into a stagnant, freezing puddle of dead snowmelt. Deep in the grinding dark—miles below where any human will ever go—the Power nudges the angle of slip along the main granite plane by less than the thickness of a thumbnail. 
+
+It does not tame the uplift; the slabs will still shear off with rifle-crack *booms*, and ninety-nine flawed stones out of a hundred will still smash themselves to sharp gravel in the vent. What changes is the longevity of the throat. The fault will not choke itself dead in this youth’s lifetime, nor in his grandchildren’s. And caught in the slow, upward conveyor of that adjusted seam is a sparse, steady scattering of strained, green-sparking nodules—never enough to glut a market, always just enough that two trips between June and September will keep three patient people in ponies, winter grain, charcoal, and valley willow, with an extraordinary piece once every seven years that lens-grinders three hundred miles away will speak of in hushed voices.
+
+Finally, the Power steps down the scree in the grey hour just before sunrise and pauses outside the low roof of overlapping horsehides.
+
+Inside, the juniper charcoal has burned down to cold white ash. The three quarrymen sleep tangled together for warmth like winter badgers, breathing slow and ragged in the thin air. Because their ear canals are narrowed to ivory pinholes against the basin's thunder, their sleep down in the quiet valleys is often haunted by a phantom ringing—a high, thin, relentless whine of damaged nerves that never quite lets the brain rest, even under timberline pines in January.
+
+The Power lays an unseen palm flat against the spike of solid granite protruding through the floor of the shelter—the same bedrock spike the older woman reads with her bare heel.
+
+Into the crystalline lattice of that stone, It hums a single, almost imperceptible harmonic. It is not a sound the ear can catch. It is a slow, deep, geological cadence conducted straight through hipbone, rib, and skull where they lie pressed against the earth—the exact counterbalance pitch to the shrill ringing inside their bruised heads.
+
+In her sleep, the forty-year-old woman’s clenched jaw loosens by half an inch. Beside her, the one-armed man stops twitching against his bindings, and the twenty-year-old boy sinks down beneath his dreams into eight straight, unbroken hours of dark, velvet quiet—the deepest rest any of them has known since they first peered over the razor lip of the well.
+
+When the sun clears the eastern peaks and punches blinding diamond geometry back down into the roaring bowl, there is nobody standing on the ridge. The spray still sheets upward in thick, glassy ribbons and snaps back like whipped canvas. Deep underwater, the slate chimes inside the willow cone hammer out their frantic, ragged *clack-clack-clack, pause, clack-clack*. Twenty pale arrowheads hang suspended in the freezing blue center, staring straight up at the sky.
+
+Forty yards down the slope, the older woman pushes back the stiff horsehide flap, blinks into the crisp glare without the usual iron spike aching behind her eyes, and pauses. Four hundred yards down the dry talus, a faint plume of sharp, green-smelling vapor is curling up from a patch of thawed shale where nothing has ever grown before. And up on the rim of the well, glinting white beside her larch-wood listening stick, lies a snapped bone peg waiting to teach them how to stay alive.
+
+She taps the young man’s good shoulder, nudges the boy’s boot with her calloused toe, and reaches for the pot of marmot grease. There is work to do before noon.

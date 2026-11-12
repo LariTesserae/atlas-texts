@@ -1,0 +1,57 @@
+My knees ache with the sap-slack, which is how I know I am forty-some years old and not a knot-jumper anymore. 
+
+Right now my left cheek is pressed flat against the wet, leathery flank of a secondary fig-cable, and the wood tastes faintly of salt and sour bark because three knuckles up-strand a herd of pad-hooves chewed the suckers off this morning and their drool has washed down in the drizzle. My big toes are hooked into a split-willow warp that someone laid down before my grandmother had teeth. It is swollen tight, good dark cambium, no rot-sponginess under the nail, though when I shift my weight my right hip hangs out over six miles of pewter nothing where a rain-cell is dumping itself sideways into a sinkhole without making a single sound.
+
+I am not with a band. You lose the rhythm for eight-person walking if you spend too long listening to the hoops, and I have spent twenty seasons with one ear on the wood and the other full of mist. My thumbs are notched deeper than most—three notches on the right, cured black with gall-paste—not for stripping green willow, which any six-year-old smeared in snail grease can do, but for catching the thin, glassy hair-roots that grow around a bad phase-seam and plucking them like lute-strings to hear how far behind the other side has fallen.
+
+They call people who do what I do—well, they don't *call* us anything, nobody wastes breath in thin air, they just tap two knuckles against the hollow behind the ear and slide the palm backward off the shoulder. *Lag-listener. Drift-minder.* The one who walks the stale-sap loops so the foraging bands don't step through an eyelet chasing almond-gliders and come out four days late with their fingernails grown long and their embers cold.
+
+At my belt—bladder-skin, slick with old fat so the creeper-hooks slide off it—I have two gourds of the strong spit, a rib-knife wrapped in dry moss, my mother’s bone awl (yellowed from knuckle-walker jaw, heavy at the butt so when you drop it in weak pull it falls point-first instead of tumbling), and a little wicker cage no bigger than my two fists cupped together. Inside the cage are three baby snails, pale as tallow, pulsing slow blue-green in their guts. You don’t eat cage-snails. You watch them. When you walk near an over-braided knot where the air has been cinched so tight the afternoon won’t drain out of it, your own heart slows down right along with your knees and you never notice you’re thickening; you think you’re just tired, you think the mist is unusually warm, you sit down to scrape a frayed lashing and while you scrape three cycles go by out on the open spans. The cage-snails tell on the air. They live fast—gulp, digest, pulse, gulp—and if you look down at your hip and that little blue gut-light is frozen mid-throb like amber gum, you back up along your own heel-marks without turning around until they start pulsing again.
+
+I am backing up right now, actually, except *back* on this lanyard is thirty degrees uphill toward a weeping three-way hub, and my lungs are pulling thin grease.
+
+Below me—or out from my belly, rather, since the pull of this cable goes crooked where it meets the rattan ring twenty paces down—hangs the hoop I came to check.
+
+It isn't one of the grand thirty-yard highway frames where whole herds cross at high turgor. It’s an old maintenance eyelet, maybe nine feet wide, slung crooked between two barge-ribs that stopped growing thicker a thousand years ago and just went iron-dark and slick. Its thorny rim is heavy with bone-calcium—white, curved spikes long as my forearm, fed from some deep burial-burl down at the root-joint. Someone laced a warning across the bottom third of it two or three generations back: a loose Cat’s-Cradle of rubbery creeper meant to trip a careless walker before their head cleared the threshold. Half the warning-web has rotted out, and through the gap, the air doesn't match.
+
+Out here, the light is tarnished tin, and the condensation runs straight down the weave into the hub-basins.
+
+Through the nine-foot ring of white thorns, the light is the color of bruised plantain-leaf—too bright, raw-looking, the way light gets when there aren't enough upper canopies yet to filter the sky-haze—and there is *smoke* in it.
+
+Real smoke. Not a hairline thread from a double-walled rind censer, sucked neat into a sink-pocket. Thick, greasy, gray-white woodsmoke curling lazily off open char, smearing across green bark that hasn't even scarred over its adze-bites.
+
+I have been squatting here in the wet moss for half a tide-slack, motionless enough that a tiny swimming midge-cloud drifted right across my shins and left my suede-skin beaded with cold water, watching nobody walk past on the other side.
+
+I haven't seen one of the Heavy-Jaws yet. Usually if you glimpse them through a slipped seam, you back off at once, wait for slack-water when the hoop goes loose and blurry, and spend two days lacing willow-blinders over it until the hole scars shut. Nobody wants a flint-chipper tumbling out onto finished twill with a fire-stick in their fist, panicked by thin air and ten-mile drops where they left half-mile gaps.
+
+Only I can’t lace this one shut yet. Because tucked into the thorny rim on *their* side, just twelve inches past the plane where the rain changes angle, is a double-walled censer of cured green rind, tied off with a three-thumb knot nobody uses except the bands from two hubs spinward of my birthplace.
+
+Someone from *now* went through. Or leaned through. Maybe chasing a dropped rib-knife before the phase slipped tight, maybe dizzy from high climbing, maybe old and cataract-blind and mistaking the smell of raw woodsmoke for a burial-burl’s cinnamon rot.
+
+My left heel drops against the fig-cable—*thup. Thup-thup.* Not loud enough to carry twenty yards through air, just enough to put a question into the tight fibers leading right up to the hoop’s outer binding.
+
+Nothing comes back through the wood. The hoop’s frame drinks the tap and loses it in the phase-lag. When I press my notched thumbnail into the wet rattan at the rim and lay my jawbone against my knuckles so the sound goes straight into my teeth, I hear the sap-tide on the other side—and it is groaning *up*, hard and angry and young, while under my toes on this side the tide has been ebbing for two hours. Half a cycle out of step. If I push my arm through to grab that censer, the blood in my wrist will want to move slower than the blood in my shoulder; pull back too fast and your fingers stay numb and clumsy for a month, tingling like slept-on meat.
+
+A shadow crosses the pewter gloom overhead—no sound, just a brief dimming of the wet shine on my forearms as forty or fifty almond-gliders bank wide around the gravity-kink of this junction, their pale bellies rippling like water-skins as they catch a warm thermal rising out of the void. One of the trailing young ones misjudges the sideways pull near the hoop, clips an aerial root curtain with its outer rib-tip—*shhh-pat*—rights itself without a cry, and slides away down-gulf.
+
+Where the glider brushed the root-curtain, fifty fat drops of trapped fog shake loose. Half of them fall straight past me into the miles of mist. Four of them catch the crooked pull of the thorny ring, drift sideways across my chest, cross the threshold into the greener light, and *hiss*—actually hiss, a tiny sharp sound I haven't heard outside a hollow cooking-burl—as they hit hot gray ash just out of sight below the rim.
+
+My cage-snails are still pulsing. *Blue, dark, blue, dark.* Good air on my side.
+
+I unstopper the smaller gourd at my hip with my teeth, spit a fresh mouthful of my own thin saliva into the fermented paste to wake it up, and stir it with the butt of my mother’s bone awl until it stinks sharp enough to make my eyes water. I don’t smear it on willow-shoots to blind the hole. Not yet. Instead, I pull three long, pale creeper-leaders out of the slack weave beside my knee—living ones, still full of milky sap—and coat six inches of their raw tips with the blistering paste.
+
+You don't reach your hand into another century's fire. You let the wood do it; wood doesn't care how fast an afternoon drains, so long as its roots stay wet.
+
+Moving on three points—left foot cramped hard around the fig-warp, right knee wedged into a healed adze-pocket, left hand anchoring my heavy chest close to the bark so the thin air doesn't set my ribs heaving—I lean out over the crooked drop and tuck the three pasted creeper-tips directly into the thorny calcium rim of the hoop, angling their bruised noses across the seam toward the frayed lanyard of that lost censer.
+
+The paste bites the old rattan immediately. A tiny bead of amber gum oozes out; the creeper-tips twitch like blind worms tasting salt. On my side of the rim, they barely swell. Half an inch further, where their wet green noses cross into the raw plantain-light and the rising young tide, I watch them *jump*—drinking fast, angry turgor out of the mismatch, lengthening the width of a thumb while I hold a single breath, curling greedily toward the smell of cured rind and glider-dung tallow.
+
+If nobody kicks them loose over there, by next slack-tide they’ll have wrapped that censer’s strap and dragged it snug up against the white thorns where I can hook it out with a dead stick without putting skin across. And if the Heavy-Jaws *do* come back along that green span before then, carrying their black stone choppers and smelling of singed hair—well, they’ll only see three wild creepers choking an ember-pot someone left behind, which is just what this place does to anything you set down for five minutes.
+
+I stopper my gourd. My fingers are shaking slightly from holding weight over the kinked pull, so I tuck both thumbs under my armpits where the skin is warmest and slide ten paces back up the lanyard into the lee of the hub-knuckle.
+
+Inside the fold where the two barge-ribs fuse, there is a shallow cup worn smooth by a thousand backsides just like mine, sheltered from the sideways drizzle by an overhang of pale, waxed reed-leaves. A tiny rill of sweet bark-water threads right past my ankle. I scoop two palmfuls to wash the sour herbivore-spit taste off my mouth, check my snails—*blue, dark, blue*—and press my spine flat against the massive, swollen curve of the joint.
+
+Deep inside the dark heartwood behind my shoulder blades, three feet past the wet cambium, the big xylem tubes are beginning to quiet down at the bottom of the ebb. Yet right behind my left kidney, there is a hard, smooth lump in the grain that stays warmer than the surrounding wood—an old curl in the fiber where some cataract-blind grandmother tucked her knees to her chin five hundred tides ago so this exact arch wouldn't twist out of true when the squalls hit from below.
+
+I tap my heel twice against the lump, very softly, just to let the timber know there is weight on the path that knows how to step light. The wood doesn't answer—wood isn't ghosts, it’s just tension and memory—but the tiny tremor goes down into the giant knot, turns neatly around the buried curve of her ribs instead of scattering into the mist, and comes back up through the soles of my webbed feet, steady and warm, holding me fast against the nothingness while I close my eyes and wait for the sap to turn.

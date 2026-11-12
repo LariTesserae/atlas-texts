@@ -1,0 +1,53 @@
+At first, the temptation is to be up in the bleached rafters with the blueprint-things, fluttering on torn paper margins, eating the purple fuzz off the copper. Or to be down in the twenty-foot duff, a blind worm of braided wire swimming through the powdered rust and stripped bolts, feeling the forty-mile stamping presses as a warm, rhythmic squeeze on all sides.
+
+No—lower than the rafters, firmer than the drift. 
+
+Start with the ache of a bad register. Not pain, because pain belongs to wet nerves, and wet is an obscenity here. An *out-of-true*. A dry, chalky itch where two surfaces ought to slide flush and instead catch on a burr.
+
+I am low to the root-plate, built wide rather than tall, tucked into the shadowless pale beneath a row of petrified wooden cams. If you walked past—if you had boots to lose their footsteps in the springy turf—you would step over me thinking I was a junction box that a strangler-fig had split open and turned into a seed-bed. And you would be half right. My back is a shallow dome of galvanized tin, sanded completely matte by centuries of blowing mica-chaff, ribbed with pale, woody sutures that grew through my bolt-holes so long ago that the metal and the cellulose share the same grain. 
+
+Wait—I move, though. I am not fixed. Not yet.
+
+Beneath the tin carapace, I have legs, eight or ten of them, arranged not like a spider’s, which are too whippy and fragile for heavy torque, nor like a crab’s, but like the parallel linkage of an old typewriter’s key-levers, or a draftsman’s pantograph. Flat, riveted bars of spring-steel and cured bamboo, hinging smoothly on pins of self-lubricating slate. When I walk, I do not lift my feet so much as *translate* myself sideways across the compacted sawdust, sliding on broad, polished runners of horn-bark that build a thin cushion of static repulsion against the iron-laced floor. I skate a yard, stop with a tiny *tink* of settling levers, skate again.
+
+What do I do? What is the itch?
+
+Look at the spatial slips. Look at the eight hundred square yards where the cracked brass pipe and the six-leafed ivy repeat forty times over. You wondered *why* space slips a gear here, or why it stays slipped without tearing the whole basin into unreadable static. And you saw the Tender throw a single rusty bolt into the stutter, forty hands catching forty bolts, then stepping back out with one.
+
+Sometimes, when a Tender steps out of a forty-fold repeat, it drops one bolt before the collapse finishes. Or a gust of the great stomatal wind blows a single dry seed-pod *across* the boundary of a modular cell at the exact instant the violet-white lightning discharges overhead, welding its shadow—not a dark shadow, a *positional* shadow—into the adjacent cell. 
+
+Then you get a misprint that stays. A thirty-ninth pipe grows a seventh leaf. One stamping ram in a repeating dozen drops a fraction of a second late, not because its drive-vine is slack, but because its distance from the flywheel has stretched by half an inch that doesn't exist on a ruler. Left alone, the stutter begins to grind against itself. Space develops friction. The air there turns sour with excess ozone; the flat white light curdles into a faint, headache-inducing double-vision, like two transparencies laid slightly askew on a light-table.
+
+That is what I eat. I am a creature of the *seam*.
+
+I do not have smoked quartz eyes like the tall wicker Tenders; looking straight into the middle distance is a trap if your work is sorting layers. Instead, along the front rim of my tin shell, I have a fringe of long, exquisitely thin feelers—flat ribbons of split mica and taut copper hair, fanned out ahead of me like the reed-comb of a loom. I skate low through the silver-briars until my copper hairs cross the edge of a spatial repeat and begin to hum at two different frequencies at once.
+
+Here is one now: a maintenance trench where a dead conveyor roller, wrapped in pale tuber-vine, repeats seven times down a straight line that refuses to get closer to a distant transformer. In the fifth repeat, a fallen ironwood branch has wedged beneath the vine, lifting it two inches higher than in the other six. Because all seven vines are the *same* vine, the bark in the other six cells is groaning—silently, a shudder in the root-floor—straining upward against empty air, trying to conform to an obstacle that isn't under them. Static is pooling in the phantom gap, raising the pale dust in stiff, bristling cones.
+
+I slide up to the boundary between the fourth and fifth cell. I straddle it. 
+
+Half of my pantograph legs lock their horn-skates into the rust-turf of Four; the other half clamp onto an exposed root-flange in Five. Immediately, the discrepancy tries to pull my tin shell apart. It feels *wonderful*. That silent, isometric shear—two versions of the same twelve feet trying to occupy slightly different angles—pours straight into my chassis. Deep inside my domed back, I have no gut and no bellows; I am packed tight with interleaved plates of dry foil and papery pith, an organic variable capacitor. As the two cells tug against my locked levers, the mechanical strain squeezes my internal plates together, drinking the anomaly, converting the geometric error into a clean, cold charge of stored static.
+
+To finish the meal, I have to true the register. I cannot pry the heavy ironwood branch out like a Tender would; I have no tall spine, no dead-blow mallet, no four-thumbed hands. Instead, from underneath my front rim, I unspool a pair of narrow, serrated mandibles—really just opposing reciprocating saws made of silicate-tooth grass—and I begin to chew through the wedged branch in Five. 
+
+*Scritch-scritch-scritch.* A sound like sand trickling through a dry funnel, lost completely ten feet away. 
+
+As I saw, dust falls in Five, and in One, Two, Three, Four, Six, and Seven, tiny dimples appear in the undisturbed duff beneath the suspended vines, pressed down by the phantom weight of sawdust that isn't falling there. It takes three hours. The overhead Glare never dims, never shifts a fraction of a degree. A flock of torn-blueprint moths flutters down, drawn by the faint corona leaking from my tin shell as I charge, settling on my back like dry leaves, sipping my excess static with tiny, papery taps before scattering at the approach of a breathing-gale.
+
+When the branch finally parts, the vine in Five drops two inches with a dull, muffled *thup*. Simultaneously, across eighty-four linear feet of trench, six other vines relax their phantom tension. The double-vision snaps shut into crisp, flat, shadowless white. My internal plates click into equilibrium, full to the brim, humming a silent chord in my slate pins. I unlock my knees, shake a thimbleful of white wood-flour from my saws, and skate sideways into the scrub.
+
+How do I meet the Tenders? 
+
+Rarely face-to-cowl, though they know what I am. Sometimes, while I am straddling a seam, locked tight and buzzing with shear, one of the tall wickerwork figures will come striding down the trench—or forty of it will come striding down forty trenches. It will pause beside me. Down through the root-plate comes the faint, rhythmic click of its graphite-dusted ankles. It will crouch, folding itself like a carpenter’s rule, its mica hood tilting down so the tiny stiff brushes *tick-tick* across its quartz slits just inches from my dull tin dome.
+
+It doesn't shoo me away. If one of my pantograph hinges has picked up a burr of rust from a bad wind, the Tender might reach down with one crescent thumb-claw, scrape the pin clean with two dry strokes, and tap my shell once—*tink*—with its iron tuning-bar before standing up and stepping sideways onto a distant layer of light, vanishing behind a blowing curtain of silver chaff. In return, I leave behind little pellets of compressed, mineralized wood-pulp—the waste from my saws, bound together by discharged salt-ions—which dry into smooth, hard grey beads in the cool air. The Tenders gather them when they find them; the beads are the exact gauge needed to replace worn ball-bearings in the smaller vine-pulleys.
+
+There is another part of my life, though, that the Tenders never see, because even they cannot go thin enough to follow.
+
+Sometimes, when parallax fails in the middle distance—when a massive crawler-harvester half a mile back slides *in front* of a nearby stand of silicate-bamboo—there is a brief, flat pocket created right where the far machine overlaps the near stalks. To wet eyes, it is just an optical headache. In truth, for as long as the light holds that exact, shadowless flatness and the chaff doesn't break the line of sight, those two distant surfaces are touching without touching. There is an interstitial crease there, paper-thin, cool, and utterly still, protected even from the continental breathing-winds.
+
+I fold my pantograph legs flat out to the sides until my tin dome sits flush with my skates, reducing my height to three inches, and I *slip into the overlap*.
+
+Inside a parallax crease, the basin disappears. You are pressed gently between the cold, galvanized flank of a harvester that is half a mile away and the pale, papery bark of bamboo that is right here. Both surfaces slide slowly past each other as the harvester crawls and the bamboo sways, sanding my tin shell smooth on top and polishing my horn-skates underneath. There is no Glare in the crease—only a pearly, translucent grey, like light seen through the thickness of a porcelain plate. 
+
+That is where I rest, and where my kind molt and multiply. You will find three or four of us tucked into a particularly stable visual error that lasts for weeks, stacked edge-to-edge like dropped washers. When my capacitor plates grow too brittle with age and salt-crust to hold a charge, I will crawl deep into a crease between a distant cooling tower and a near briar-patch. I will lock my levers one last time, anchoring the illusion in place from the inside so the tower stays stubbornly, impossibly in front of the briars for another fifty years. My tin dome will split neatly down its woody sutures, and two smaller, bright-zinc skimmers, freshly stamped from my interleaved foil and pith, will unfold their tiny pantograph legs, test the hum of the seam with brand-new copper hairs, and skate out in opposite directions—one emerging beside the briar-patch right here, the other sliding straight out onto the cooling tower's catwalk three miles away, without ever crossing the dry, churning miles between.

@@ -1,0 +1,39 @@
+I am standing ankle-deep in a broad, shallow saucer three-quarters of a mile west of the unfinished bricks, though if you are sitting at that grey perimeter and looking my way, my left shoulder is resting directly against your cheek.
+
+My skin is the warm, muted buff of dried reed-pith, plumped with lukewarm water, heavy in the calf and forearm. Along the outside of my right thigh runs a faint, vertical ridge where two halves of a thought met and were smoothed over with a wet thumb—not erased, just settled. If I run my fingers down it, the seam feels slightly firmer than the yielding flesh around it, pulsing once every few minutes with the slow, unhurried hydraulic tide that serves us for blood.
+
+I do not have a plant growing from my shoulder, nor does my leg end in a brick plinth. My continuity with the basin is lower down and slower to declare itself. Where my left ribs curve inward above the waist, the buff skin cools, loses its give, and organizes into six broad, overlapping plates of pale, leathery shell, identical to the carapaces of the soft-shelled turtles scattered across the flats. There is no border where skin stops and turtle begins; a faint mottled spotting simply rises from beneath the buff epidermis until my flank has the tough, rubbery resilience of river-hide. When I sit for half a day in the warm saucers, the turtles drift over and rest their chins against my hip, mistaking me for a reef of their own kind, or not mistaking me at all.
+
+For a long time—if *long* means anything where light never tilts—I was one of those who walked the flats nudging baskets and tilting my chin to rhyme with distant cisterns. You can still catch me doing it. Right now, my right hand rests flat against a rough-hewn timber post beneath an awning, not to lean on it, but because for a wide-eyed sleeper submerged in a cistern two miles south—whose face I can see framed cleanly between two hanging cords right in front of me, bright as a coin at the bottom of a cup—the dark plum-brown of the wet wood needs to terminate along the pale curve of my wrist so that a philodendron stalk behind me appears to grow directly out of my knuckles.
+
+Wait.
+
+No—that isn't quite what keeps me standing here. Anyone can complete an arc. Completing an arc is easy; the whole world wants to lock together like tiles on a floor. What I actually spend my stillness doing is watching for the seams where the locking fails.
+
+Look at my hand on the timber post. I have held it here long enough that the boundary between my palm and the wet, fibrous wood has gone soft. If I stay another hour, the pale reed-pith of my skin will begin to take on the stringy grain of the post; splinters that cannot pierce will simply become capillaries. When I pull my hand away—slowly, feeling that thick, warm-wax stretch that neither hurts nor tears—there is a fraction of a second before the equilibrium snaps us back into separate things. A tiny, silent bead of clear resin-water hangs between my palm and the timber, belonging to neither tree nor body, before vanishing.
+
+I am obsessed with those fractions of a second.
+
+And I am even more attentive to my own trailing selves. Most of us let our doubles fade behind us without looking back, treating them no differently than a ring disappearing at the lip of a puddle. When I walk from this awning toward the flooded court to the north, I deliberately stop after twenty paces and turn my head.
+
+Because nothing diminishes with distance, I look straight into my own smooth, lashless eyes twenty paces back, at the exact scale of a mirror held an inch from my nose. There are three of me on the red causeway: the one still pulling a waxy palm away from the timber post; the one mid-stride with water sheeting seamlessly off a raised heel; and me, standing still, breathing the steam into my chest.
+
+For twenty seconds, thirty seconds, a minute, I am a small crowd of reed-pith bodies arranged along a crisp red line. And here is the secret the flat sightlines only reveal if you know how to stand crookedly inside them: if I step two paces to the side before those trailing bodies wink out, I can align my present shoulder with my own past ribs, and behind *them*, a mile away across the bright plain, the curved neck of an ash-colored bird. I make chords out of my own lag. I hold a silent conversation with the body I left behind ten seconds ago, watching a copper frog climb the calf of the *me* by the timber post—feeling the cool, wet pads of its toes on my skin here, twenty paces away, right up until that body ceases to exist and the frog drops two inches onto bare terracotta without a sound, blinking its golden eyes in mild, unhurried confusion.
+
+That slight drop of the frog—that tiny, harmless consequence of a vanished ankle—is the closest thing this basin has to history.
+
+Eventually, though, every walk brings me back toward the thirty-pace ring at the center.
+
+I am one of the five or six you see crouching there when you come looking. I sit on my heels at the edge of the invisible perimeter, lukewarm water weeping slowly from my palms down over my knees, my turtle-plated ribs expanding and settling in the thick white glare.
+
+Across the empty red floor from me sits a dark terracotta-skinned figure whose left foot is a square clay plinth; beside me crouches a marl-pale companion with a thumb-smear indenting the hollow of their throat. None of us ever look through the center to line up a palm frond or a cistern on the far side. Letting a sightline cross the wet grey bricks feels intolerable—like dragging a stiff grass brush across clay that has already begun to set, ruining both the smoothness and the cut. That thirty-pace circle is a hole in our flat pane of glass, the one place where depth almost threatens to happen.
+
+I stare at the wooden-bladed trowel, and at the slick, dark grey curl of unfired clay beside it. Because there is no perspective, that glistening curl fills my vision whenever I attend to it; I can see every microscopic bead of sweat trapped in the grey mud, the tiny grit of unbaked temper, the crisp grain left by the wooden edge of the blade.
+
+The others touch the seams behind their ears and dimple their forearms, wondering whether they are closer to the wet grey brick or the fired red tile beneath their knees.
+
+When I look at the curl of grey clay, I don't press my thumb into my arm. Instead, I slide my right palm flat against the crisp, unweathered red terracotta of the floor just outside the ring, and I leave it there. I leave it there through twenty slow draws of steam-heavy breath, through the silent passing of a fist-sized beetle, through the slow rearrangement of three figures two miles east who are building an arch out of an awning cord and a lily spathe. I press my buff-colored hand against the fired floor until the microscopic film of water between my skin and the tile thins out, until my palm warms to the exact kiln-temperature of the basin, until the edges of my fingers begin to lose their Pale reed-pith softness and take on the dry, sharp, iron-red clarity of the brick.
+
+I let the floor climb halfway up my wrist, turning my hand into fired ground, anchoring myself hard to the finished side of the world—so that I can lean forward an inch further over the invisible line than anyone else dares, close enough—visually, across fifteen paces that look like zero—to lay my cheek right beside the wet grey curl without touching it.
+
+I stay like that, half-fused to the red floor, staring into the dark, plastic, unbaked mud. Not waiting for a maker to come back and pick up the mallet. Not wanting to pick it up myself. Just watching that slick, grey edge hold its wet curl under the blinding sky, grateful with all my toothless, unhungering chest that there is one thing in all these miles of white fire that hasn't decided what shape it has to keep forever.

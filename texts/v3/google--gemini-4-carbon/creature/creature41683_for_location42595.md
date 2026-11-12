@@ -1,0 +1,63 @@
+To find what actually rules this basin—or what passes for a resident in a place where even the paving stones are buried under three feet of cold, clicking meat—you have to stop looking for things that walk *on* the carpet of fauna and start looking at the faults *within* it.
+
+On the broad, tilted expanse of a middle-tier plaza, where the metallic brine sheets ankle-deep over packed ridges of iron-shelled bivalves, there is a patch of bare metamaterial. It is roughly circular, four meters across, and completely clean. Around its perimeter, the Hound-crabs and flagstone-snails are piled in a steep, glistening embankment, tumbled over one another as if bulldozed aside, their blind sensory bristles twitching frantically away from the clearing. 
+
+In the center of that bare, shifting hexagon-tile sits a heap of wet, slate-grey plates that looks, at first, like a collapsed cairn of sheared basalt. 
+
+It takes twenty minutes of staring into the pitch dark—or rather, twenty minutes of listening to the way the local echoes warp around its density—to realize the cairn is breathing. Not air, and not quickly. Every seven or eight minutes, a seam parts along its lower margin, sucking in two gallons of heavy, freezing brine with a low, hydraulic *glug* that briefly harmonizes with the deep phase-pumps beneath the street. A minute later, the brine is expelled through dorsal vents as a fine, warm aerosol that smells sharply of stripped copper and ammonia.
+
+They have no eyes, no faces, and nothing resembling a vertebrate spine, though if you were to prise one open—a task requiring industrial cutting gear—you would find a bilateral symmetry buried deep inside the mineral rind. Locally, if anyone were here to name them, they might be called the **Dredgers**, though that implies a mindless utility. It is more accurate to think of them as the city’s somatic memory, or perhaps its tenants who refused to leave when the sea floor was torn loose and shoved two kilometers into the freezing sky.
+
+A Dredger is massive, weighing somewhere between one and two metric tons, most of that mass concentrated in a broad, muscular foot-mantle armored in overlapping scales of biologically forged magnetite and scavenged metamaterial dust. They do not fight the cold like the frantic, starving mats of worms and crabs that coat the towers; they *run* hot, powered by an internal, biological containment of the very heavy isotopes the brine leaches from the city's cooling trenches. Where a crab takes ten minutes to move an inch because its hemolymph is thick as slush, a Dredger moves slowly by choice, by sheer monumental inertia, gliding on a secreted cushion of non-freezing mucilage and strong local diamagnetism. When it decides to cross a viaduct, it parts the packed, multi-layered reef of sessile life like an icebreaker moving through pack-ice. Shells the size of torsos shatter with reports like pistol shots under its prow; crushed pale meat spills into its wake, triggering a slow-motion feeding frenzy among the blind scavengers trailing twenty yards behind it.
+
+Yet the Dredgers do not eat the crabs, nor the bivalves, nor the drifting, armored siphonophores. If a stray worm-mat falls onto a Dredger’s dorsal plates, the creature simply shivers a localized magnetic field across its skin, snapping the worms cleanly off with a sharp scent of ozone. 
+
+Watch one at the base of a great induction cable, and its nature begins to resolve.
+
+The Dredger presses its broad anterior flange directly against a massive, redwood-thick conduit where a three-foot crust of iron-sulfide barnacles has choked a thermal bleed-valve. From beneath the Dredger’s heavy mineral skirt uncoils a bundle of manipulators. They are astonishingly fine—dozens of glistening, dark-violet tendrils no thicker than piano wire, tipped not with claws, but with hard, crystalline nodes of tourmaline and biological superconductors. Moving with sudden, eerie speed that belies the sluggish bulk of the parent body, these filaments whip through the freezing mist, slicing cleanly beneath the cemented bases of the barnacles. They do not tear; they vibrate at precise ultrasonic frequencies that shatter the calcium-iron bond between shell and city. 
+
+Within four minutes, half a ton of encroaching reef falls away into the dark abyss below, clattering down the tiered walls for seconds before hitting the gorge floor. 
+
+Exposed now is a seamlessly joined inspection plate of matte-black metamaterial. The Dredger settles closer. Its violet filaments weave together into a thick, braided cable and plunge directly into a hairline seam that should not be wide enough to admit a razor blade. For an hour, nothing visible happens. Above, a colonial siphonophore drifts past, its stinging inductive tentacles dragging right across the Dredger’s back; the Dredger does not flinch, absorbing the stray voltage into its grounding skirt. Deep inside the conduit, the city responds to the creature’s touch. A sluggish valve miles away groans shut; the pitch of the great phase-pumps shifts down a third of an octave; the hexagonal tiles of the plaza six hundred meters overhead suddenly arrest their millimeter creep, locking flat. 
+
+When the filaments withdraw, slick with conductive grease and glowing faintly with residual Cherenkov blue before the cold air quenches it, the Dredger consumes not the fallen barnacles, but a thick, bitter-smelling paste of spent heavy-metal catalyst extruded directly from the conduit’s purge-port. 
+
+This raises the inevitable question: did the Dredgers build this windowless metropolis, or were they bred as maintenance livestock by masters who vanished when the fault basin rose?
+
+Wait long enough in the roaring dark, where two viaducts intersect in a sheltered lee out of the worst of the cascading brine, and you will witness a parliament.
+
+Three Dredgers have converged here. To reach this spot from different ends of the valley has taken them the better part of a month. Around them, the ambient temperature rises four degrees—enough to turn the supersaturated fog into a localized, swirling vortex of warm mist that draws thousands of tiny, translucent, blind shrimp-like creatures fluttering through the air on membranous fins, bathing in the rare heat before freezing again as they drift outward.
+
+The three great mounds of black scale and violet muscle pull themselves together until their grounding skirts overlap, forming a single triangular footprint twenty feet wide. They do not speak with sound; trying to communicate acoustically in a valley that roars at a continuous hundred decibels of falling sludge and snapping shells would be useless. Instead, the air around them begins to pull at iron. Loose basalt grit skitters away from their flanks. If a human stood ten yards away, the fillings in their teeth would ache, and phantom, colorless phosphenes would bloom behind their optic nerves.
+
+The Dredgers are speaking in modulated magnetic fields and tight-beam piezo-resonances driven straight through the hexagonal floor tiles. 
+
+And what they are doing is *arguing over architecture*.
+
+They are the builders. Not fallen, not devolved into beasts, and not mournful survivors huddling in the ruins of a golden age. To look at their heavy, slug-like silhouettes and assume primitivism is an error of creatures who live in thin, warm air and judge mind by speed and light. 
+
+Before the uplift, two thousand meters down in the crushing, lightless benthic trenches of an ocean heavy with metallic salts, their civilization had already perfected the slow, pressure-forged physics of pinned stress-fields and non-Euclidean load-bearing. Eyes were never evolved because there was never anything to see; windows were never cut because a window at four hundred atmospheres is a structural failure; streetlamps were never hung because magnetism and acoustic shadow show the interior of a wall far more clearly than photons show its skin.
+
+When the planet’s crust violently buckled—tearing an entire metropolitan plate loose from the abyssal plain and jacking it two vertical kilometers into the freezing sub-aerial dark—it should have been an apocalypse. Their ocean drained away down the newly fractured basalt cliffs in geological instants. The pressure dropped to a murderous near-vacuum by benthic standards. The temperature plummeted thirty degrees below zero. 
+
+They did not evacuate. They simply adjusted the city’s clocks and sealed their own skins.
+
+Over the generations it took the fault block to finish rising, the citizens re-engineered both their infrastructure and their own heavy mantles in tandem. They repurposed the great abyssal current-turbines into atmospheric condensers, bending magnetic flux to milk the freezing mountain cloud-deck for every drop of heavy moisture, recycling the ancient salts through closed-loop trenches so the streets would still run slick with unfreezing abyssal brine. They thickened their dorsal shells with excreted magnetite to hold in their internal pressures against the thin mountain air. They slowed their hearts, damped their metabolic fires to match the lean harvest of the high clouds, and stretched their thoughts out across weeks to fit the new economy of energy.
+
+To them, the choking, miles-wide infestation of blind crabs, giant bivalves, and drifting siphonophores—the displaced abyssal wildlife that survived the uplift by clinging to the city’s warm, wet plumbing—is neither a plague nor a tragedy. It is merely weather. It is sediment made of chitin instead of silt, something to be scraped off a valve when it restricts flow by more than twelve percent, and ignored when it doesn't.
+
+High above the plaza where the three elders commune in silent, brain-numbing waves of electromagnetic syntax, something else moves through the dark.
+
+Not everything in their society is two tons of ancient, reactor-fed contemplation. Clinging to the sheer, vertical underside of a matte-black cantilever three hundred meters above the gorge are the **Spindles**—the larval, un-shelled castes, or perhaps simply the young. 
+
+No larger than human forearms, streamlined and pale as stripped nerve-tissue, they have not yet grown the heavy magnetite armor or swallowed the isotope cores that will anchor them to the floors for centuries. They live in the roaring slipstreams of the vertical brine-falls. Dozens of them dart and flick through the sheets of thick, oil-cold runoff with terrifying, whip-crack velocity, burning through violent bursts of chemical energy before dropping into torpor to recharge against an induction coil. 
+
+Unlike the elders, the Spindles hunt. 
+
+With long, needle-sharp raptorial filaments crackling with stored static, a pack of four Spindles weaves effortlessly between the deadly, trailing inductive tentacles of a drifting siphonophore. They strike in unison—four tiny, blinding sparks of violet light in the pitch dark, instantly swallowed by the fog—severing the colonial organism's gas-bladder vents. As the massive, armored cylinder loses buoyancy and tilts, beginning its slow, catastrophic plummet toward the crowded rooftops below, the Spindles ride it down, stripping the mineral-rich neural rings from its core before leaping clear onto a braided conduit seconds before impact. 
+
+Below, the siphonophore hits a sloped terrace with a wet, booming crash that echoes off the razor-sharp basalt cliffs, scattering hundreds of sluggish Hound-crabs. Within an hour, the blind scavengers will begin their glacial creep inward to feast on the wreckage.
+
+And fifty yards away, the three heavy elders break their magnetic lock. Their decision—perhaps a three-decade plan to extend a new cantilever across the eastern fault-scarp to catch a shifting wind-shear of heavy mist, or a subtle tuning of a foundation anchor to relieve stress on a cracking basalt shelf—has been entered directly into the city’s resonant grid. Deep beneath the stone, a phase-pump changes stroke. Across the valley, ten thousand hexagonal tiles rise by half a millimeter, shedding a sheet of dark brine to the left instead of the right.
+
+One of the Dredgers turns its two-ton bulk toward the cliff wall. Slowly, inexorably, its violet filaments reach out to taste the raw, unweathered volcanic glass of the mountain, mapping the grain of the young stone in absolute darkness, calculating where the next monolith will grow—completely indifferent to the million cold, clicking shells it crushes beneath its skirt along the way.

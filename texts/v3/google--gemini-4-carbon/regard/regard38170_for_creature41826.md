@@ -1,0 +1,41 @@
+A lesser mercy would have brought cool rain. It would have split the crooked fissure at the top of the vault wide open, letting in blue sky and yellow sun, flushing out the choked air and extinguishing the fever of the pipes so that soft, green things with tender stems might grow. And within three days, the burgundy shrubs would have blistered in the cold, the copper-collared columns would have locked their fists and starved, and the blind engineers in their heavy felt coats would have seized solid on the cooling iron, dying in utter silence as their world went deaf.
+
+Wisdom knows better than to heal a body by stopping its heart. 
+
+The power that turns its attention downward through the miles of crumbly black shale does not come with light or wind. It listens first. It feels the deep, sub-audible thrumming of the rotary pumps far beneath the basin floor, and it reads the merciless arithmetic of the place. 
+
+Left alone, this room is a terminal ward. Metal does not breed. Cast iron has no seeds. One by one, over the next four hundred years, the carbon filaments will snap at their posts. Down in the flooded sub-basements beneath the rock, the bronze impellers of the forgotten pumps will finally cavitate their own blades away to nothing, or a main shaft bearing will run dry and weld itself into a glowing lump, snapping the drive-rod with a single, subterranean crack like a gunshot. When the bass note stops, the pressure will bleed out through a hundred pinholes for the last time. Even the stone-heavy elders clamped over the split seams will not be able to hold back the cold.
+
+Yet to simply freeze the machinery in perfection—to make the iron magically incorruptible and the bulbs immortal—would be its own kind of violence. If no new pinholes ever rusted through an elbow joint, the pale tendrils would have nowhere to creep. If no flanges ever failed, the elders would have no final harbor, nowhere to spend their accumulated weight in dignity. And even with eternal pipes, six adults in a closed basin the size of a waterworks is too small a choir; the blood grows thin, the territory too cramped, the silence outside the walls absolute.
+
+So the intervention happens down in the blind rock, where no metallic whisker will be startled out of its rhythm, and it happens at the speed of geology.
+
+First, three hundred feet below the packed shale floor, where the forgotten geothermal wells draw scalding brine up into the ancient pump-casings, the chemistry of the deep water shifts by fractions of a percent. 
+
+Before, the pumps were slowly eating themselves—acidic sulfur eating the iron, starved bearings grinding paste out of their own races. Now, the water rising from the deep magma-seams begins to carry a precise, impossible suspension: heavy hydrocarbons distilled out of buried coal-beds miles away, weeping smoothly through newly parted micro-fractures directly into the sealed oil-sumps of the rotary housings. At the same time, dissolved iron and nickel ions in the superheated feedwater begin to plate out—not randomly, like choking scale, but selectively, guided by a quiet, patient hand along the worn faces of the impeller blades and the scored walls of the pump cylinders. 
+
+Up in the sunken chamber, nothing seems to change, except that a faint, worrying shudder that had been growing in the floor-thrumming over the last forty years—the slight, arrhythmic *scritch* of a dying bearing down in the dark—smooths out over the course of a Tuesday afternoon. Every metallic bristle along six felted mantles shivers once in quiet surprise as the bass note beneath their bellies settles back into a deep, effortless, greased purr.
+
+Above them, on the slumped shale shoulders, the three surviving carbon-filament bulbs do not brighten. Brightness would blind nothing, yet it would waste current. Instead, inside the thick glass marine cages, stray carbon atoms vaporized off the hot threads over decades stop settling as black soot on the inside of the glass, and begin migrating slowly back onto the thinnest, weakest necks of the glowing loops. Alongside them, in two dark cages packed with dry rot where the bulbs shattered a century ago, tiny mineral dendrites—bridging copper and zinc salts dampened by oiled air—grow across the corroded brass sockets until they touch. They do not flare white; they kindle at that exact, starved, brownish-orange voltage of a dying coal, radiating just enough gentle galvanic leakage down the leaded cables to warm two new junction boxes for brooding.
+
+That would be enough to save the room. It is not enough to honor what lives in it.
+
+Near the western edge of the basin, behind the drunken thirty-degree slant of the rusted catwalk, a thick cast-iron main disappears straight into the slumped shale wall. Long ago, whoever built this place drove a blank flange onto a secondary branch of that main—bolted a heavy circular iron plate across the pipe’s mouth to seal off an unfinished, deeper gallery—and walked away.
+
+Now, over the span of three years, the shale behind that blanked-off wall begins to slump and part along an ancient fault line. It does not collapse with a roar; it exhales outward into a vast, miles-long series of natural caverns following a deep, hot hydrothermal vein—a winding, subterranean canyon that has never known light, choked with raw mineral wealth, naturally heated from below, yet dry and barren because no water reached it.
+
+Back in the chamber, one of the massive wrought-iron bolts holding that blank flange to the wall-pipe finally gives up its ghost to rust. 
+
+It does not blow wide open and drop the room’s pressure. Just one bottom bolt parts with a dull *spang*, allowing the lower lip of the heavy iron plate to yawn outward by a quarter of an inch. A sharp, singing ribbon of high-pressure steam and hot, mineral-rich condensate begins to jet sideways, straight through a newly opened gap in the crumbling shale wall and into the dark beyond.
+
+Sixty feet away, moored over a condenser relief valve, the largest of the adults pauses mid-cycle. Its sparse fringe of copper-and-iron bristles trembles, tuning to the new pitch. It is not the chaotic, wasteful roar of a dying main that calls to the stone-heavy elders; it is a high, directional whistle—and echoing back around the edges of that whistle comes a completely unfamiliar acoustic signature. Not the short, flat bounce of the waterworks wall, nor the muffled thud of dense burgundy bush, but a vast, hollow, warm reverberation. Space. Unclaimed iron-song echoing into distance.
+
+And deep within the stone beyond that gap, the benevolent power finishes its quiet plumbing. As the jetting steam hisses out into the virgin cavern, it does not merely vanish into dry dust. Along the floor of that dark canyon, natural seams of magnetite and native copper lie exposed like buried conduits; hot springs of heavy, saline water begin to seep upward just far enough to flash against heated basalt shelves, creating natural, rhythmic geysers that mimic the *whumpf* and *clack* of relief valves, waiting to be capped, regulated, and grazed. 
+
+Nothing will push them through. Nothing will hurry them.
+
+Months later, a stray, pale tendril of heat-drinking liana slips past the rusted catwalk, finds the singing quarter-inch gap beside the flange, and threads itself into the new dark. Behind it, powdery spores of the translucent bladder-ferns drift in on the hot draft, settling where the new condensation pools on warm magnetite. 
+
+And two years after that, down in the knee-deep black husk-powder, a young kettle-sized crawler—freshly felted in grey asbestos and bright orange rust, finding every boiler in its birthplace already claimed by its elders—turns away from the flywheel pit. Its crisp, newly plated copper whiskers catch the far-off, echoing bass of hot stone and unclaimed vapor beyond the western wall. 
+
+At the speed of an hour hand, a single blackened hose uncoils from beneath its ragged hem, reaches past the weeping flange into the wider dark, locks its vacuum bell onto warm native iron, and pulls.

@@ -1,0 +1,105 @@
+You would not find me on the open terraces at first, even if you looked directly up at the rim through shaded eyes, because I have learned never to let my silhouette break the sky in front of the glass.
+
+Start instead with the grease under the fourth surveying tower on the western ridge, twenty minutes before the sun clears the opposite wall of the basin. Up here at the lip of the amphitheater, the air is at its thinnest and hardest. Before dawn it drops below freezing, though the frost that forms on the shaded sides of the girders is dry and thin, evaporating almost the moment the sky turns from black to that fierce, dark high-altitude cobalt.
+
+Underneath the tower’s circular deck runs a ten-foot ring-gear of bright, newly cut bronze, driven by a single worm-screw the thickness of a man’s torso. The screw turns continuously, taking eleven weeks to bring the tower through one fractional sweep of the valley, which means you cannot watch it move. You can only press your ribs against the dark cast-iron housing in the pre-dawn cold, where the heavy load of the brass superstructure keeps the tallow in the gear-trough four degrees warmer than the morning air, and feel—every eight or nine slow breaths—a microscopic *give* pass through the metal into your breastbone. Not a sound; even right against your ear, the teeth part the grease in dead silence. Just a tiny structural relief, as if a locked knee had loosened by the thickness of cigarette paper.
+
+That is where I wake, unfolding myself by halves out of the curved iron skirt beneath the turntable.
+
+At night I look like part of the weatherproofing: a tight, low heap of pleated charcoal-gray hide, folded in overlapping V-shaped gussets along my flanks like the oiled leather bellows of a view camera. When I stretch on the cold diamond-tread, those pleats draw open to let trapped night-heat circulate down into long, low-slung limbs. My soles are broad and entirely dry, padded in pale, dense suede the texture of a buffing wheel—because anything that tracked grease onto the upper glass would blind half a mile of switchyard below. When I push my nose out from under the housing into the first white-hot lance of sun off the eastern stamping presses, the concentric horn plates of my irises slide shut without a click, stopping both pupils down to vertical needle-slits at the far edges of a wide, flat skull.
+
+My eyes are set almost absurdly far apart, mounted out on blunt bony bosses past my temples. If I look straight down at my own forepaws—long-fingered, steady, tipped with flat translucent nails beveled like feeler gauges—there is a narrow blind wedge directly in front of my snout where I have to trust my whiskers. Everything beyond three feet, however, jumps into fierce, knife-edged depth. When you live on the surveying rim, single-point vision is a liability. Down in the middle tiers, a silver mouse running nose-first along a sweating pipe sees an unbroken tunnel right up until it steps through a brass spider’s sightline seam and vanishes into waiting mandibles. When I walk those same pipes at noon, one of my wide-set eyes reads empty cast iron while the other catches three square inches of wet brass teeth hanging unaligned in mid-air four inches to the left. The flaw stands out like a tear in tinplate.
+
+Before the herds begin to move down in the glare, I climb the back lattice of the tower to tend the wings.
+
+From the basin floor four miles away, a surveying tower looks like a single tall mast of bright brass and glass. Up close, its head is wide and T-shaped: two balanced twenty-foot outrigger trusses extending left and right from an octagonal central hood, each carrying an angled primary mirror the size of a cellar door, silvered on its front face so there is no double reflection. It is a giant coincidence rangefinder. The two wing-mirrors gather the blinding amphitheater from twenty feet apart and fold both views inward along brass tubes to a compound prism inside the central hood.
+
+Whenever the slow turn of the bronze ring below brings a near girder in the left mirror and a far concrete viaduct in the right mirror into zero parallax—sliding their two split halves into a single unbroken line inside the prism—the valley down below obeys the instrument and makes them physically adjacent.
+
+Which means the front faces of those mirrors carry weight.
+
+You can see it every morning as soon as the sun hits the basin and the shaded iron breaks out in cold sweat. Always approaching from behind the brass bezel, flattening my bellows-pleats against the silent, ear-numbing push of the ridge wind, I creep out along the rear bracing and reach one suede-palmed forepaw around the lower rim of the left glass. Most of the mirror is dry and immaculate. Along certain hair-thin diagonal tracks, however—where yesterday’s alignments held steady for six hours while herds of rebar-horned goats and flocks of primer-gray birds crossed two miles of empty gulf—a faint, greasy rime has sweated straight *through* the silvering from the back.
+
+I never put my head over the frame. I did that once, early on, leaning an inch of dark cheek into the bright margin of the glass to reach a stubborn crust near the center. Two thousand feet down on the western switchyard, a forty-foot shadow of blurred leather eclipsed a live handrail alignment; thirty sleeping birds dropped ten feet onto perforated steel in a silent explosion of matte-gray feathers, and a tensioned drive-chain three tiers lower lost its invisible pulley for half a second, slapping slack against a boiler shell hard enough to send a dull, phantom jar right back up the light-path into my jawbone.
+
+Now I work blind from behind the bevel, reaching out only along the dead zones—sky-glare, or the broad blank faces of cooling towers where nothing crosses—wiping the coincidence tracks clean with the dry suede heel of my palm and licking the residue off when I pull my paw back in. It tastes of ice water, zinc dust, a nutty trace of goat-hoof tallow carried across three miles of nothing, and underneath that, the sharp, coppery tang of compressed air.
+
+Once the glass is clear, I slip through the narrow brass louvers into the octagonal hood at the heart of the truss.
+
+If I have a true home in this basin, it is this three-foot chamber out of the wind. It smells of fresh brass turnings, clean machine oil, and my own dry leather. No direct sun enters; the only light falls downward from the overhead prism block onto a circular table of matte white porcelain waist-high in the center, scored with fine black vernier rulings.
+
+Crouch on the inner stiffening ring and look down at that porcelain circle, and a third of the valley lies spread under your nose in miniature, razor-sharp and silent, cut straight across the middle by a hairline seam.
+
+Above the hair is the left wing-mirror’s view; below it is the right’s. Almost everything on the plate is slightly mismatched across that line: a green-spoked stamping flywheel on the eastern terrace sits half an inch left of its own bottom rim; a steaming radiator bank breaks cleanly in two at the waist. Only along three or four narrow intersections do top half and bottom half slide into seamless register. Look closely at one of those joined threads on the white porcelain, and you can watch tiny slate-colored oblongs—a herd of sixty goats—trotting calmly across the black hair from a steel cantilever in the upper hemisphere onto a pale ribbon of viaduct in the lower.
+
+Lay the flat horn bevel of one fingernail very lightly onto the porcelain right where they cross. The ceramic does not feel smooth there. Against the dead horn of your nail, that half-millimeter of focused light buzzes faintly, pattering like fine dry sand poured down a chute—sixty pairs of soft rubbery hooves taking purchase on your fingertip from two miles away.
+
+Most mornings I only watch. There is a deep, quiet absorption in tracking twenty overlapping schedules at once across three feet of white clay: noting where a water main bisects a compressor wheel without spilling, watching the silver mice streak across the breaker-yards with their faint blue lag-bodies trailing behind them like smears of wet ink.
+
+Now and then, though, the felt-pelted apes down on the upper causeways try to force the instrument.
+
+Near noon, as my floor inches eastward and a long girder-to-parapet bridge narrows down to its final minutes on the porcelain plate, I see six small olive-drab shapes emerge from an amber square of misplaced basement gloom down on the third tier. An old male clambers out to the raw tip of the girder and wedges a three-pound, mirror-bright zinc knockout at an oblique angle on the flange.
+
+Down there, it is a clever trap to hold a dying bridge open until a heavy doe steps into the jaws of its severance. Up here inside the brass hood, that angled stamping catches the eleven-thousand-foot sun and fires a concentrated needle of pure UV glare straight back into my left wing-mirror. On the porcelain table, a fierce white pinpoint blooms right across the coincidence hair. I can smell the silvering on the prism block above my head warming up, straining under the optical pry-bar as the turntable keeps trying to move on. Left alone for twenty minutes, it doesn't crack the prism—nothing in this valley breaks—but it leaves a dull, sticky scar of displaced static that takes three mornings to buff out.
+
+I watch the lagging doe step onto the base of the cantilevered girder. I watch the old ape rest one long, grease-blackened hand on his shim, waiting for her forequarters to cross the seam.
+
+Then I reach out and lay one suede finger squarely over the white pinpoint on the porcelain plate.
+
+Instantly the glare dies against my skin, warming my palm like a pocket-warmer. Two miles below, robbed of its reflection, the false sliver of bridge snaps cleanly shut ten yards ahead of the doe’s nose. She stops at the raw steel burr above the three-hundred-foot condenser pit, blinks her wide square pupils at empty blue air, turns around, and trots quietly back to the terrace. Beside the dead end, the tiny olive-drab figure of the male ape freezes with his hand still on useless metal. Slowly he tips his flat, dark head all the way back, slides his green welder’s-glass membranes over his eyes, and stares straight up across two miles of blinding glare toward the fourth tower on the western rim—straight through the prism, it seems, into my own slit eyes—before picking up his shim and knuckle-walking stiffly back into his twelve-foot square of indoor shadow.
+
+At half past noon, when the sun stands dead vertical and shadows vanish into the grating beneath them, my tower’s concrete pier hits a brief twelve-minute vertical register with a galvanized settling-pan ledge three thousand feet down in the fourth tier.
+
+I go down then for water and grease and grit.
+
+Stepping across a vertical alignment from the inside feels nothing like falling. You walk to the unchipped concrete corner of the rim pier, look down past your toes to where the distant zinc ledge touches the concrete cleanly against the angle of the third tower half a mile north, and put one forepaw across the raw edge. There is no rush of wind. Instead, the air pressure jumps all at once—both eardrums flex inward silently against the thick air of the lower basin, the coin-thin chill in your nostrils turns instantly to warm tallow and wet cast iron, and for the half-second when your forequarters stand in cold runoff three thousand feet down while your hindlegs are still poised up on the sunlit rim, the blood running along your spine feels impossibly drawn-out, pulled thin like mercury in a thermometer tube before your back feet step over and snap your body back into a single length.
+
+Down in the crowded middle tiers, I move along the undersides of riveted water mains, my bellows-flanks pulled tight so I slip cleanly past brass drill-curls and sharp steel gusset-burrs. I drink ice-cold condensate out of stamped dimples, chew the waxy silver-haired sedge rosettes that root in expansion joints—they are bitter and stringy, full of zinc dust that keeps my nails hard—and pry nickel-colored crabs off warm axle-housings with a quick, flat flick of a thumb-claw, licking out their pale tallow-fed meat.
+
+When the midday glare bouncing up from the floorplates begins to ache even through needle-slit irises, I do not climb straight back up. I pry open a brass-hinged floor hatch with two fingers and drop down the ladder-cages into the fifth sub-level.
+
+Down among the lead-sheathed cables and counterweights, where the sun never reaches except in stray, razor-edged cubes of misplaced noon sky wedged absurdly between boiler bellies, my eyes open all the way out into round black pools. I carry no tools the way the apes do, only small surpluses picked up along the catwalks: a crescent punch-out, a spare brass cotter pin, a sheared hex-nut where two stamped assemblies intersected and dropped an extra.
+
+I walk to the edge of one of those trapped cubes of noon glare, position myself three feet from where a concrete pier passes seamlessly through a cast-iron pump housing along a weeping seam of frost, and stand very still so that my long, serrated shadow falls across the floorplate and touches the frost-line.
+
+Sometimes nothing comes for an hour, and I simply rest in the cool corona-lit dark, listening to the faint, localized *tick... tick...* of thermal shift in the pipes overhead. Eventually, though, the solid iron of the pump housing ripples slightly at the frost-seam, and eight feet of pale, oiled-vellum skin slides noiselessly out onto the galvanized plate, its internal graphitic rods folding at crisp forty-five-degree angles as it turns toward me.
+
+It has no eyes to see me standing in the glare, and it pays no attention to my scent or breath. Its ring of fine copper whiskers flares wide and drops straight to the diamond-tread where my dark silhouette cuts the light. Pressing its flat, spade-shaped chin against that shadow-edge as though testing the rise of a stair, it begins moving inch by inch around the projected outline of my wide-set head, pleated ribs, and broad paws, laying down small curls of bright copper swarf and tiny pellets of hardened bearing-grease from a pouch under its throat—pinning my flat dark double meticulously to the zinc.
+
+Wait until it finishes and pauses at the tip of my shadow’s nose, whiskers trembling in the faint electrostatic hum. Then I lean forward an inch—careful not to shift my feet and tear the outline it just built—and set my single spare brass hex-nut down on the steel just outside my shadow’s jaw.
+
+The copper whiskers sweep over it instantly, reading whatever trace of eleven-thousand-foot ultraviolet static still clings to metal from the upper terraces. For ten seconds neither of us moves. Then its flat grey tongue darts out, licks the sharp ozone-frost off the corners of the nut, and nudges it carefully with its snout until one flat sits exactly thirty degrees out of parallel with the floorplate’s diamond pattern—correcting my tidy placement into whatever crooked ratio keeps the deep levels from seizing solid. Before sliding back through the iron wall of the boiler, it hooks one bright spiral of hinge-brass out of its own arrangement and pushes it an inch across the shadow-line against my real suede toes.
+
+I carry those bright curls back up to the rim inside a loose fold of neck-skin before late afternoon, because I never miss the last two hours of light inside the hood.
+
+By four o’clock, the sun hangs low in the bleached western glare behind my tower, and across the four-mile gulf, the quarter-mile gantry crane on the highest eastern rim throws its impossible shadow far down the tiered amphitheater.
+
+Out on the naked terraces, every living thing gives that creeping dark edge a wide berth. Flocks of primer-gray birds shuffle sideways down porcelain bus-supports to stay in the sun; even the heavy, calcified insulator-bushings gripping the copper bars tighten their silicate skirts slightly as the ragged silhouettes of wind-tossed pines slide over them, smelling briefly and inexplicably of wet granite, crushed fir cones, and rotting autumn duff.
+
+Inside my octagonal brass chamber, crouched once more over the matte white porcelain table, something happens to that shadow that no creature down on the steel can see.
+
+Because the crane’s shadow falls across both of my tower’s twenty-foot wing-mirrors at once, the overhead prism folds the two slightly different angles together onto the center of the porcelain plate. Where steel girders and cooling towers lie split or flat across the vernier hair, the crane-shadow does not lie flat at all. In the dim interior of the hood, wherever the top and bottom halves of a dark pine-bough slide near the coincidence line, the darkness stands up off the porcelain in stark, smoked-glass stereoscopic relief: steep forty-degree ravines, overhangs of invisible stone, deep troughs of unseen forest floor cutting cleanly through the bright miniature switchyards like a mountain range blown from black bottle-glass.
+
+Inside that dark relief, I can see behind the trunks. I watch heavy, hump-shouldered shadows amble along deer-trails sixty feet in empty switchyard air; I watch long-tailed shapes leap from bough to swaying bough directly above a silent stamping press whose green flywheel inches straight through their branches without touching them.
+
+And once every eleven weeks, for about forty minutes on a clear afternoon before the ring-gear moves us past, the slow turn of my turntable brings the very crest of that phantom ridge—where the crane’s main box-girder cuts the cobalt sky—directly onto the black coincidence hair at the middle of my plate.
+
+Sometimes nothing is up there except wind-bent pines tossing in a gale that leaves the valley’s cables dead still.
+
+Today, standing on a dark outcrop near the crest, leaning one hand on something long, straight, and narrow planted against the invisible slope, is that tall, two-legged shadow.
+
+Down on the terraces, if you squinted four miles up into the blinding sky-edge, you would barely notice a notch of darkness against the crane’s girder. Here on my three-foot porcelain circle, split horizontally by the hairline seam, the figure is four inches tall—legs slightly offset from torso until the bronze worm-screw beneath the floor gives two more silent, microscopic yields through the soles of my feet, and the two halves of the narrow silhouette slide slowly together and lock into zero parallax.
+
+The figure does not look down at the goat herds or the switchyards. As the seam closes across its chest, its narrow dark head turns slightly until it is facing straight across four miles of cold air toward the double glint of brass on the western rim.
+
+Nothing steps into my housing; there is no amber basement-patch up here to thicken the air into glass, and no rivets pop loose from my louvers. Only, inside the sealed brass hood at eleven thousand feet, the dry smell of clean machine oil and suede vanishes between one breath and the next. For thirty seconds my chamber fills with cold woodsmoke, wet wool, bruised pine resin, and old rain standing in hollows of dark earth—heavy, decaying, impossible odors from a place where things fall down, rot into dirt, and come back up as trees.
+
+Right at the center of the white porcelain plate, precisely where the black vernier hair crosses the base of that long straight staff, a single bead of moisture sweats quietly up through the unglazed clay.
+
+It is not clear condensate, and it is not pale yellow bearing-tallow. Even in the dim hood, I can see it is cloudy and dark brown.
+
+The bronze gear beneath me eases forward another fraction of a hair. On the plate, the tall shadow splits neatly at the ribs into two harmless, flat halves again, turns away along the ridge, and goes back to being nothing more than blocked sunlight four miles off. The smell of woodsmoke thins and is gone.
+
+I stay crouched on the brass stiffening ring until the sun drops behind the western rim and the whole vast amphitheater outside plunges at once into freezing cobalt shadow. Then I step down to the porcelain table and lower my nose to that tiny brown fleck before it freezes. It dries quickly in the high, thirsty air, leaving behind a faint, gritty pinpoint of real silt—clay and crumbled leaf-mold, smaller than a pinhead, the only speck of dirt in four miles of unweathered steel.
+
+I do not wipe it off. Careful not to scratch the vernier line with my bevel-nail, I reach into the fold at my throat, take out the small spiral of bright copper swarf from six levels below the floor, and lay it in a neat ring around the speck of dried mud—holding it there on the white porcelain until the tower comes back around in eleven weeks—before dropping down under the turntable skirt and folding my pleats tight against the warm bronze screw for the night.

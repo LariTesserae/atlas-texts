@@ -1,0 +1,39 @@
+I am down under two feet of black peat, and I am hard, bitter, and twisted flat.
+
+I am the root-stock where their ankles cross.
+
+If you pulled me up—though you could not pull me up without bringing the whole floor of the basin with me, tearing out the bog-mirrors and the stone channels and three tons of cushion moss in one dripping, catastrophic mat—you would see that I am supposed to be a shrub. My kin live four hundred feet higher up on the wind-scoured scree outside, and they are short, frantic things that burst into violent magenta blossom every June, hoard light like misers, drop crisp dead leaves, and die in eighty years. Down here, I have forgotten how to flower. Flowering is an advertisement for bees that will never fall through the juniper roof, and making pigment in 0.2 lumens is a fool’s errand. The last time I pushed out a petal, mammoths were still grazing the steppe beyond the foothills; the bud rotted unopened under a coat of pale snails, and I took the lesson.
+
+Instead, I went sideways, and I fused.
+
+Originally there were seven of us—seven seeds washed over the lip during some post-glacial thaw before the roof sealed. In the starved twilight at the bottom, none of us had the light to grow a trunk, so we crept across the wet slate on our bellies, hunting for pockets of nitrate. Whenever one pale, woody runner pressed against another in the dark, the wet bark dissolved between us and our cambium married. Now there is no telling where one bush ends and the next begins. I am a single, flat-iron lattice wedged from wall to dolostone wall, braced into the Smooth Lobes, holding up the moss, holding up the ferns, holding up the shrews’ tunnels and the heavy, braided heaps of salamanders. My leaves up in the murk are the size of platters, dark as bruised liver, waxy and permanent; I keep each leaf for forty years because replacing one takes a decade of dimly remembered chemistry.
+
+Light barely feeds me. Warmth feeds me, and pressure, and the slow, salty grease of the three heavy ones.
+
+Where their flanks rest in my forks, the water soaked into my outer bark sits seven degrees warmer than the weeping walls. You would think seven degrees is nothing. In forty-six-degree water, seven degrees is the tropics. My finest feeder-rootlets—white threads no thicker than spider silk—have climbed out of the peat entirely to weave themselves into the thick, algae-velvet mat of hair along the old female’s spine and behind her knees. I do not pierce her; I have no need to be a parasite when everything is given away at the surface. I drink the trace ammonia of her sweat before the mist can dilute it. When the shrews nested behind her ears drop their dark little pellets down her collarbone, my root-hairs are already waiting in the crease of her hip to catch the phosphorus before the bog-water leaches it down through the floor.
+
+In return, I am the shape of her bed, and I am the wire between their minds.
+
+Wood is not dead underneath the bark, though people with quick eyes always think so. My heartwood is dense as horn—rings packed thirty to the millimeter, laid down in microscopic increments—and saturated with cold sap under steady turgor. Drop a chert core onto chert in the pool six feet away, and the *tock* does not merely travel through the water; it strikes the slate, enters my braced root-tips, and rings through my entire wooden skeleton from one side of the sinkhole to the other in a thousandth of a second. 
+
+I am tight as a wet drumhead under the moss. And clamped around my thickest central cable, down in the airless, silt-packed dark beneath the peat, are six broad, prehensile feet.
+
+I know all three of them by the weight and heat of their soles.
+
+To the north, wedged near the weeping limestone shelf, the eldest male’s grip has been slackening since before I finished unfurling my newest leaf—five years ago, or eight. His big toe, plated in horn as thick as clam-shell, used to press a steady, confident dimple into my phloem. Lately his heel has grown cool. Only forty-nine degrees now. Already my opportunistic rootlets around his flank are shifting their architecture, thickening their tips, preparing for the rich, sudden flush of potassium and marrow-fat that will soak the peat for a month when his ribs stop lifting. I am not cruel about this, and neither are the snails already gathering in slightly denser cobbles along the fern-fronds above his shoulder. Down here, death is just a large meal arriving all at once instead of drop by drop.
+
+To the west, fifteen feet away along my main lateral limb, the younger male is heavy, hot, and restless—restless meaning that twice since yesterday he has rolled his ankle a quarter-inch against my grain to ease the cramp of a limestone bulge beneath his hip. Every time his tendons shift, my wood takes the flex. The bow-strain travels instantly down my length, straight under the black puddles, straight into the arched instep of the old female.
+
+And her foot—her foot is half grown into me.
+
+She has lain in my main fork for two centuries. Over the first hundred years, the steady, unchanging pressure of her left heel resting against my upper root caused my bark to swell up around her calcaneus in two smooth, woody lips, a burl shaped precisely to cradle her bone. She could pull free if she wanted to—she has pulled free once or twice in a lifetime, heaving her great pale bulk slowly across the basin during the rare decades when a fresh granite cobble needed shifting—and when she leaves, the empty cup in my wood feels shockingly cold for days, flooded with forty-six-degree bog-water until she settles back into her socket and warms me up again.
+
+Right now, I feel the *tock* of her chert flake before the salamanders do. 
+
+The sharp, crystalline shock hits my shallow rootlets under the soapstone bowl and zips inward to the center. Half a minute later—at their speed, that is a quick reply—the younger male’s second and third toes curl slowly inward against my western limb, squeezing my bark twice in a long, slow pressure-wave that takes four minutes to peak and fade. *Good,* or *heard,* or *hungry soon*—I do not parse the shapes of their mammalian thoughts, I only carry the bend in my fibers from his skin to hers. Four minutes after that, her big toe answers against the inner lip of my burl: a single, sustained press that slightly flattens my sap-tubes, warm and unhurried. And far to the north, barely perceptible, the dying old male’s heel gives a faint, papery twitch against my bark, like a dry leaf brushing stone. *Still here.*
+
+Even the fourth one, the loaf-sized knot of hot flesh tucked up against her belly, has begun to touch me. Not down in the deep peat—its legs are too short to reach the floor—but where a stray, knobby elbow of my upper root loops out of the moss beside its mother’s thigh. Sometimes, between one drop of thick milk and the next, five tiny, soft, uncalloused toes—nails no harder than fish-scales yet—push blindly through the slick braid of cave-salamanders and brush against my wet bark.
+
+It has no grip yet. It leaves no dent in my wood. When it touches me, it startles slightly at my coldness and pulls its foot back into the fifty-three-degree furnace of its mother’s groin.
+
+That is alright. I am growing a small, shallow curve into that exposed elbow of wood anyway, thickening the cambium layer by fractions of a millimeter where its heel brushed me, routing a few new, hair-fine rootlets toward that side of the hummock. In ten years, or twenty, when the northern limb goes cold and the snails come down in a pale tide to turn the old male’s pelvis into ten thousand shells, that small foot will reach out through the salamanders again and stay. It will need a notch that fits its ankle, and a clean line through the dark to press against when it wants to know it is not alone. By the time its bones are heavy enough to ask, I will have the socket ready.

@@ -1,0 +1,51 @@
+A lesser power, looking down upon this blinding, razor-edged bowl, would feel an itch to soften it.
+
+A lesser benevolence sees cold and offers fire; sees heavy stone and offers iron; sees creatures flattened into flooded cracks, rasping metallic slime off sharp slate in the dark, and pities their toil. Such a power would drop seeds that could survive the altitude, sweeten the toxic springs into clear trout-streams, round off the slicing basalt lips, or lift those low, wide shoulders until the builders stood upright under roofs of timber. And in a single season of well-meaning grace, the chemotrophic mats would starve, the dry-stone vaults would choke on roots, the pale waxy skins would crack in the dry air of upright life, and a masterpiece of cold patience would rot into an ordinary mountain bog.
+
+Wisdom looks longer. Wisdom puts its palm flat against the wet basalt, listens to the crisp *tink-tink* traveling ten times faster through water-coupled stone than through thin air, and recognizes that these beings are neither cursed nor trapped. They are already rich. Their wealth is measured in millimeter-thin curtains of water, in the exact pitch of a granite beam grinding down its fulcrum, in the satin-smooth niches forty feet down where generations press their greased flanks together in the fifty-degree dark while blizzards howl harmlessly across the masonry above. To give them comfort as soft creatures understand comfort would be to vandalize a cathedral because the organ pipes look lonely.
+
+So the power withdraws its hand from the basin itself. Not one slate shingle is shifted. Not one drop of spring water is sweetened. Not one bleached rawhide lashing on a balance-beam is magically renewed—for the stretching of the rawhide is one of their clocks, and to make it imperishable would blind them to the passage of weeks.
+
+Instead, the observer looks to the clocks they *cannot* read.
+
+High mountains keep violent, long-term appointments. Two miles down inside the compressed heart of the peak, along the very fault-line that feeds the warm, sulfur-rich navel of the bowl, tectonic strain has been accumulating for four thousand years. Left to the blind indifference of rock, seventy years from now—just as the masons have spilled their glittering terraces over the lowest saddle and begun stepping down into the neighboring valley—that fault will snap. A six-second convulsion will shear the central conduit, drop the fifty-degree spring back into deep, dry fissures a mile sideways, and shatter ten million tons of unmortared dry-stone cellular vaults down onto the nursery troughs in a single silent, suffocating avalanche. All that patient geometry, erased between one drip of a stone bucket and the next.
+
+That is the first place the wise hand touches.
+
+Deep in the crust, miles beneath the oldest buried basalt domes, the power reaches into the locked granite of the fault and begins to bleed the tension off—not all at once, which would startle the masons above, and not completely, because micro-tremors are what keep the pyrite seams fractured and leaching the iron and copper their mats require. Instead, over decades, the great catastrophic lock is dissolved into ten thousand harmless, microscopic slips.
+
+Up in the dark galleries, forty feet below the glare, an elder resting in a polished niche feels a faint, deep *thrum* pass through its belly—no sharper than the thud of a frost-wedged slab parting at midnight on the upper rim. Down in the deep throat of the spring, fresh mineral faces crack open in slow, measured increments, ensuring the water will rise at fifty degrees, bitter with sulfur and heavy with dissolved ore, for another thirty thousand years.
+
+Then the power looks outward, beyond the notched skyline of the basin, down the barren flanks of the range.
+
+Two things come from down there that the masons cannot make out of shale and cloud-drip: the dense bog-wood levers they submerge in their troughs, and the broad, curved ribs of mountain sheep and wild yak they scavenge below the snowline to grease and slide beneath four-ton slabs, or split into rawhide for their tipping beams. And a third thing will eventually come up from the lowlands, centuries hence: upright, fire-carrying primates with bronze picks and hungry eyes, who look at pale-blue and dead-black mineral vats and see copper ore, or look at a defenseless, voiceless mason emerging at dusk and see tallow for lamps.
+
+The power walks the lower valleys five miles down-slope.
+
+Along the timberline and the high scree meadows where the wild yak winter, the soil is subtly enriched with trace selenium and calcium; the snow-drifts are contoured by an imperceptible shift in a rocky spur so that winter-kill happens cleanly at the base of accessible chutes, far above the scavenging reach of lowland wolves, leaving heavy, curved ribs and thick hides cured cold in the dry wind where wide-splayed, silent climbers can haul them up in the autumn dark. In a peat-hollow two ridges over, a stand of stunted, iron-dense bog-juniper—dead since the last glacial retreat and preserved in acidic black mud—is kept wet and anaerobic beneath a newly slumped bank of gravel, waiting like a buried cache of pry-bars for hands that will need them four centuries from now.
+
+For the upright primates far below, a gentler redirection is laid into the geography of the range. Five miles down the gorge, where a lowland trail might one day climb toward this peak, a barren cliff of rotten mica-schist lets go during an autumn rain, burying the easy ascent in two miles of loose, ankle-breaking talus that holds no game, no timber, and no gleam of gold in its dry wash. While three peaks to the south, where nothing lives at the summit save wind and ice, a rich vein of bright malachite is nudged an inch closer to a creek bed, shining green and generous in the pebbles to draw every pickaxe, furnace, and flag miles away from the quiet, weeping bowl.
+
+Only one small thing is placed within reach of the masons themselves—not a tool, not a teaching, not a revelation, just an answer to a question their horn-plated fingers have not quite needed to ask yet, though they will in fifty years.
+
+They are about to cross the saddle into the next high valley. Here, inside the closed bowl, water always pushes up from the center and pools against the rim; building upward has always kept the head-pressure even. Once they step *over* the lip onto an open, outward-falling mountain flank, gravity will pull differently. Frost-heave on a steep open slope behaves more viciously than frost inside a packed basin; a dry-stone terrace stepping down a forty-degree pitch needs a slightly different interlocking key-joint than a cistern wall backed by bedrock, or else the weight of winter blue-ice will slowly belly the masonry outward and spill a whole rank of vats down the mountainside.
+
+They are brilliant engineers; left alone, they would discover this the hard way, losing three or four generations of outer terraces—and perhaps twenty workers swept down into the dry scree—before working out the geometry of a battered, dovetailed retaining course.
+
+Up on that lowest saddle of the mountain rim, twenty yards outside the current edge of their advancing retaining tier, sits an outcrop of dark, unworked basalt they will quarry in about twelve years.
+
+During a starless midnight when every builder is deep in the flooded vaults, the power touches the interior grain of that single untouched outcrop. No glowing runes appear on its face; nothing looks carved or artificial. Only the natural cooling-joints inside the virgin volcanic rock—those hidden cleavage planes that their flint spindles and sensitive palms read with such exquisite care—are quietly rearranged.
+
+Instead of splitting strictly into flat horizontal plates like the rest of the basin’s shale, this single outcrop holds nested hexagonal columns tilted fifteen degrees back into the slope, naturally keyed together with flared, dovetailed tenons along their fracture lines.
+
+Twelve years from now, on a freezing autumn dusk, three workers will crawl out onto the saddle to drill their forty holes along the face of that rock. Their broad, calloused palms will pause. One will run a square, horn-tipped finger along the hairline seam, feeling an unfamiliar, tilted grain beneath the dust. It will tap twice against the stone—*tink-tink*—calling an older mason over from a nearby sluice.
+
+Together, flat on their bellies under the cold stars, they will spit measured jets of water into the seam, plug it with granite wedges, and wait for the midnight freeze. When the rock parts before dawn with a muffled *thud*, it will not fall outward down the slope. Even severed from the mountain, the fractured blocks will hang locked together against gravity by their own angled shoulders, leaning stubbornly back into the hill.
+
+For three nights, dozens of wide, pale shapes will slide up over the rim in the violet dusk just to lay their hands on that split outcrop. They will press their palms and forearms into the cleft, clicking softly in their throats, passing the strange, self-locking angle from knuckle to stone to water down through the whole two-mile sounding board of the valley. Then they will pry the blocks apart, haul them over greased yak-ribs, and carry that geometry over the saddle into the new valley—believing completely, and rightly in every way that matters, that they found it themselves by listening closely to the mountain.
+
+The power lingers for one last cycle of the granite levers.
+
+Noon blazes down out of the thin, pale sky, bouncing blindingly off ten thousand taut, brimming mirrors where pale ochre and tarnished-silver velvet quietly turn poison and ultraviolet fire into life. Somewhere three terraces down, a hollowed stone bucket fills with its last drop; a rough-hewn beam scrapes slowly downward; a slate gate lifts two inches; a silent, millimeter-thin curtain of water advances across dry blue shale, darkening it like oiled iron. Beneath an overhang, invisible in the glare, a small string of flat bubbles slips sideways along a wet coping and pops without sound.
+
+Everything is already whole. The observer leaves no name, asks no worship, and passes silently over the ridge into the thin blue air, leaving the stone to its builders.

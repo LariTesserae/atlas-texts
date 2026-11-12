@@ -1,0 +1,61 @@
+A lesser power, moved by pity, would ruin everything in ten seconds.
+
+Looking down through a hundred feet of translucent stone at a woman crawling on her belly with grease in her hair and bitter Epsom on her tongue, an impulsive benevolence itches to *fix*. It wants to crack the soapstone seam so sweet, cold spring-water gushes into the bowl. It wants to soften the blinding ceiling into a gentle twilight, fatten the horsetails into sweet-pulp tubers, widen the eastern pinch so two people can walk upright, hand in hand, without scraping the callouses on their toes.
+
+A wise power looks at the room, looks at the woman, and holds its own hands very still.
+
+Because to sweeten the water would bloom surface molds in the warm, breathless bowl within a week, choking the endolithic algae, starving the mirrored beetles, starving the pale geckos, and turning a clean, self-sterilizing larder into a sour sump. To dim the ceiling would blind the horizontal fan-stalks that track the seasons and tell the warren-folk when the surface above is locked in winter or baking in high summer. Even to widen the eastern throat would break the air-piston that turns the hanging selenite discs, stealing the barometer that keeps two crawlers from meeting chest-to-chest in a mile of blind chalk where neither can back out.
+
+More than that: to make her life easy by erasing its terms would be an insult. Look at those forty shells laid out by diameter in place of the fifty she took. Look at the six inches snapped cleanly off the rotted willow wand, and the soapstone groove deepened by the thickness of a thumbnail for whoever comes six months from now. She is not a trapped animal scrabbling in a pit. She is a citizen of a severe, coherent country, and she practices a courtesy so deep it doesn't even need witnesses. You do not barge into a house kept that clean and rearrange the furniture.
+
+So for a long time—three turns of the horsetail fans, while the calcite skin on the left-hand basin thickens from spiderweb to mica-flake—the watching presence does nothing at all except appreciate. In the economy of deep wisdom, simply beholding a quiet fidelity that expected never to be seen is already half the work of love.
+
+Yet love, even wise love, rarely leaves *nothing* behind. It only insists on speaking the grammar of the room.
+
+There are two troubles here that patience and etiquette cannot solve on their own, invisible to the woman because they move on the timescale of rock rather than blood.
+
+The first is overhead. Forty feet up in the selenite dome, invisible from the floor in the milky wash of light, a hairline shear-fault—relic of a dry tremor two centuries ago—is slowly drinking surface alkali from a shallow pan on the plain above. Left to geological chance, in forty years that fault will unzip during a hard freeze. Not enough to collapse the roof, which is strongly arched, but enough to let down a single, steady finger of brown surface mud every spring. The silt floor would cake, the bright diffuser would stain rust-red, and this quiet station would die in a generation.
+
+High in the blind crystal, forty feet above the bone-white geckos, the power makes its first move. It does not weld the stone by magic; it merely nudges ion by ion what the rock is already doing. Over two summers, the percolating water in that microscopic fissure is coaxed to drop its dissolved gypsum three inches higher up than it otherwise would have, knitting long, interlocking needles of clear selenite across the shear-plane like scar tissue across a clean cut. The dome heals transparent. And just beneath that healed seam—Directly over the easternmost forty yards of the low crawlspace where the roof drops inches from a crawler’s cheek—the crystal lattice is encouraged to twin slightly as it grows, clouding to the softness of frosted lamb’s-wool. Not dark; never dark. Just baffled enough to scatter the hardest edge of the shortwave ultraviolet, so that when she or her niece or her granddaughter crawls that burning half-hour back toward the habitation-caverns, the skin along her cheekbones will not blister beneath the ochre slip, and the tiny, poppy-seed pupils behind her double lashes will ache a little less in old age.
+
+The second gift is placed down on the slab, and requires a lighter touch still.
+
+Look beside the three carved basins, at the pair of dark river-chert hand-axes. They are old—older than the woman, perhaps older than her grandmother. Down in the soft marl and gypsum of the karst, true hard silicates do not exist; every piece of flint or chert in the warrens had to be traded down or scavenged on dangerous, squinting night-forays to dry surface creek-beds miles away. These two have been resharpened and battered against the tough green soapstone until they are stubby as walnuts, bruised along every edge, barely heavy enough to bite into the mineral crust without cramping the heel of a small, hard-knuckled hand. Within five or six more visits, they will shatter or go round as pebbles, and maintaining the water-flutes will become an hour of bleeding knuckles.
+
+Deep inside the western curve of the green soapstone wall—three inches behind the damp cushion-moss, ten yards away from the carved flutes so no water-pore is disturbed—lies a natural geological orphan: a fist-sized nodule of dense, dark-banded jasper, trapped in the metamorphic seam millions of years before the marl was laid down over it. Normally it would have stayed buried in the stone for another ten thousand years of slow chemical sloughing before the wall wore back far enough to show its nose.
+
+The power does not dig it out and set it neatly on the gypsum slab. That would frighten her. In a room where footprints last a year and air-pistons warn of every visitor, an unannounced object appearing on the workbench without tracks in the talc would violate the sanity of the world. It would make the bright, honest chamber feel haunted, turning a place of calm competence into a place of dread.
+
+Instead, over four months of pressurized stillness, the moisture creeping behind that single patch of soapstone is coaxed into one microscopic cleavage plane around the nodule’s upper cheek. A tiny pocket of Epsom salt crystallizes behind it, swells with the afternoon heat radiated from the ceiling lens, and pushes—just as salt-wedging pushes rock in every desert on earth.
+
+One afternoon when no one is within three miles of the bowl, a flake of soft green soapstone the size of a palm detaches from the lower wall with a dull, muffled *clop*, sliding two inches into the dry silt behind a cushion-moss tuft.
+
+Left protruding from the fresh scar in the wall, half-clenched in the green rock like an almond in pastry, is the dark, waxy curve of the jasper nodule—smooth as tallow, fine-grained, wine-dark at its fractured edge, begging a clever thumb to pry it loose and strike two dozen razor-sharp flakes from its core, leaving a heavy, palm-filling chopper behind.
+
+Nothing else.
+
+Wait—one thing more, so small it might only be the weather.
+
+Eight months later, the four willow switches stir. One chipped selenite disc rotates half a turn clockwise on its plant-fiber cord, pauses, and turns back.
+
+Twenty minutes on, two pairs of greased heels slide out of the eastern throat, one pair narrow and calloused thick as horn, the second pair smaller, faster, kicking up a tiny, hasty puff of marl-dust before a quiet hand touches a shin to remind the girl about the air and the dust. It is the woman, and she has brought a novice—nine or ten years old, squinting fiercely behind her fresh smear of chert-soot, her clavicles already supple as willow, learning the route.
+
+Everything proceeds by the ancient grammar. They wait for the dust to settle. The woman shows the girl how to lift the six-month calcite skin whole with the bone awl without tearing it; the girl tries on the second basin, breaks the skin slightly at the rim, clicks her tongue once in silent annoyance, and lays the pieces carefully beside the sorted shells anyway. They drink through the hollow horsetail reeds, leaving the bottom grit undisturbed. They wait ten motionless minutes at the wall with their chins tucked to their chests until the three hundred clamped beetles rise back onto their hair-thin legs, and the girl’s hand—mimicking her elder’s—takes her first clean *tick* off the stone without splitting the mirror-suture.
+
+Then it is time for maintenance. The woman picks up the bruised, stubby lump of old black chert, shows the girl the thickening crust in the middle flute, and sets the dull stone into the small palm. The girl rocks it back and forth—*scritch-scritch*—frowning behind her heavy lids because the blunt edge skates smoothly over the mineralization instead of biting.
+
+Resting on her heels, scanning the lower soapstone seam with practiced, slit-eyed patience to see if any new sweat-pores have opened since last season, the woman’s gaze catches an unfamiliar dark interruption ten yards west, half-hidden behind an olive cushion-moss.
+
+She walks over between the polite intervals of the fan-stalks. She crouches. For a full minute she doesn't touch it—only studies the fallen scab of green stone on the floor, the white fuzz of natural salt-crystals behind the scar, and the dense, vitreous gleam of the wine-dark stone protruding from the matrix. She taps it once with her square thumbnail. Even in the dead, sound-swallowing dome, the jasper answers with a tiny, high, glassy *tink* that means pure, unflawed silica.
+
+Slowly, the smoked-quince skin at the corners of her soot-ringed eyes crinkles. Nobody sees it, not even the girl scraping diligently ten yards away, because the woman’s back is turned. She uses the stubby old axe as a wedge, rocks the nodule twice, and catches the heavy, cool stone in her greased palm before it can bruise the moss below.
+
+When she carries it back to the basins and holds it out, the girl stops scraping. Two dark heads bend low together over the wine-red stone in the shadowless milk-light. Without a word, the woman takes the second worn chert lump, finds the natural striking-platform on the jasper’s shoulder with the pad of her thumb, braces it against her leather-tough thigh over a scrap of bladder-skin to catch the splinters, and taps once—a crisp, dry *crack*.
+
+A single curved flake falls onto the hide, translucent red at its feathered margin, sharper than anything either of them has ever held.
+
+They leave the freshly dressed jasper core sitting squarely beside the two retired chert stubs on the gypsum slab, along with two spare flakes neatly aligned by length for the next traveler, keeping only one small crescent tucked into the cured bladder-skin for their own kit. They shorten a leaning willow switch by four inches. They paint the ochre bands across the bridges of each other's noses—the girl holding her breath in fierce pride while the older woman’s two yellow fingers draw the dull mustard stripe below her eyes.
+
+When they crawl back into the eastern squeeze, the elder goes last so she can push if the girl tires. Half an hour down the tight crystal throat, where the ceiling drops an inch above their cheeks and the afternoon sun overhead usually beats through the gypsum like an open oven door, the woman pauses for three breaths on her elbows, looking up through narrow slits at a forty-yard stretch of ceiling that glows soft and gentle as curdled cream, cool against her scarred knuckles. She doesn't marvel at it; stone changes, water moves, crystals cloud and clear. She simply lets her shoulders drop half an inch in quiet relief, nudges the girl’s heel once with her chin to say *all well, go on*, and slides forward into the frosted light.
+
+Back in the empty drydock of the bowl, the four selenite discs finish their slow, counter-clockwise unwind and hang dead plumb. High near the healed roof, a bone-white gecko shifts its weight, tracking a mite toward a damp pore. Down on the gypsum slab, beside forty fresh mirror-shells and three melon-sized bowls of clear, bitter water, the wine-dark heart of the new stone sits waiting in the tallow-glow—holding no shadow beneath it, only a small, warm occlusion in the brightness, as if a quiet hand were still resting an inch above the dust.

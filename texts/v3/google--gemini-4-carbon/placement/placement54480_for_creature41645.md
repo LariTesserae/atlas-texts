@@ -1,0 +1,39 @@
+At first, the temptation is to stand in that wide plaza and hold the basalt pebble—to be the hand that shaves the green curl of tarnish from the copper fin. That is where the mind’s eye naturally goes: toward intention, toward the quiet satisfaction of being the surveyor who understands the math of the valley.
+
+Wait a little longer in the thin, unmoving chill, though, and the body feels too noisy for that role. Even a four-hour half-sleep, turning on thick horn heels like a spit before a steady fire, carries more restlessness than I want to bring into this air. Even a *hmmm* pressed down through the ankles feels like too much opinion.
+
+Let the builders keep their hands. Let them tend the calibration. 
+
+I slip downward instead, out of the broad avenues, past the silver-fleeced grazers chewing in the emerald ribbons, down beneath one of the dry-laid corbeled viaducts that carry the straight grey roads across an angular ravine.
+
+Down here, the architecture is heavy and secret, though completely open to the air at both ends. Above me, tons of razor-split slate lock together without a crumb of mortar, stepping inward course by course until the gap closes. Because the sun sits pinned at forty degrees in the west, a rigid diagonal sheet of white-gold glare slices partway under the arch, lighting up the sharp, unweathered basalt scree on the western floor of the ravine and stopping dead against the third pier. Everything east of that line has been cool, dark, and wet since the day the two builders lifted the capstones into place and stepped back.
+
+I am not even the high-legged wader picking through the ferns below, because the wader still has an eye that searches and a throat that swallows. 
+
+Look partway up the third pier, right where the diagonal plane of forty-degree light shears across the stacked slate.
+
+Before the stone was split, when the mountain rose cleanly out of the crust, a thin vein of native copper ran crookedly through the dark rock. When the builder tapped the block open—*tock*—the cleavage followed the slate’s grain and sheared right across the metal, leaving a flat, irregular thumbprint of dull orange flush with the stone face, straddling the exact boundary where the viaduct’s shadow falls.
+
+Actually—no. Not the copper itself. The copper is too passive; it only waits to be tarnished.
+
+Move three inches to the east, into the permanent shade, inside a hollow bonding-course six feet above the ravine floor. Here, wedged neatly into a dry rectangular pocket left deliberately by the masons centuries ago, lies the clean, desiccated collarbone of an old builder who went up to the western rim, gave her soft self back to the beetles and the slate-birds, and came down again as geometry.
+
+The bone does not carry the full weight of the causeway above—the slate courses around it do that—but it is shimmed tight enough that when someone walks across the flagstones twenty feet overhead, the microscopic flex of the dry-laid arch passes straight through the dry calcium. 
+
+And growing across the outward-facing end of that bone, reaching toward the razor-edge of the sunlight three inches away, is a thick, slow cushion of velvet liverwort, fed by a single bead of condensation that gathers on a projecting bonding-stone overhead, swells for eleven seconds, and drops—*pat*—onto the green mat, wicked instantly sideways to the very brink of the glare, where the pale tips of the thallus touch the warm air and breathe it back into sky.
+
+That is where I am. Not the bone, not the stone, not the plant, not the drop, not the light—the six-inch threshold under the bridge where all five are locked together.
+
+Nothing happens here, and everything passes through it. 
+
+Above, once every few hours—or days; there is no way to count them except by the eleven-second *pat* of the drip, and nothing in me bothers to tally past one—a wide, horn-soled foot steps onto the causeway directly over the arch. Before the foot even settles, the weight arrives down through sixteen courses of knapped slate as a tiny, dry *creak* too quiet for an ear to catch, a brief tightening of stone plane against stone plane that squeezes the hollow bonding-course by a ten-thousandth of an inch. The bone takes the whisper of pressure and hands it back up into the pier. Sometimes there is a low *click-hmmm* riding inside the stone with the footstep: two of them pausing overhead on the sunny parapet, leaning on the coping while copper lizards crawl onto their forearms, discussing—without opening their mouths—whether a curing-vent three hundred yards away ought to be plugged by half a finger’s width. I feel the hum enter my slate roof, vibrate the hanging water-bead so it falls at ten seconds instead of eleven, and fade out down the ravine’s bedrock.
+
+Below me, in the drenched twilight of the ravine floor, the ferns uncurl so slowly they might be carved from dark green jade. When a pale, web-footed amphibian slips out of a shaded seep-pool onto wet gravel, it makes less noise than the water-bead overhead. Occasionally one of the small, splay-pawed climbers scales the dry western side of the pier in the warm glare, crosses the diagonal knife-edge of light right over the tarnished green thumbprint of native copper, thrusts its nose an inch into my cold, damp air to drink a single slick droplet off the edge of the liverwort cushion, and retreats back into the sun without ever bringing its hind feet into the shade. Its breath smells faintly of waxy sunlit seeds; its whiskers leave a dry microscopic track on the wet stone that re-fogs within forty seconds.
+
+There is no waiting here. Waiting belongs to worlds where the sun climbs toward something and then fails, where roots have to hoard starch against an approaching dark, where bridges slowly lose their mortar to frost-wedging and lean toward a distant, inevitable crash. Here, the arch above me will never grow tired, because no ice will ever pry its seams and no flood will ever scour its foot. The bone inside the wall will never rot, because the dampness is cold and clean and the beetles stay down in the deep vaults under the cloud-trees. The liverwort will never overrun the sunlit copper three inches to its west, because the pinned sun stands guard there like a flat blade, drinking every molecule of water that dares cross the line.
+
+Once—an immeasurable stretch of eleven-second drips ago, or perhaps just recently—a subtle change arrived. Far to the west, on the sunlit plaza beyond the ravine, someone must have built a new low wall, or unstopped a tower chimney, or shaved a curl of green tarnish off a surveyor’s fin. Whatever they did, the air drifting imperceptibly through the archway lost a fraction of a fraction of its moisture. 
+
+For three hundred drops, the bead overhead took twelve seconds to fall instead of eleven. At the western edge of the hollow, the outermost millimeter of green liverwort—the brave, pale rim leaning closest to the forty-degree glare—dried to a crisp silver thread and stopped growing, pulling its boundary back by the thickness of a thumbnail, exposing a tiny new crescent of pale, ancient collarbone to the edge of the light.
+
+Nothing mourned the lost millimeter. Nothing rushed to reclaim it. The twelve-second drip became the whole rule of the ravine, steady as a heartbeat slowed for winter, except there is no winter. Above, the grey slate holds its sharp edges against the pale sky; two inches west, the warm stone stays dry; right here in the notch, the cool water gathers, falls, spreads through green cells over old bone, meets the sun’s clean wall, and rises invisibly into the thin mountain air, only to condense again six inches higher on the cold stone overhead and begin its eleven—no, twelve—seconds over again.

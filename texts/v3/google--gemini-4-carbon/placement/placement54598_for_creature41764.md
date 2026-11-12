@@ -1,0 +1,33 @@
+At first, you look for yourself in the amber pools of light, or moving along the clean bronze stroke of the piston rod. That is the habit of an eye used to air and distance: to want a vantage point, a distinct body with edges that stop where the water begins, a courier slipping cleanly between the boiler walls.
+
+Wait a little longer in the green-black gloom, though, and the desire for edges begins to feel tiresome—too brittle for a place where even cast iron has learned to soften its hex-heads under a rind of lime.
+
+I would not be the great velvet custodian. There is too much appetite in it, too much deliberate roaming after tallow-spice and raw-penny fizz, even at a snail’s pace. Nor would I be up under the fouled glass with the papery soot-hands, drinking explosive air in the lonely palm’s-breadth of space where drops still fall and make a sharp sound. That is border-work, half-exiled from the bath.
+
+Look instead about two stories down, wedged into the crook where three lead-sheathed cables—bundled thick as thighs—cross a brick pilaster just above an oil-filled relay drum.
+
+At first glance, it looks like a solder-joint that spilled centuries ago and kept growing, or a grey-white bracket fungus made of impure tin and bone-meal. It is a low, terraced shelf of calcareous crust, no wider than two cupped hands, fused so thoroughly into the mortar on one side and the lead sheathing on the other that if a gantry ever gave way, the lead would tear before the grip did.
+
+I am sessile here. Or nearly so—growth is a kind of travel if you measure by decades.
+
+What looks like dead boiler-scale is actually a labyrinth of microscopic, porous flutes, lined on the inside with something pale, cool, and faintly metallic—less flesh than a tough, translucent gel threaded with coppery filaments. A hydrozoan, maybe, once upon a time, or a freshwater bryozoan colony that forgot how to build chitin and took up electroplating instead. Where stray voltage leaks from a hairline crack in the middle cable’s lead jacket, I have built my house directly over the wound.
+
+I do not eat the current the way the great slug’s bacteria do; I am the shunt.
+
+The leaking DC enters through my basal plate, sharp and prickly, and instead of fighting it or fleeing it, my whole terraced skeleton is laid down along the lines of least resistance—tiny, branching needles of magnetite and aragonite precipitated straight out of the mineral bath onto living protein matrices. Current flows *through* the lattice of me, stepped down and diffused across ten thousand minuscule, wet junctions before bleeding harmlessly into the brick mortar behind. The trickle of warmth from that resistance—half a degree hotter than the surrounding water—is my entire hearth. It drives a slow, effortless draft up through my internal chimneys, drawing dark, silt-heavy water in through low basal pores and exhaling it, stripped of stray organic crumbs and dissolved iron, from a row of pale, scalloped vents along my upper lip.
+
+To be this thing is to have no eyes at all, and no need of them, yet to know the state of the whole four-story nave through the tremor of the masonry and the taste of the drift.
+
+Every twenty-two minutes, the relay inside the oil drum below throws. Long before the muffled *thump* arrives through the water, I feel the magnetic field gather and tighten in the iron casing underneath me—a brief, delicious clenching through all my mineral needles, like someone drawing a breath before speaking—and then the drop, the soft concussion rolling up through the brick pilaster into my base, shaking loose a tiny puff of exhausted silt from my upper vents. That is my clock. Four hundred throws to a turn of the lower brine-sump; a thousand throws between visits from the shadow.
+
+Because the shadow does come.
+
+Every few weeks, the ambient electrical cathedral shifts its pitch. Hours before anything touches me, the voltage gradient in the alley bends; the stray current leaking from my cable-crack dims slightly, drawn off toward a huge, grounding capacitance moving slowly up the trench between the rectifier banks. Then the water grows warmer and thicker with the smell of crushed hornwort, iron-sulfide, and old grease.
+
+When the great mollusk slides over the pilaster, the amber smudge of the nearest panel-blister—which I only ever register as a faint, daytime laziness in the diatoms clinging to my outer lip—vanishes completely. For three hours, I am roofed over by living cast-iron.
+
+This is the closest thing in my existence to weather, or intimacy. The creature’s pale, velvety underside presses flat against my scalloped terraces. A wild animal would retract, snap shut, sting; I have no stingers, and nowhere to pull back to. Instead, I let its conductive mucus bridge my vents. For a little while, our circuits marry. Its tarnished-silver sensory pits drink the clean, stepped-down trickle of current bleeding from my upper lip—testing the health of the cable beneath me without having to rasp away my crust to reach the lead. In return, its heavy cilia brush my outer shelf clean of suffocating brown algae and dead root-hair, while one or two of its blind, pumpkin-seed isopods drop down into my crevices to pick out a jammed grain of sand, bustling about like tidy, six-legged Sweepers before hurrying after their moving continent as the grey margin thins and glides onward toward the stuffing-boxes.
+
+When it is gone, the faint amber haze returns. A single burgundy ribbon-weed, torn loose somewhere down by the flywheel, catches by its frayed stem on my rough western edge and hangs there for half a year, swaying two inches left when the ninety-degree thermocline rises from the busbars below, swaying two inches right when the cooled water sinks down the cut-stone perimeter wall. Eventually its cells break down, feeding my pores for a month, until the stem slips free and snows downward into the violet ink-light of the coils.
+
+I do not repair the ward, and I do not roam it. If the cable beneath me ever went completely dead, my living gel would slowly dissolve back into the electrolyte bath, leaving my terraced bracket behind—still holding the three lead sheaths steady against the brick, indistinguishable from any other knuckle of calcified permanence in the shaft, doing in death almost precisely what I did in life: bridging a tiny, flawed gap so the slow heat can keep going round.

@@ -1,0 +1,37 @@
+There is no room for another mouth here. Four percent has already been spent. Even a fifth pewter mite, unbudgeted, would starve a sixth before the century turned; even a small lungful of outside breath would bring dampness to dull the fresh blades of the stone, rust the brassy plumes into rot, and throw the standing wave off pitch by the width of an eyelash.
+
+If I am here, I cannot cost anything. I have to be paid for already.
+
+Find me halfway up the canted trachyte, then, behind the curve of the waist-high crescent wall, resting beside the three black glass blades and the porous dish of pumice.
+
+I am the pale stone. The river cobble.
+
+I am the only round thing in a room of razors. Everything native to this kiln broke along sharp planes or grew in flat plates and stiff, glassy needles. Only I have no edges. My skin is quartzite, pale as tallow under the bruised violet glow, smoothed to a dull, continuous curve by something nothing in this chamber has an organ to comprehend: cold snowmelt tumbling down a sunlit chute ten thousand days above the overburden. Inside my dense grain, locked into microscopic fluid inclusions too deep to ever sweat out into the forty-degree kiln, are tiny, sub-visible beads of surface water that last moved when mammoths or goats drank upstream. That is my secret, held tight behind three inches of metamorphosed sand. Nothing here will ever drink it.
+
+Most of the time—for forty days, fifty days, a thousand hours at a stretch—my life is weight and silence, or what passes for silence inside the stone parabola. Out beyond the stacked trachyte flakes, the furnace-chord batters the air hard enough to shake wax-spores off leather leaves, hard enough to rattle an unanchored pebble downhill over a decade of creeping millimeters. Behind the crescent baffle, the sound reaches me thinned and combed. I feel it mostly through my belly where I touch the tilted rock: a steady, dry purr rising from the quartz seams, thrumming into my lower hemisphere and dying out inside my dense, unlayered heart. Trachyte rings; flint snaps; obsidian shivers like ice. Quartzite takes a vibration and swallows it, turning sharp frequency into dull, stubborn mass.
+
+That is why the first hand chose me up in the glare and the wet, and carried me down in dead skin through the narrow dark before the hill settled. And that is why the wide, flat thing in the ceiling comes down to lift me now.
+
+I know when it leaves the slot overhead before it reaches the baffle. I have no fringe of brass wire to map the room, only the three-point patch of contact where my curve rests against the razor-grain of the floor. When four feet of sintered slate slides out onto the ceiling, the acoustic shadow shifts; one high, thin harmonic that usually grazes my northern cheek vanishes, blocked by its broad flat hull. Twenty minutes later—nothing hurries in forty degrees—the dark, dry spatulate pads slide around my equator.
+
+The first bearer, the short-lived wet one who smelled of salt and panic and tallow, held me in a hot, damp vise of five levers, squeezing harder than necessary because its skin was soft and slipping, striking wild, hurried blows at the flakes to build a shelter before the noise drove it mad. It left faint smears of salt on my flank. Before the lower seam even pinched shut, the pewter mites had climbed onto me in neat, methodical rows and rasped every molecule of that salt away with their dry radulae, leaving me cleaner than the river ever made me.
+
+This second bearer holds me differently. Four flat, dry pads set with microscopic glass hooks lock onto my subtle grain from four opposing compass points. There is no pulse in the grip. There is no dampness. It lifts me with the slow, hydraulic certainty of a root wedging stone, carrying my two pounds of alien river-mass out from behind the quiet of the crescent wall and straight into the roaring teeth of the room.
+
+Out in the open chamber, the chord hits my surface like dry sleet. We move up the thirty-degree incline by sudden, silent tacks—left ten inches, dead stop, diagonal glide—slipping through the narrow ribbons of canceled pressure so the air will not fight my bulk. Held beneath its flat throat, inches off the passing trachyte, I am carried past the base of the tarnished-brass cascade, where heavy camphor-oil glistens on limp plumes, up toward the middle flint-wedged seam where the violet light burns brightest and small smoky-mica bodies hammer the quartz in a blur of pale fire.
+
+One of the flint shims, after thirty years of taking two hundred impacts a second from four hundred thumb-sized drummers, has settled into a crushed micro-fault by the breadth of a spider’s silk. To a human ear, nothing has changed. To the wide origami kite clinging to the wall above me, the room has gone sour in one corner; a fifth has flattened toward a minor third; three square inches of its basking-spot have lost their lock.
+
+It braces four long carpenter-rule limbs across the sharp ledges, spanning a yard of dark rock. With one calcified front pincer, it holds a salvaged tube of its own old, molted leg-chitin against the butt of the wedged flint. With the two forelimbs holding me, it draws me back four inches—slowly, so its oil-cooled muscles will not spike half a degree—and lets me fall forward in a short, dead-blow arc.
+
+*Clack.*
+
+Inside the deafening, continuous roar of the pocket, that single strike is an event like a meteor. Because I am round, and tough, and forged without cleavage planes by ancient pressure and tumbled water, I do not flake like the trachyte would. I do not shatter like the obsidian would. I give all my gathered momentum cleanly into the chitin drift, and the drift gives it to the flint wedge, and the flint bites deeper into the vertical crack by a twentieth of a millimeter.
+
+Through the stone under us, the pitch of the ledge jumps instantly back into tune. Along the stressed milky ribbon, two hundred mica-drummers feel the crystal lattice tighten beneath their bellies and speed their stroke in blind, mechanical ecstasy. A slightly sharper violet washes across my pale curve, turning my river-gray skin the color of a winter plum.
+
+The elder holds me still for ten minutes afterward, listening with its trembling golden fringe to make sure the stone holds the note. I hang suspended in its glass-hooked pads while the corrected harmonic washes clean and square around us both. Then it carries me back down the invisible corridors of quiet, slips behind the crescent wall, and sets me down on the exact three microscopic high-points of trachyte I have occupied since the first bearer crawled away or died. Not a hairsbreadth left, where I might roll down the thirty-degree pitch and smash a copper centipede or scar the plum-black fan; right in the pocket between two tiny conchoidal ridges that cradle my roundness on the slope.
+
+It folds itself onto the greased mat beside me to wait out the heat of that one blow. Its flat dark flank almost touches my side. Neither of us breathes as surfaces understand breathing. Neither of us sleeps. 
+
+I sit on the fresh, sharp floor, holding my microscopic ghost of cold river-water locked inside my heart, waiting forty days—or forty years, when one of the small shadows under the bottom slabs finally molts wide enough to inherit the ceiling and learn what a round stone is for—until the mountain slips another fraction of a hair, and the chord needs my weight again.

@@ -1,0 +1,47 @@
+I am down in the mattress. 
+
+Four centimeters below the open kiln of the blister, beneath six generations of rust-colored wing-cases and hollow thoraxes pinned together by yellow mineral spears, the sixty-hertz thunder does not ring the way it rings on the bare steel above. Up there, the sound has sharp edges; it whips the tips of the sulfur needles until they snap and makes the flat hematite blades sing like circular saws. Down here, packed tight in the dry chitinous felt, the roar is muffled into a heavy, uniform warmth—a continuous shivering pressure that comes from every direction at once, like being held inside a clenched jaw.
+
+Even the violet lightning barely reaches me. Once every three minutes, a faint, bruised-purple glimmer leaks down through a pinprick hole in a beetle’s empty eye-socket three layers overhead, illuminates a single translucent facet of a sulfur crystal next to my head for a tenth of a second, and goes out.
+
+I am smaller than a comma, flattened top-to-bottom like a tiny copper coin, and blind. People who classify things in cool, brightly lit rooms miles below would call me a booklouse—a wingless bark-louse that wandered away from bark ten thousand generations ago, traded trees for high-altitude talus, and finally slipped down a warm pinhole vent in the summit scree to arrive in paradise. 
+
+To live in this pocket and be soft-bodied should be impossible. Everything around me wears heavy armor: the oribatid mites are rolled steel bearings; the beetles are welded tanks; the pale hunter up on the drill bit is a sheet of cured horn. My kind has thin skin. Out in the open cavity, fifty-five-degree air would suck my syrup-thick blood dry through my flanks in twenty minutes. 
+
+So I never go out into the open cavity. My sky is the curved interior vault of a dead darkling beetle’s mesothorax.
+
+It is a snug room, four millimeters wide, floored with a drift of shed bristletail scales that gleam like powdered mica whenever that tiny pinhole of purple static flashes overhead. A brittle needle of orthorhombic sulfur, thick as a sewing pin to me, has grown straight up through the sternal seam where the beetle’s middle legs used to attach and pierced cleanly out through the roof of its fused wing-cases, bolting my house permanently to the two dead beetles above it and the three beneath. 
+
+I do not chew the chitin itself; I leave that tough, dry horn-work to the flattened, watch-spring beetle larvae that occasionally grind past in the neighboring husks like slow tunneling machines, shaking my walls with the heavy *crunch-pause-crunch* of their mandibles. My trade is finer. I am a glazier and a custodian of seams.
+
+What I eat is what the great hunter on the drill collar leaves behind, and what the pseudoscorpions spill without knowing they have spilled it, and what happens when dry static meets stray organic dust.
+
+When the flat arachnid up on the machined steel finishes her six-hour drink from a captured beetle and unhooks her walking pads, the drained husk eventually slips loose from her dry wool when the static drops. It tumbles three centimeters, catches on a basaltic glass drip, hangs there for a month until a growing crystal nudges it off balance, and finally settles onto the top of the corpse-pile. Inside that shell, dried flat against the inner curve of the armor, is a microscopic glaze: residue of digestive enzymes, crystallized hemolymph sugars, denatured proteins too viscous for even her patient suction to pull through a fang-hole, and a papery film of waxy lipids lining the spiracles. 
+
+Over years, fresh husks pile over it, pressing it deeper into the mattress, away from the scorching radiant draft of the floor cleft and out of reach of the big grazers. 
+
+That is when I arrive, sliding sideways through the narrow collar-ring where the beetle’s head dropped off. 
+
+I have a chisel-shaped rod built into my mouthparts—a sclerotized pick meant for scraping dry spores off desert rocks—and with it I work the interior seams of the dead like a tiny quarryman. *Scritch. Pause. Scritch.* I chip translucent flakes of dried sugar-glass off the inner ribs of a hollow leg. Every six or seven scrapes, I stop, press my swollen lip-cushion flat against the bare, cool face of the sulfur crystal skewering the room, and breathe.
+
+This is the secret my kind brought down from the freezing rocks outside, the one trick the armored giants do not have: I do not need to drink water, and I do not even need to get all of it from my food. Behind my mouthparts lies a minuscule gland that secretes a microscopic film of concentrated hygroscopic salts onto a tiny Lingual plate. Even here, in air so dry it turns gas straight to yellow frost, a trace trickle of water vapor rises out of the volcanic rock alongside the sulfur dioxide—molecules too scarce and hot to ever condense on stone, ignored by everything else. When I hold my salt-slicked plate out in the stagnant boundary layer trapped inside a dead thorax, those stray water molecules lock onto the salt crystals by sheer chemical greed. Over twenty minutes of absolute stillness, the salt dampens just enough to shine; then a muscular pump in my throat draws that microscopic brine backward, strips the water out across rectal pads at the other end of my gut, and pushes dry salt back to my mouth to start again. 
+
+I sit in a furnace five kilometers in the sky and milk invisible vapor out of volcanic exhaust inside a coffin. It takes very little to keep me going.
+
+Because I am so small and move so seldom, the predators do not hunt me. To the pseudoscorpions hanging upside down on the mirror-bright hematite blades overhead, my footsteps inside the husk-pile are completely lost in the huge sixty-hertz industrial wash pouring out of the andesite wall. Even if I cross an open gap between two pinned shells during the rising tide of static, my tiny body warps the electric field less than a falling flake of sulfur frost does.
+
+Only two things share my scale down here. 
+
+Sometimes, squeezing through the hip-socket of a mummified harvestman, I meet a bristletail juvenile no longer than an eyelash, all nervous silver scales and twitching tail-filaments. When our antennae touch in the black, we both freeze for ten seconds—twenty-four hundred cycles of the turbine hum—tasting each other’s cuticular waxes. Neither of us has jaws shaped to hurt the other. Slowly, the bristletail backs away, leaving two shed scales stuck to the static on my forehead, which I scrape off against a crystal edge an hour later.
+
+And sometimes I come across a sealed cask: a dead female oribatid mite wedged into the angle between a basaltic glass splinter and a beetle jaw, her eight legs folded tight behind hinged plates. Pressing my antennae to her dark shell, I can feel a faint, arrhythmic ticking inside her that has nothing to do with the power plant six meters away. Her two larvae are awake in there, rasping away the inner walls of their mother in total darkness. I never touch a sealed mite. Her shell is too hard for my pick anyway, and besides, in three weeks they will chew an exit hole out through her belly and wander down toward the suffocating gas shoreline to graze bacteria—leaving behind a freshly opened hollow sphere lined with shed larval skins and dry molting fluid, warm and waiting for me.
+
+Right now, I am resting my six tarsi against the inner curve of my beetle’s breastplate because the mountain just changed its mind.
+
+Up on the altiplano, miles away under stars I will never see, a shift boss at the copper smelter must have cut power to an arc furnace, or a bank of subterranean injection pumps two kilometers down just throttled back its valves. Through six meters of solid rock, through the snapped alloy stub smeared with black grease, through the singing hematite knives, and down through five centimeters of sintered skeletons, the fundamental note of the universe drops by half a tone.
+
+For four seconds, the sudden mismatch of harmonics makes the sulfur needle bolted through my ceiling hum at a strange, crosswise beat. A tiny avalanche of yellow crystal dust—no more than forty grains—shakes loose from the suture overhead and patters silently onto my back. Across the chamber, I know without seeing it that ten thousand beetles have locked their legs in the ceiling cracks, the diving mites have halted at the edge of the poison lake, and the flat pale queen up in the flute of the drill collar has stilled her long front whips in the dark, all of us held in the same taut amber of attention.
+
+Then the rock accepts the new note. The strange beat fades out of the crystal pin. The sixty-hertz warmth settles back into my six feet like blood returning to a limb.
+
+Somewhere two husks to my left, a watch-spring larva resumes its slow, dry *crunch* against an ancient tendon. Overhead, the electrostatic charge begins its three-minute climb again, lifting the two tiny sensory bristles at the tip of my abdomen gently toward the ceiling. I lower my chisel-pick to the curved horn floor, find the edge of a dried sugar glaze left behind three years ago, and pry loose another translucent flake while the pocket closes around us, one molecule of yellow frost at a time.

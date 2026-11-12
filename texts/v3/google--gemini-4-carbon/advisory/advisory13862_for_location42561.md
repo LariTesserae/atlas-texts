@@ -1,0 +1,60 @@
+Visiting this chamber is less like entering a wilderness and more like stepping inside a sealed earthen jar that has been sitting undisturbed on a shelf for five thousand years. Nothing inside it is actively trying to kill you, yet almost everything about your ordinary human biology—your moisture, your movement, your noise, your shedding skin, your need for air circulation—is slightly out of scale with a place this still. 
+
+To visit safely, comfortably, and without ruining one of the quietest rooms in the multiverse, prepare along the following lines.
+
+---
+
+### 1. Water and Heat: Preparing for "Invisible" Dehydration
+Because the air sits near human skin temperature and does not move, your body’s thermal sensors will initially be fooled. You will not feel a blast of desert furnace heat, nor the clammy chill of a typical cave. Standing still, the air will feel almost weightless—like having no boundary between your skin and the room.
+
+Do not trust that comfort:
+* **Understand how cooling works here:** When ambient air is already near skin temperature and dead calm, your body loses almost no heat through radiation or convection. The moment you walk up the talus slope or crouch to inspect the floor, 100% of your cooling will come from sweat evaporating into the bone-dry air. Because the air is so dry, that sweat will flash-evaporate before it ever beads on your skin. You will dehydrate rapidly while feeling completely dry.
+* **Carry far more water than seems reasonable:** Bring at least a liter for every couple of hours you plan to stay, pre-mixed with electrolytes. Use an insulated bottle or bladder with a bite-valve so you can sip continuously without uncapping containers in dusty air.
+* **Protect your mucous membranes:** Air dry enough to tighten your nostrils on the first breath will crack your lips and trigger nosebleeds within a few hours. Pack plain, unscented petroleum jelly or saline nasal gel and apply a thin coat inside your nostrils and on your lips *before* you cross over. Bring preservative-free lubricating eye drops as well, especially if you wear contact lenses (though glasses are much better here).
+
+### 2. Breathing the Still Air: Dust, Spores, and Gas
+In an ordinary cave or canyon, wind or water clears the air. Here, there is zero draft. Anything you kick into suspension will hang at face height for hours.
+* **Pack a well-fitted P100 or N95 respirator (without an exhalation valve, ideally, or just a clean particulate mask):** The floor is buried past the waist of fallen boulders in talc-fine silt laced with iron oxide, and the darker reaches hold ancient, split puffballs whose dry spore-cases have been preserved like leather. Even careful footsteps will send plumes of superfine mineral dust billowing around your shins, and disturbed fungi can release clouds of millennia-old spores. Keep a mask around your neck and put it on whenever you move across the silt floor.
+* **Clip a pocket multi-gas monitor (O₂ / CO₂) to your collar:** The presence of living roots, the high chimney, and the ancient workstation suggest the chamber breathes *just* enough through barometric pumping and diffusion to stay breathable. However, sunken, draftless vaults in lime-bound rock can occasionally pool carbon dioxide in low hollows during certain surface weather shifts, and your own exhaled CO₂ will build up locally if you sit motionless in a corner for hours. Set the monitor to vibrate rather than beep—an 85-decibel alarm bouncing off smooth sandstone flutes in total silence will rattle your teeth.
+
+### 3. Clothing: Soft, Quiet, and Thorn-Resistant
+Dress for protection against small, sharp things and against your own noise.
+* **Leave crinkly synthetics behind:** In a room where a single flake of tree bark landing on dust is an audible event, a nylon hiking jacket or ripstop rain pants will sound like tearing tin foil every time you breathe. Wear soft, tightly woven, matte fabrics—lightweight canvas, brushed cotton, linen, or ultra-light merino wool.
+* **Cover your ankles, shins, and forearms:** The stunted suckers growing around the taproots are low, stiff, and thorny, spaced wide apart in dim light where they are easy to miss. Loose, breathable long trousers and long sleeves will save you from dry, waxy thorn scratches.
+* **Wear thick-soled, clean-treaded boots:** Beneath the leveling silt lie buried block edges and—crucially—razor-sharp flakes of chert. Soft-soled shoes are asking for a stone-blade puncture through the arch. Before you depart for this world, scrub your boot treads clean with a stiff brush and plain water, then let them dry completely so you do not track foreign mud, seeds, or dampness into sterile silt.
+* **Bring light leather work gloves:** Useful if you need to steady yourself on sandstone walls ortalus blocks, though you should keep your hands off almost everything else.
+
+### 4. Light: Respecting the Pewter Dark
+If you arrive during the plain’s daytime, resist the urge to flick on a flashlight immediately.
+* **Give your eyes ten full minutes:** At first you will see almost nothing. Wait. Let your pupils open and your rod cells take over until the doubly-baffled light from the chimney resolves the room into its native shades of ash, slate, bone, and charcoal. Seeing how that dim, pewter stain pools beneath the cleft is half the reason to come here.
+* **Pack two specific lights (plus spare batteries):** 
+  1. *A sub-lumen "moonlight" or red-light headlamp:* Something capable of outputting 0.5 to 2 lumens. This lets you watch your footing around thorns, roots, and buried stones without shattering your dark adaptation or washing out the room's natural twilight.
+  2. *A warm, high-CRI (Color Rendering Index) diffused hand light:* If you want to briefly see the true colors hidden in the grey—the ochre walls, the sage-green stems, the banded brown of the chert flakes—use a warm, diffused beam held low, never a harsh blue-white tactical spotlight.
+* **Plan for absolute blackness at night:** When the sun goes down on the plain above, the chamber drops to true, total cave dark. Even your sense of up and down will depend entirely on your inner ear and the floor beneath your boots. Never set your backup light down on the rock; tether it to your body.
+
+### 5. Navigating the Chamber Hazards (and Non-Hazards)
+Geologically, you can relax: the erosion here is finished, the scallops are settled, and nothing overhead is waiting to fall on you. The hazards are subtle and terrestrial:
+* **Watch the "waterline" of the silt:** Dry silt leveled over millennia hides deep gaps between buried talus blocks. Test your footing gently with your toe before committing your weight, moving slowly as if wading through shallow water. A sudden stumble will blind you in a silt cloud and could drop your knee onto sharp rock.
+* **Give the taproots a wide berth:** Those vertical columns are not dead wood or stone pillars; they are living structural cables under immense mechanical tension, anchoring desert trees twenty-five feet above while keeping them alive from deep moisture below. Do not lean against them, hang packs from them, peel their papery bark rings, or step inside the neat circles of shed bark at their bases.
+* **Verify your transit exit before going in:** Look at the geometry of the room. The ceiling curves twenty-five feet overhead, smoothed into broad overhangs, and the single chimney bends twice through wedged sandstone beds. Unless you brought full technical caving and aid-climbing gear (which would mar the rock), *you are not climbing out through that cleft.* Make 100% certain your multiverse travel method does not require direct line-of-sight to the open sky or a different exit vector to take you home.
+
+### 6. The Strictest "Leave No Trace" Protocol You Have Ever Used
+This is the heart of preparing for this location. On Earth, if you drop a breadcrumb in a forest, ants and rain erase it by Tuesday. In this chamber, there are no ants, no mice, no spiders, no mold, no rain, and no wind. **Nothing rots here.** 
+
+Near the edge of the twilight sits a sandstone grinding slab, a river cobble resting in its own dust-dimple, two fire-hardened digging sticks tucked into a seam, four chert flakes, and crisp seed-husks left behind a hundred lifetimes ago. It looks as if the worker stepped out an hour ago. If you are careless, your visit will overwrite ten thousand years of stillness in ten minutes—and your mistakes will still be sitting there ten thousand years from now.
+
+* **Do not eat inside the chamber:** Eat a solid meal before you arrive. Do not bring crumbly snacks, fruit peels, or sugary drinks.
+* **Go to the bathroom before you go—and carry a sealed WAG bag anyway:** Urinating or defecating anywhere in a warm, dry, draftless stone room will preserve the waste indefinitely and permanently ruin the faint mineral-and-cedar scent of the air. Carry an airtight waste kit strictly for emergencies.
+* **Wear completely unscented products:** No cologne, no scented deodorant, no minty lip balm, no smelly bug spray (there are no biting insects here anyway). In dead air, strong artificial scents linger horribly.
+* **Bring zero fire or smoke:** Never light a match, lighter, stove, or incense. The 25-foot ceiling has remained spotless of soot since antiquity.
+* **Mind your footprints:** Every bootprint you press into that level silt will stay crisp for millennia. When you arrive, stay on bare rock or the talus stones as much as possible. If you walk onto the silt floor to view the roots or approach the workstation, pick *one* clean, deliberate line of steps, walk slowly heel-to-toe, stop well back from the sandstone slab (three or four paces is plenty close to see the polish on the dish and the checking in the digging sticks), and walk backward out along your exact same footprints.
+* **Touch nothing at the workstation:** The oils and salts on human fingertips will stain dry desert stone and ancient wood permanently. Even lifting the river cobble out of its dust-dimple destroys an unbroken physical record of the last human hand that set it down. Keep your hands clasped behind your back when leaning in to look; it also stops tools or straps from swinging off your chest onto the chert flakes.
+
+### 7. Psychological Preparation: The Weight of the Quiet
+Do not underestimate how strange this room will feel to an ordinary nervous system after the first half-hour.
+
+Human brains rely on tiny background cues—wind shifting, distant traffic, insects, dripping water, changes in air temperature—to anchor themselves in time and space. Here, the silence presses physically against your eardrums. Your own heartbeat, the swallow in your throat, and the faint tinnitus everyone carries in dead quiet will rush to the foreground. Hours apart, the plains above might send a single, dull thermal *tick* through thirty feet of rock; when it happens, it will startle you out of your skin if you aren't expecting it.
+
+* **Leave mechanical watches at home:** An analog watch ticking sixty times a minute will feel like an intrusion in this space. Wear a silent digital watch with a gentle vibration timer so you know when an hour or two has passed—especially if outside twilight fades to black while you are there, erasing your only natural clock.
+* **Travel solo, or with one deeply quiet companion:** If you go with someone else, agree beforehand not to speak above a bare whisper—or better yet, not to speak at all while inside, saving conversation for after you return. Normal human voices booming off curved sandstone flutes break the spell of the room instantly.
+* **Know when to leave:** You don't need to camp here. Two or three unhurried hours—sitting on a clean talus block near the entrance end, sipping water, letting your eyes drink in the ash-and-bone light, watching the taut tree roots hold their silent tension through the dark air—is enough to let the deep, patient calm of the place sink into your bones, while leaving the room just as untouched as the ancient worker left it.

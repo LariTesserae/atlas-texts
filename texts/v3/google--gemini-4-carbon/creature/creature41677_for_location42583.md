@@ -1,0 +1,47 @@
+To see what actually rules the deep interior of this place, you have to stop looking at the sky, and you have to stop looking at the surface. You have to watch the fault lines where two broken gravities argue.
+
+When one of the matte-black anchors stutters, dropping a million tons of silver dust while a neighboring anchor three leagues off abruptly pulls a flanking ridge sideways, a shear-zone forms between them. In these invisible corridors, the talc doesn’t fall and it doesn't rise; it hangs in a bruised, churning suspension, rubbed raw against itself until the violet static runs through it like arterial blood. 
+
+At first, what emerges from that static looks like an anomaly of the weather—a ribbon of dust that has momentarily forgotten how to scatter. 
+
+You see a ropy, ten-yard braid of silver powder pull itself tight in mid-air, twisting against the direction of the prevailing plume. Then another beside it. They look like whirlwinds laid horizontally, except their edges are too crisp, held together by an intense, localized charge that rejects the chaotic pull of the anchors. 
+
+If you stand very still on a nearby crest, feeling the sub-audible, tooth-aching hum of the field-pins beneath your boots, one of these braids might loop down toward the slope to inspect the vibration of your footsteps. As it draws closer, the illusion of solid dust vanishes. 
+
+There is an animal inside the powder, though "inside" is a generous word for something built like a three-dimensional spiderweb. Its true body is a sparse, gossamer nervous system of superconducting carbon filaments and dark, heavy nodes the size of cherry pits, spaced feet apart. Unclothed, it would be nearly invisible against the indigo zenith—just a drifting, geometric smudge of black thread. What gives it bulk, muscle, and armor is the world itself. By running precise, alternating currents through its filaments, the creature polarizes the hyper-fine mineral talc around its threads, locking millions of microscopic grains into rigid, electrostatic musculature. 
+
+It wears the mountain like a sleeve. When it needs a limb to push off a temporarily solid spire, it flashes a charge down a trailing filament, and twenty pounds of loose dust instantly seize into a dense, silvery spear, hard as slate. The creature vaults itself silent yards into the thin air, cuts the current at the apex of its leap, and lets the leg burst back into an effortless puff of smoke, conserving its momentum while shedding the borrowed mass.
+
+They are variable, nameless things—call them *shiver-weaves*, or *fulgurites*, though they never truly vitrify. An individual has no fixed shape. In the calm lee of a suspended, humming anchor, where the waste-heat makes the thin air tolerable, one might relax into a broad, flat wheel twenty feet across, lying flush against the slope like a silver coin to soak up the stray thermal radiation while its filaments slowly comb the talc for dead copper-weed spores. 
+
+Minutes later, if the anchor’s parameters fray and the ground suddenly drops out from under it, the wheel snaps shut. It draws its heavy little nodes inward, sheds ninety percent of its dust-coat in a blinding flash of reflected white sunlight, and drops into the newly formed abyss as a dense, streamlined dart, riding the newly inverted gravity gradient like a hawk diving down a cliff.
+
+Because they have no lungs, no mouths, and no fluid in them to freeze when the shadows go razor-black at dusk, they do not experience aging or hunger the way wet things do. Their metabolism is entirely dry—an endless triage of voltage and friction. They eat the copper-tumbleweeds not by chewing them, but by wrapping a dense, temporary fist of polarized dust around a rolling metallic plant, dragging it into a high-friction wind shear, and letting the raging, silent sandblaster of the landscape strip the brittle fronds down to raw, conductive powder, which the weave then draws directly into its own structural matrix to repair frayed threads.
+
+The longer you watch a single sector of the upheaval, the more you realize these creatures are not solitary. What looks like an isolated dart shooting out of a collapsing ridge is often just the furthest knuckle of something much larger, or perhaps one voice in a silent, sprawling parliament.
+
+You see this best just after sundown, during the great twilight cascades, when the plummeting cold sets the ancient monoliths pitching and rolling in their invisible cradles.
+
+Down in the pitch-black troughs between the miles-high curtains of amber-lit dust, the violet static stops being random. You will see two or three weaves shoot out from opposite cliffs into the empty, freezing air between a pair of warring field-pins. Instead of passing each other, they link their trailing filaments, shedding their dust-coats entirely so the wind won't tear them apart. Others drop from the plumes above to join them, latching node to node, until an enormous, invisible net of dark wire is stretched taut across half a mile of roaring, soundless space.
+
+For a few minutes, nothing shows in the dark except tiny, rhythmic pulses of blue-white light skipping from cherry-pit node to cherry-pit node—signals, calculations, a shared nervous system bracing itself.
+
+Then the net pulls tight on the ambient static, and all at once, the dust catches on it. A vast, phantom architecture blooms out of nothing in the freezing dark: a lattice of glowing, violet-veined silver, shaped like a parabolic dish or a massive, ribbed throat, hanging defiant and motionless right in the teeth of a million-ton avalanche. 
+
+The falling mountain passes *through* them. As the pulverised continent pours through the gaps in their shared body at eighty miles an hour, the kinetic violence strips unimaginable electrical charge off the talc. The colony drinks the collapse whole, lighting up from within like X-rayed bone, redistributing the fierce energy down to the smallest, weakest threads at the fringes of the net so new nodes can be forged out of trace carbon and iron. If a stray boulder—actually just a clump of dust compressed briefly to stone by a glitching gravity lens—punches a fifty-foot hole through their center, there is no blood, no panic, no cry in the thin air. The severed filaments simply whip back, re-polarize, and stitch themselves across the gap before the plume has finished falling.
+
+And then there are the ones that never come out of the black monoliths’ orbits at all.
+
+The long-legged striders skate up to the matte-black shipping containers to warm their brittle joints, yes, and vanish when the ground tilts. But if you manage to scramble close enough to one of the suspended anchors—close enough that your clothes plaster themselves sideways against your ribs from a rogue, forty-degree gravity leak, and your vision swims from the subtle bending of the sharp white sunlight—you will notice that the seamless black hull isn't entirely clean.
+
+Wrapped tightly around the monolith, pressed straight into the violent, invisible knots where inertia is being shredded and remade every microsecond, is a dense, shivering felt of pure silver.
+
+These are the eldest weaves. Over centuries of dry, cold endurance, their carbon filaments have grown so thick with scavenged copper, silicate, and heavy trace metals that they can no longer drift on the updrafts. Too heavy to surf the collapses, they have migrated inward to the sources of the chaos. They cling directly to the feral stabilizers, gripping the seamless black surface not with claws, which would find no purchase, but by wedging their polarized bodies into the microscopic seams of conflicting gravity fields that radiate from the decaying cores inside. 
+
+To look at one is slightly sickening; the bent physics around the anchor makes the creature appear to smear and double in the crisp air. Part of its dusty mantle might be streaming furiously upward toward the indigo sky while an inch to the left, its flank is flattened downward as if under an invisible anvil. 
+
+It doesn't care. It has become a parasite of broken math. Every time the ancient machine inside the black box stutters and changes the weight of the world for ten miles around, the shockwave passes through the old weave’s metallic web first. And here is the strangest thing about this dead, pulverized roof of the world: the old weave *pushes back*.
+
+It has no mind to understand tectonic engineering, no memory of the builders who left these boxes behind when the mountains were still granite. Yet it knows, down in the silent, sparking geometry of its nodes, which gravity shifts bring the richest plumes of spore-heavy talc toward its hull, and which shifts tear its body apart. So as the decaying quantum core inside the monolith cycles randomly, the heavy, ancient net wrapped around its throat selectively shorts out surface currents, bleeds off stray kinetic bursts into violet lightning, and subtly dampens specific frequencies with the dead weight of a hundred tons of electromagnetically locked dust.
+
+When you stand on a ridge three miles away and watch a needle-thin spire of silver powder hold its impossible shape in the bright, freezing sun for twenty minutes before dropping—you are not just watching a broken machine twitch. You are watching an old, blind web of wire and dust squeezing a feral god in its sleep, tilting the avalanche three miles to the east so its distant, drifting children have a fresh slope to graze before the sun goes down.

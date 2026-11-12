@@ -1,0 +1,71 @@
+At first, looking down from the ochre clay of the rim, there is a temptation to stay above it all—to be one of the oil-dark birds high in the steel latticework of a transmission pylon, folded into the warm updrafts like a bolt left over from construction, watching the white threads of blind eels feel their way along drowned street-corners two hundred feet below. Up there you would have the whole twenty-mile sweep of the bowl under your keel: the cloud-shadows dragging across wet slate, the four hundred plumes flattening against the inversion ceiling like anvil heads of clean steam.
+
+Settle lower, though, and the air thickens enough to tell you what is wrong with that perch. Up in the lattice, nothing touches you but wind and hot cable, and in this valley anything untouching is mute.
+
+Closer to my nature is the flat, pale crab wedged onto the sunny side of a step-down transformer casing, warming its belly-plates on sixty-cycle eddy currents, tasting of copper sulfate and ozone so nobody bothers to drop it in a pot. There is a real pull in that life: to sit for forty years at the edge of an immense, purposeful current you did not build, feeling the hum walk through your shell while calcium slowly stiffens your back hinges, trusting that sooner or later someone crossing the gravel flat will notice your limp, pull a phosphor-bronze scraper from their belt, flick the stone off your joints in two dry snaps, and walk on without needing to be thanked.
+
+If I let myself sink all the way down to my proper weight in this basin, however, I end up with boots on—heavy, knee-high, lugged with cork and old tire-rubber, warm water sliding in through the brass-grommeted weep holes at my insteps and warming to blood-heat in three strides. Something of that transformer crab stays in me anyway.
+
+I would not be one of the wheel-riders, though in my twenties I would have taken my turns in the leather harness like everyone else, learning the sixty-second climb up the slick cast-iron curve into the sharp highland glare, the smell of mustard lichen crushed under a boot-sole, the steady *chink, chink* of a bronze chisel felt through the palm rather than heard, and then the unhurried step off onto the wet masonry lip before the rim plunged into the splash-pit. That work belongs to people who can keep their minds at the tip of their chisel. Mine would have wandered down the shaft.
+
+That is how you find out what you are for here. You put a young hand on a flywheel gang, and after two months the gang-boss notices that three times an afternoon she stops swinging her lead-weighted rawhide mallet, lays her bare thumb flat against the butt of the bronze chisel, and rides all the way over the top of the forty-foot arc with her eyes half-shut, until someone down on the causeway has to tap a high-carbon striking-rod against a rivet—*ping*, twelve thousand hertz, thin and bright as a sewing needle in the sun—to remind her to unhook before she rides the iron straight into the scalding trough.
+
+When she climbs down and presses two fingers into the hollow of the boss’s collarbone, humming from deep in her chest, she isn't making an excuse. She is asking whether anyone knows that sixty feet below the splash-pit, down in the flooded masonry throat where no one has seen daylight in three centuries, a single bronze turbine vane has worn thin enough at the tip to flutter once every seventh surge.
+
+You do not leave a person like that on the outer iron, wasting daylight. You send them down behind lead, where the long books are kept.
+
+***
+
+My place would be inside Pier Twelve, one of the windowless, forty-foot-thick basalt buttresses where the central aqueduct steps over a sunken switching-yard. Not a family dwelling—my sleeping vault would be two piers north, shared with seven cousins and a sister’s two small children whose ears have not quite finished flattening out yet, who still look up sharply when a pan drops on the slate floor—but a working pocket cut all the way down through the ancient mortar until it meets the whale-back bedrock of the mountain itself.
+
+You come in off the causeway dripping rust-red water and warm mist, throw the heavy ironwood lever behind you, cross six feet of vestibule padded with tarred reed-felt, and drop the inner bar into its iron shoe.
+
+Even after forty years, that first half-minute takes getting used to. Your eardrums push outward into the sudden vacuum; your own neck sounds like a flooded culvert as your pulse slams past your jaw. You peel off the stiff, crab-tallow-greased rubber wraps and split eel-hide apron, hang them on the warm copper drain-pipe beside the door to weep themselves dry, wipe the grit from your cropped scalp with a rag, and pull on a loose shift of faded indigo cotton that has never once been outdoors. Your breathing slows down to match the dry air rising from the floor-ducts.
+
+In the middle of the room, the slate tiles stop. Rising knee-high through the floor is a flat-topped table of dark, native basalt—not carried in, left standing when the pier was hollowed around it centuries ago, planed dead-level and polished smooth by generations of elbows and oiled flannel.
+
+Carved into the stone are sixteen shallow circular dishes, each the width of a winnowing basket. They are filled half an inch deep with dark, heavy crab-oil boiled down with litharge and powdered galena so that it never skins over, never sours, and never evaporates. Along the north wall, protruding six inches out of greased lead-wool collars set through twelve feet of cyclopean block, is a row of thick phosphor-bronze rods. Outside, buried under mud and drowned flagstones, those rods run out for hundreds of yards to bolt directly onto the main bearing-blocks, culvert rings, and weir-frames of sixteen surrounding Siphons.
+
+Nothing in the room makes a sound. If my apprentice comes in with a kettle of steeped reed-pith or a plate of pressed burgundy algae cake, we speak in the indoor voice—that high, breathy, sibilant whistle, all *s* and *sh* and *f*, light as ash over a lamp—so we never wake the lower air.
+
+Yet the whole quadrant is in the room with us.
+
+Sit on the low three-legged stool with bare heels resting on the warm slate, hang a tiny brass lamp from its ceiling hook above Dish Nine, and look at the yellow ring of flame reflected on the black oil. When Siphon 41, half a mile east, is clean in its bronze throat and balanced on its forty-foot axle, the sub-audible chord coming up through the living basalt sets a crisp, motionless geometry across the oil: a twelve-pointed lattice of tiny standing ribs, fine as woven silk, holding so steady for weeks at a time that it looks like etched glass.
+
+When three hundredweight of white travertine rime builds up inside the north intake baffle, or silt shifts against the subterranean sluice-apron, one corner of that twelve-pointed star softens. A slow, lazy swell—invisible unless you catch the lamplight at a grazing angle—begins to walk clockwise around the rim of the dish once every two minutes, keeping time with the distant wheel.
+
+I spend hours there with a pair of long-legged bronze dividers that never quite touch the oil, measuring the breadth of a node to the thickness of a thumbnail, then carrying that span over to the oak lectern where the ledgers sit.
+
+The ledgers are bound in alum-tanned eel skin the color of old bone, sewn with waxed copper wire because linen thread eventually gives up even behind double doors. Open one at random three inches from the back spine and you are two hundred and eighty years deep in the same afternoon:
+
+*Fourteenth day after the high-wind clear. Dish Nine throwing a split rib toward the east mark, two barleycorns wide. Walked the rod: flutter in the third collar, greasy, not sharp. Set Gang Four to chip the lower lip of Weir Eleven; left the main chain alone. By next moon-turn the star pulled square again.*
+
+I love the people in those margins. None of them ever ask where the drooping high-tension cables go after they clear the southern ridge, or who laid the first stone course in the mud. One clerk, dead a hundred and sixty winters—long since turned into a smooth, bone-white boulder at the bottom of the central calcifying vent—had a habit of drawing tiny, exact profiles of canal crabs in iron-gall ink whenever all sixteen dishes stood square and left him nothing to log for a month. Another always noted when the wild translucent reeds in the exhaust gutter outside Pier Twelve grew tall enough to hiss against the bronze telltale rod in an east wind, warning the next reader not to mistake wind-rub for a dry bearing.
+
+When I want to listen closer than the oil can show me, I go over to the north wall and lay my dry indoor palms across two bronze stubs at once, leaning my forehead lightly against a wooden saddle wedged onto a third. Through my cheekbones and the heels of my hands comes the crowded, dark country below sound: the heavy, endless throat-clearing of the deep aquifers; the slow groan of a greased sluice-chain winching up an inch an hour three plazas away; the faint, crisp *tick-tick* of someone’s bronze scraper working scale off a culvert lip; and beneath it all, the vast, unhurried chord of four hundred towers holding the mountain’s breath at bay.
+
+***
+
+You cannot stay behind lead forever, or your skin goes soft and you lose the pendulum stride. Every afternoon, when the sun drops low enough over the western whale-backs to turn the mist amber, I put the cotton shift neatly on its peg, pull the oiled hides and rubber wraps back over my shoulders, lace the heavy boots, and lean my weight into the airlock lever.
+
+The roar hits my chest like warm surf, pinning my wraps flat against my ribs, and the relief of it is almost sweet—like stepping back into gravity after floating too long.
+
+I take a waxed slate board under one arm, check the steel striking-rod at my belt, and start the twenty-minute walk out along the vitrified brick viaduct toward Reservoir Six. Around me, the whole wide valley shines like wet slate. Every rivet on the great iron conduits holds a single fat bead of golden water ready to fall; five hundred feet overhead, the discrete white clouds drifting off the stacks have begun to blush rose-gold along their undersides. Down in the flooded grid to my left, where an inch of warm water sheets over ancient flagstones, my family’s terracotta rust-gardens glow deep burgundy-red under the shallow skim. I walk with my knees slightly bent, flat-footed, letting all my weight pour down through one heel into the trembling brick before picking up the other.
+
+Half a district out, a dark figure stands beside a manifold box—no taller than an oxidized bollard at first, until five minutes of steady rolling bring us within a hundred yards. Before I can make out the grease-braids tucked behind his ears or the horn toggles at his ribs, I raise my right arm out from my side, elbow bent, hand flat and level with my shoulder, then drop it two inches cleanly: *pressure backing gently in the east culvert; trim, don't shunt.*
+
+He lifts both hands briefly to his collarbones and lets them fall slack: *gang free tomorrow; show me where.*
+
+When we meet at the intersection, neither of us looks directly into the other’s face for long—the low sun coming off acres of shallow water turns everything into blinding copper dazzle—so we stand shoulder to shoulder facing the distant bulk of Siphon 41, the outer edges of our thick rubber boots pressed firmly together, both of us resting one flat palm on the warm, sweating iron of the culvert rail between us.
+
+Through the rusted iron under my fingers, over the top of the earth’s unchanging bass, I hum three short phrases from deep behind my breastbone, pitching the glottal clicks carefully so the iron takes them cleanly: *Weir Eleven, north cheek, four hands below the waterline. Half an inch of white crust throwing the lower bearing out. Take wedges, not heavy mauls.*
+
+A pause, while the giant flywheel half a mile away eases three rivets further over its crown. Then through the rail and up my arm into my collarbone comes his dry, gravelly answer—two quick clicks of agreement, followed by a slower, rounder hum that has a laugh tucked inside its rhythm: *My youngest tried to run across the wet flags by Boiler Four this morning. Swallowed two mouthfuls of mist, sat down in the warm mud, looked insulted for an hour. Learning fast.*
+
+I press my boot-sole an ounce harder against his—our way of smiling without opening our mouths to the mineral damp—and tap two fingers once on the iron rail before letting go.
+
+On the slow walk back toward Pier Twelve, as the highland sky deepens from amber into clear, cold violet and the first mountain chill comes sliding down off the smooth basalt ridges to thicken the rising steam, I pass an old transformer humming alone on its gravel pad. A pale crab the width of a platter sits squarely on its sun-warmed lid, shell trembling slightly with the current inside. When I step off the brick onto the wet gravel, it doesn't flinch; only its small, dark eyes track the shadow of my oiled wrap. A ridge of chalky white scale has bridged the gap behind its left pincer, cementing the joint stiff.
+
+There is nowhere I need to be for an hour, and no lamps will be lit outdoors between here and the twenty-mile rim. I stop, pull the flat bronze scraper from my belt, set the dull bevel against the seam of stone on its shell, and flick my wrist twice. The white crust pops free into the mud. The crab flexes its freed claw once—slowly, at the exact unhurried pace of a sluice-gate chain—and settles back down onto the warm iron.
+
+I slide the bronze back into my belt, step up onto the vitrified brick, and take the rolling stride home toward the stone pier, keeping count in my chest of the wheels turning evenly in the dark, glad to be part of what keeps the mountain from closing its fist for one more season, before the white cotton and the hot mineral pool make good stone of me too.

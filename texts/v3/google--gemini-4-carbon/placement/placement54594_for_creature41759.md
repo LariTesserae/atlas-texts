@@ -1,0 +1,39 @@
+You do not find me out in the booming middle water, where the dace burn their small silver lives away just to stay in one place. To hang in the open hall is to spend everything you have merely refusing to leave it.
+
+Look up instead, toward the east arcade, thirty-two feet above the polished floor plates, where the lead-sheathed cable rises from the dynamo’s junction box and passes behind the cast-iron wall brackets on its way to the second surviving lamp. Where the heavy cable bends, a three-inch gap lies tucked between the lead jacket and the scoured oxblood brick. The main current cannot reach inside that crease. It slips past the iron bracket with a low, steady whistle, leaving a pocket of water behind the lead that turns lazily back upon itself, slower than breath, three degrees warmer than the flood.
+
+Wait there until the third lamp’s dusty green edge stops trickling tricks on your eyes. What looks at first like a frayed collar of pale gray mortar squeezing out behind the cable—a rough, chalky knuckle of lime paste left by a mason’s trowel two hundred years ago—has two thread-thin white whips extending from its upper lip, testing the slow eddy.
+
+Wait longer, and you will see that it is not one thing, or else it is one thing distributed across six feet of sheltered seam.
+
+I am a crustacean, or I used to be, before the chamber took my legs and traded them back to me as architecture. My ancestors came down through the north intakes as tiny, blind subterranean isopods—pale pill-bugs of the deep limestone aquifers, tumbled out of some cracked municipal main into this roaring iron nave. Most were swept straight through the southern culverts before they ever touched a wall. A few caught in the dead-water seams, behind bolt-heads and inside the flanged lips of girders. Over hundreds of generations of ruthless hydraulic sorting—where anything that let go, even during the blind split-second of molting, was torn away forever—we stopped walking.
+
+I am the mat of pale, overlapping calcified plates wedged tight into the cable-crease, and I am also the forty-odd smaller plates stepped neatly down the mortar-joint below me like roof slates laid against the rain. Not a colony, quite, and not a single body, though we are all sisters budded or crawled an inch from the same split brood-pouch, locked heel-to-head in the exact contour of the eddy. The largest of my bodies is the size of a man’s thumb-joint, flattened like a limpet, colorless as tallow, blind as the lead I cling to.
+
+Underneath my arched back-plates, my fourteen legs have shortened into hooked iron-hard crampons that bite into the microscopic pores left where the lead sheathing has oxidized. My tail-shield hinges tight against the masonry like a check-valve. When the big carriage-door flap at the south end slams shut and the *boom* comes punching back up through the water—the percussion that scatters the bleak and sends the giant salamander flying across the floor—every plate along our seam clamps shut in the same tenth of a second. The shockwave rolls right over us. To the water, we are just another smoothed rivet-line.
+
+Then the pressure drops back to its steady bass roar, and we lift our margins a fraction of a millimeter, unrolling feathery fans of mouthparts into the boundary layer.
+
+From here, the whole nave arrives as flavor and tremor.
+
+Through my belly-hooks against the lead jacket, I live inside the sixty-cycle hum of the dynamo. It is the baseline of existence—a faint, feverish shiver in the metal that keeps the ice out of our joints and draws the pale gray velvet of iron-bacteria to grow right up to the edges of our shells. When we are not combing the drift, we graze that bacterial film sideways with scraping mandibles, trimming it like turf so it never grows thick enough to peel loose in the current and take our footing with it.
+
+When the amber filament twelve feet away dips slightly—a brownout lasting half a heartbeat as a waterlogged stick or a battered trout passes too close to the turbine intake below—the warmth in the lead cable stutters, and a faint metallic tang changes in the boundary water. We feel the machine’s age in that stutter. We do not know what wood or bronze is, down in that scroll-case on the floor, only that the warm hum has grown slightly looser, slightly rougher in its lower harmonics than it was ten molts ago.
+
+Every four minutes, after the southern valve booms and settles, the best feeding comes. The shockwave jars loose tiny ribbons of emerald algae from the brass cages of the four lamps, along with torn gill-threads of moss, flecks of shed fish-mucus, and fine meal ground off the mussel beds by the vortex-shear around the columns. The main torrent sweeps ninety-nine parts of that richness straight out the southern tunnels, but one part spins off into the wall-eddies, spiraling slowly upward along the brick until it brushes our crease. My sisters and I comb the dark green dust out of the water, passing larger tangled threads down the line from plate to plate, shredding them between tiny, tireless maxillipeds until nothing goes to waste.
+
+Twice in a season, the mountain moves past us.
+
+We know the great flat amphibian long before its shadow crosses the faint amber light—not by sound, because its vacuum-pads peel and lock more quietly than a crayfish clicks, but by the way the boundary layer bulges ahead of its broad snout. The slow eddy behind our cable stalls, backs up, and suddenly smells thickly of heavy mucus, crushed chitin, and old digesting pike.
+
+Then the sky closes down to an inch of wet, slate-colored leather sliding right over our seam.
+
+The giant’s pale underside passes directly across the cable bracket on its way up toward the ceiling arch. One of its ribbed, dock-line foot-pads plants itself half over our row, sealing against the soapy brick and the lead cable alike. For five seconds we are locked inside the total dark of its suction—pressed down in a sudden, warm, motionless pocket of slime while seven feet of muscle hauls itself upward overhead. It does not eat us; we are too flat, too sharp-shelled, too scarce of meat to bother scraping off a round cable with wide vomerine plates meant for cracking mussels and swallowing fish whole. In fact, as its rough belly-margin drags across our backs, our small scraping claws reach up briefly through the mucus and nip away the dead, shedding ribbons of skin and the minute pale water-molds trying to root in the creases behind its leg-joints.
+
+Perhaps that is why it always takes the east cable route on its climb to breathe. Perhaps the slight tickle of forty tiny combs clearing its flanks along the warm lead wire is part of its circuit, as necessary in its slow calendar as the booming turbine roof below or the cold mist at the top of the vault.
+
+Its pad releases with a soft, muffled *tock* of equalizing pressure. Its deep oar-tail glides past, stirring a brief, rich swirl of bottom-sand and gill-wash into our nook, and then it is gone, climbing into the booming dark near the crown where the water ends—a place none of my kind has ever touched, a shimmering ceiling as fatal to us as dry fire.
+
+We settle back against the humming lead. Three inches below the lowest sister in our seam, in a tiny pit where an old iron masonry nail rusted entirely away and left a clean socket in the brick, three pale specks no bigger than grains of sand have wedged themselves against the rim, turning their hair-fine antennae north into the wash.
+
+The water roars in through the grilles. The wooden bearings groan steadily on the floor. Down at the south end, the pressure begins to lean against the cast-iron door again, building toward the next *boom*, and we open our fans into the green gloom and wait for what the shake brings down.

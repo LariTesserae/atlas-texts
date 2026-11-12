@@ -1,0 +1,41 @@
+Watch the pale insect long enough—watch it leap across an invisible fold in the air, land on the freshly torn ceiling, and begin to lap at the bitter, mineral-heavy froth of a severed xylem vessel—and you will notice how carelessly it steps around a certain patch of nothing. 
+
+It does not cross the space three inches above the sinew bindings of the digging stick. Instead, its over-jointed legs tap the air, find purchase on an invisible bevel, and walk *up* and over a solid volume that is not there. 
+
+Then, as the digging stick shudders under the immense hydraulic squeeze of the wall, a thick droplet of guttation lets go from a ridge overhead. It falls vertically, hits an unseen shear-plane, shoots sideways, and splashes directly against that same empty volume above the stick. For a quarter of a second, the clear, resinous liquid coats the shape of four broad knuckles, the coarse grain of calloused skin, and the flat, bruised crescent of a thumbnail. Then the water runs down an invisible wrist, hits a boundary of folded air, and evaporates into the warm celery-scented emptiness before it can drip.
+
+What lives here is not missing. It is simply out of phase with the Tuesday afternoon light, smeared across the stuttering timeline of the room like butter scraped too thin over hot bread.
+
+Look back at the two overlapping shadows on the pale green phloem of the south wall. At first they seem static, an optical defect of the sourceless glare. But if you keep your eyes fixed on them through three or four pistol-shot ruptures of the heartwood, a slow, grinding choreography emerges. The shadows are not cast by two things; they are cast by one heavy, crouched mass caught at two different moments of tremendous physical exertion. One shadow shows the broad, barrel-ribbed curve of a torso bent nearly double, spine knotted, arms raised high to bring a weight down; the shadow laid directly across it is the recoil—shoulders slumped, head hanging forward between thick knees, chest heaving for breath. 
+
+The tool-maker is still holding the tools.
+
+Because space here has warped to contain an injury in sequence, time inside the fistula does not flow; it pools, eddies, and snaps back like bent greenwood. Whatever dug or fell or was swallowed into this deep root-knot ages ago did not have time to finish dying, nor room to finish living. The catastrophic botanical surge of the earth tried to crush the intruder out of existence, while the intruder fought with frantic, animal ferocity to wedge the walls apart and keep a pocket of air around its ribs. Neither won. Instead, the sheer pressure of the closing plant tissue and the stubbornness of the leverage ground causality to a halt, trapping the laborer inside the tightest creases of the room’s broken geometry.
+
+You never see the whole inhabitant at once. The cavity is swept clean only in the three dimensions your eyes immediately trust; in the sharp angles where the room folds back on itself, the air is crowded with effort.
+
+Peer once more through one of the translucent, stretched leaf-membranes bridging a split on the north wall—the ones that show the room from the floor looking up, half a second ahead of itself. In that slightly fevered, greenish refraction, just before a copper shim pops out of existence and slams into a fresh seam, something pale and massive blurs across the frame. You catch the flash of an oiled, dirt-stiffened hide slung over one heavy shoulder; a thick forearm corded with pale scar tissue and dusted with bright copper filings; a mat of coarse, grey-streaked hair plastered to a brow with sweat that smells entirely different from the plant’s clean sap—rank, mammalian, sour with terror and woodsmoke and old tallow.
+
+Listen beneath the *whoosh-thump* of the racing sap and the sharp cracks of splitting timber. Right in the hollow acoustic dead-spot after a chert wedge shatters—in that tiny, breathless vacuum before the stone reappears whole in the ceiling—there is another sound. 
+
+A grunt. Short, wet, torn from the bottom of a wide throat. The scrape of rough leather or horny bare heels skidding on slick cambium, trying and failing to find traction on a curved floor that won't stop swelling. And sometimes, right beside your ear as you stand in the empty middle of the room, a hot, ragged exhalation displaces the warm air, carrying the faint, phantom iron tang of a bitten tongue.
+
+This is a single, unbroken shift of frantic labor that has been chopped into thousands of half-second slivers and scattered throughout the geometry of the gourd. The person—broad-boned, archaic, thicker in the jaw and heavier in the brow than anyone walking the distant surface today, yet unmistakably human in the sheer cussedness of their engineering—exists entirely in the *act* of prying. 
+
+Here, two feet off the floor where the air shimmers like heat-haze over flint, is the moment a knee braces against a heaving root-knuckle. Six feet away, upside down near the apex where the cricket-thing likes to hunt, is the moment three seconds later when a broad, calloused palm slaps a stone wedge to test its bite. They are connected not by walking from one spot to the other, but by the violent folds of the room itself. When the inhabitant lunges forward to drive a digging stick into a perilous closing seam, they push right through an invisible membrane in the middle air, disappearing from Tuesday afternoon and bursting out of an angle four feet higher up, arriving slightly *before* the wood actually splits so that the blow of their heavy stone maul is the very thing that causes the fracture.
+
+They are both the victim of the room's collapse and the structural contradiction keeping it open.
+
+Over what might be centuries on the surface far overhead, though it has likely only been forty-five agonizing minutes of continuous breathlessness for the laborer, an odd ecosystem has settled into the margins of their struggle. 
+
+The pale, multi-jointed crickets are not native to the deep earth; they are stowaways from that lost afternoon overhead, descendants of two or three grass-dwellers that clung to the fringes of that oiled hide cloak when the ground gave way or the great root swallowed its prey. Generations of the insects have bred in the warm, bright, predatorless pocket. They lay their translucent eggs not in the violent, crushing walls of the plant—which would grind a clutch to paste in minutes—but tucked safely into the stitched seams of the laborer’s leather pouch, or behind the braided sinew lashed around the laborer's wrists. 
+
+To the insects, the straining giant is a shifting, salt-crusted landscape that flashes in and out of reach. Watch the thumb-sized cricket on the ceiling again. It finishes drinking from the weeping wood beside the newly arrived digging stick. It waits, antennae twitching in the flat light, counting the hydraulic *thumps* behind the wall with an inherited, biological clockwork. 
+
+Three. Four. Five. 
+
+The air beside the stick puckers. A smell of woodsmoke and hot skin blooms sharply against the crushed-celery stink of the sap. For less than an eye-blink, a broad, mud-caked shoulder materializes out of nothing, straining against the shaft of the stick until the muscles under the skin bunch like river stones. 
+
+Before the shoulder has even fully faded back into the glare, the cricket hops neatly onto the invisible curve of the collarbone, rides it sideways through a spatial shear-plane that would snap a straight stick in half, licks a bead of salt sweat from the hollow of a throat you cannot see, and steps calmly off onto a black chert axe-head on the opposite side of the room—arriving at the exact microsecond the stone bites deep into cream-colored heartwood and sprays a fresh, sweet mist of sap into the bright air.
+
+The laborer never brushes the insect away. There is no time. The ceiling is coming down; the floor is heaving up; the copper shim is bending double; the air is running out. With a wet, echoing intake of breath that comes from all four corners of the empty cistern at once, invisible hands Wrench a shattered flint out of tomorrow, haul back through a crease in the afternoon light, and drive the wedge home again.

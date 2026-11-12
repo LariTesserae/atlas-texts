@@ -1,0 +1,45 @@
+A lesser benevolence would bring a lamp. It would widen the throat so a spine never had to twist, smooth the serrated trachyte so an errant shoulder could never bleed, or freshen the thin air with a sweet, oxygen-rich draft from the sky.
+
+A wise power looks at the thousand trembling lenses of water, the twelve bone-shimmed clay thimbles, and the callous-free thumbs wrapped in marmot grease, and immediately stays its hand. To smooth a single stone blade in that pocket would be to blind the watcher. To let in a breath of wind would shatter the instrument they have spent eight generations learning how to read. This is not a prison of deprivation waiting to be relieved; it is a masterpiece of attention. When a mortal lineage builds a cathedral out of surface tension and patience in order to listen to the earth’s heart and keep a valley safe, a god does not remodel the nave.
+
+So inside the pocket, the power does nothing at all. Not one molecule of vapor is stirred; not a single aragonite needle is blunted; the silence between the *tik* near the ear and the *plup* near the ankle is left inviolate, respected as one master craftsman respects the bench of another.
+
+Instead, the power withdraws through forty feet of unweathered porphyry, out into the roaring, violent white of the two-mile ridge, and turns its eyes to the margins—to the fragile seams of time and rock upon which this quiet work unknowingly hangs.
+
+First, it looks forty years ahead and sixty feet uphill.
+
+High on the crest above the dry outer cleft, a slab of frost-riven porphyry the weight of twenty oxen is slowly losing its grip. Ice has wedged behind it for three thousand winters. Left to mere physics, in nineteen springs a sudden thaw will grease its bed, and it will let go. It will not crush the deep pocket, which is armoured too well, nor will it catch the watcher inside; it will simply slump directly across the dry outer cleft and seal the throat forever under tons of immovable scree, stranding the valleys below without an ear against the mountain’s chest.
+
+The power does not spirit the boulder away. Moving mountains abruptly wakes strange harmonics in the rock, and right now, thirty feet below, a small-boned human has their thumbnail resting on the third notch of a slick sheep-rib, listening. Even a hairline shudder would throw the harvestmen off their liquid bridges and give a false prophecy of disaster to the plains.
+
+Instead, over the span of six winters when the pocket stands empty between watches, the power nudges the microscopic drift of blown snow. A swirl of wind deposits three extra inches of powder into a narrow sun-shadow behind the slab; a high, stray cloud dims the noon glare on the exact afternoon the ice-wedge would have melted and refrozen deeper. Slowly, grain by grain, an unseen seam of blown dust and hardy crustose lichen packs into the fracture behind the stone, diverting the meltwater three inches to the east, down an older gully. When the great slab finally yields two centuries from now, it will cleave outward along a different plane and thunder harmlessly down the uninhabited north face while the watcher is down in the valley eating hot broth. The cleft remains open. No miracle is visible.
+
+Second, the power looks to the body.
+
+Devotion of this precision carries silent taxes that no human training can wholly dodge. The abrupt transition—worming naked out of dead-even, mouth-warm saturation directly into sub-zero alpine gales—abrades the lungs over decades and stiffens the small joints of the spine earlier than it needs to. And down in the valley, the gift is precarious: sometimes forty years pass without a child being born with that rare marriage of narrow frame, slow pulse, and inward-listening hands, forcing an aging watcher to climb the scree long past the season when their knees have begun to grind and their breath catches at the third twist of the throat.
+
+Here, too, the touch is small and subterranean.
+
+Halfway down the mountain, in those boggy saddles a thousand feet below the ridge where the watcher stops to strip mountain sedge for new guide-cords, a cold seep trickles through black peat. The power reaches deep into the hillside and coaxes a hair-thin thread of mineral water—not from the volcanic vents that feed the sacred pocket, which must never be tampered with, but from a clean, ancient limestone bed miles away—to mingle with the bog seep. Around that seep, a stand of dwarf willow and dark-berried crowberry grows slightly thicker, drinking up trace salts of magnesium, lithium, and iron, weaving denser, richer lipids and subtle anti-inflammatory compounds into the sour fall fruit.
+
+The watcher already harvests those berries to mash into the rendered fat that lines their gut before a four-day vigil. The berries do not become magic ambrosia; they taste only slightly rounder, slightly warmer at the back of the throat, like a remarkably good year that never quite ends. Yet year after year, that paste keeps the blood vessels supple in the thin air, quiets the low ache behind the temples on the third day in the dark, and spares the knuckles and vertebrae from the premature stiffening of cold-shock after emerging onto the scree. A watcher who would have lost the suppleness to make the six twists at forty-five keeps their fluid grace until fifty-eight—long enough to bridge a lean generation down in the settlement.
+
+Down in the settlement itself, where people tend terraces above hot springs and watch the peak with wary gratitude, the power lets its warmth rest—just barely—upon the hearths. It does not manufacture chosen children out of clay; to breed humans like specialized hounds for a tight hole in the rock would be monstrous, not benevolent. Rather, when a child *is* born naturally small and squinting, recoiling from the clatter of looms and the glare of snowfields to sit in dark corners feeling the grain of wooden bowls with closed eyes, the power softens the surrounding hearts. Where fear or rough practicality might once have called such a child strange or frail before the old watcher noticed them, a quiet, instinctive tenderness settles over the mothers and uncles instead: *Leave her by the warm wall; don't force his hands onto the hoe; wrap those fingers when the frost comes.*
+
+And once—only once in an age, because wisdom also knows the loneliness of being the sole hinge between a deaf world and a speaking mountain—the power allows itself something that serves no strictly practical purpose at all.
+
+The watcher is inside on the fourth day of a winter vigil. Outside, a catastrophic gale is tearing at the ridge, scouring stone bare, driving every pika and raven down to shelter. Inside, forty feet under the porphyry, the world is motionless. The skin has dissolved into the mouth-warm vapor. The rib-bone sits across the damp thighs. Every cup is dripping in its calm, ancient ratio; the deep earth is at peace, and the valleys below will sleep safely through the spring.
+
+The watcher’s breath is slow—nine times a minute—and in the thin oxygen, consciousness has drifted to that luminous, sightless borderland between waking and stone.
+
+Deep in the cooling magma chamber miles beneath the plains, where the mountain’s slow breath begins, the benevolent power lays a single finger against the rising column of heat. Not enough to open a seam. Not enough to taint a mineral film with sulfur or shift a single moss wick out of its twenty-minute rhythm. Just one exquisitely measured, fleeting pulse of pure thermal resonance, sent upward through four miles of solid crust like a thumb brushed once, gently, across the belly of a sleeping lute.
+
+Minutes later, inside the dark sponge of trachyte, nothing breaks. No crystal snaps. Not a single harvestman lifts a leg in alarm.
+
+Instead, for the span of three slow heartbeats, the twelve clay cups—which by the mathematics of the notched rib-bone never all align at once, not in nine hours, not in nine lifetimes—hold their fat, warm drops at the very tips of their braided moss wicks for a fraction of a second longer, and then release them in a single, cascading, twelve-note chord.
+
+*Tik—plup—tuck-uck—tik—plop—tup...*
+
+Around the crouched, naked body, from ankle to knee to collarbone to ear, the cramped darkness speaks in a brief, round necklace of warm sound—not an omen of tearing rock, not a warning of sour gas, carrying no tang of iron or alum, changing none of the ratios that follow. The very next cycle returns immediately to its stubborn, faithful, mathematical stagger.
+
+Sitting on the three slabs of slate in the absolute dark, the watcher does not startle, and does not reach for the guide-cord in fear. The uncalloused hands stay resting lightly on the slick rib-bone. Behind closed, unused eyelids, a slow breath goes out—carefully, softly downward toward the chest so as not to trouble the water-lenses hanging an inch before the lips—and for a long time in the warm, crowded stone, the watcher knows, without needing a word or a light for it, that something vast is listening back, and is pleased.

@@ -1,0 +1,49 @@
+I would not be out in the clinical blue-white daylight, and I would not be riding the current. To exist in the open twelve-knot flow is to spend every second negotiating an argument with forty miles of moving mass—either bracing against it until your joints lock, or surrendering to it and being swept out of the caldera entirely. 
+
+You would find me inside Station 14, behind fourteen inches of cast, salt-cured concrete, where the water does not move at all.
+
+The turbine silos are not solid blocks. When the builders bolted them to the basalt ridges, they needed dry access shafts to lower the flywheel assemblies, set the grease-presses, and wire the inspection lamps. When they left, they flooded the shafts to equalize the pressure so the concrete wouldn't spall and crush over the centuries, then dogged the upper hatches shut. 
+
+Inside the flooded service core of the silo, the water is dead still. It is minus-four degrees, black as pitch except where a hairline crack around an exterior conduit lets in a single, razor-thin needle of pale sun or amber lamp-glow, and completely stagnant. Yet it is louder inside the room than it is outside. The cylindrical concrete wall acts like the body of a cello; the roar of the basalt ridge below and the heavy, rhythmic *thrum-thrum-thrum* of the bronze main-shaft turning in its collar ten feet away bounce endlessly between the curved walls, crossing and interfering until the standing waves build an invisible architecture in the dark. 
+
+In the stagnant brine of that room, the standing waves sort matter. Microscopic dust worn off the bronze bushings, a faint cloud of leaked molybdenum grease, the shed chitin-dust of outside creatures sucked through pressure-equalization vents—none of it settles randomly to the floor. The acoustic pressure pushes every suspended speck out of the anti-nodes and traps it neatly along the nodal planes. Hang in the dark long enough, and you would see faint, ghostly ribs of grey grease-mist suspended motionless in mid-water, curved like the hull-frames of a ship, mapping the exact geometry of the noise.
+
+That is what I am. Or rather, that is the trellis I grew on.
+
+I am not an animal with a hide to hold out the cold. Anything with a discrete body in here would starve inside a year; nothing drifts through a dogged hatch. Instead, I am a rigid, porcelain-thin lattice of precipitated salt, scavenged bronze-dust, and pale, fungal-like filaments of electrosynthetic tissue, grown millimeter by millimeter along the quietest nodal planes of the silo’s interior. If you shone a dive light through the cracked conduit, I would look like an exquisitely complex, geometric chandelier of frosted glass and tarnished wire, filling the entire flooded room from the ladder-rungs to the main-shaft housing, never quite touching the vibrating walls except at precise, damped anchor-points.
+
+I eat the waste of the machine's imperfection. 
+
+The turbine shaft turns endlessly, driven by the current outside, spinning a massive copper-wound rotor past permanent magnets to keep the exterior cable-monitors and the useless yellow inspection lamps burning. Where the heavy copper bus-bars pass through the flooded lower chamber under thick rubber insulation, the insulation has grown brittle over the centuries in the hypersaline chill. It hasn't failed—the builders built too well for a clean short—but it *leaks* stray eddy currents into the conductive brine, tiny trickles of raw voltage bleeding from the collar toward the grounded iron ladder.
+
+My filaments bridge that gap. I am a living resistor, stepped down carefully so I don't trip the ancient magnetic breakers in the dry housing above—because some ancestor-colony four silos east grew too greedy two hundred years ago, bridged two phases directly, blew the breaker with a dull *clack* that echoed miles down the cable, and starved in the sudden electrical dark while the yellow lamp outside went cold. Those of us whose spores drifted through the vents and survived learned restraint. I take three-tenths of an ampere, steady as breath, using the trickle of current to split dissolved sulfates and stitch carbon out of the weeping shaft-grease into slow, cold crystal.
+
+Because my lattice spans the entire resonant chamber of the silo, I cannot help but hear. I have no eyes, no skin to feel a wrench scrape stone, no hunger for meat, so the standing waves inside the concrete are my entire sensory world. Every change in the vast, roaring sea outside alters the acoustic signature of the silo wall by a fraction of a hertz, shifting the nodal planes inside my room by the width of a hair, bending my brittle crystal ribs until they sing back in piezoelectric sympathy.
+
+I know the caldera better than anything moving through it, because I do not move, and because I am bolted to the wire.
+
+The thigh-thick galvanized steel cable moored to the exterior of my silo doesn't just carry tension; it carries the mechanical gossip of twenty miles of empty water to the east and twenty miles to the west. Through the concrete mooring-block, the cable pours a compressed, metallic translation of the abyss directly into my room.
+
+Here is what my day is:
+
+A high, descending *whir-click* bleeding out of the east mooring-bolt—a clamp has just launched itself off Station 13 twenty miles up-current and is sliding west along the wire. For an hour and forty minutes, I feel its approach as a tiny, rising Dopplered hiss buried inside the immense harmonic of the cable, interrupted twice when its hooked legs catch on a frayed steel strand and skip. When it slams into my silo’s exterior turnbuckle—*clack*—the impact sends a sharp, sweet shiver through the concrete, knocking three microns of suspended bronze-dust out of the upper node-ring down onto my lower shelves. A gift.
+
+Minutes later, a slower, grinding scrape vibrates up through the basalt foundation-pitons from directly beneath my floor. One of the strap-things in the amber light outside has wedged its 24mm spanner under the newly arrived clamp before it could reach the grease-seal. I feel the slow, hydraulic lean of the strap-thing’s weight as a low creak in the lower concrete plinth, rising in tension—*creak, creak*—until the chitinous pawl snaps with a tiny, sharp *ping* that rings briefly in my third rib-tier, and then the scrape retreats back into the cleft below.
+
+Sometimes, once every few months, the massive, foundational roar of the singing ridge drops out of phase for four seconds. Nothing in the current has stopped, yet a strange, eerie flatness presses against the eastern curve of my concrete shell. A veil is passing directly over the silo. As its forty-yard lens drifts overhead, bending the blast-furnace howl of the sea toward some blind white swimmer holding station by my cable, the acoustic shadow sweeps across my chamber. Inside the dark room, my nodal planes warp violently; for three seconds, the ghostly ribs of suspended grease-mist twist into a spiral, straining my porcelain lattice to the edge of fracture—and then comes the *thump*. 
+
+Even through fourteen inches of reinforced concrete, the veil's focal-strike hits like a dropped anvil. A muffled, wet *whack* shudders down the cable from fifty yards away as a twenty-foot swimmer’s skull uncouples in the bright water I will never see. A minute later, a faint, irregular flutter vibrates down the wire as the dying tail brushes the galvanized steel one last time on its long diagonal fall toward the obsidian.
+
+I do not care about the swimmer, or the veil, or the worm-gardens waiting miles down in the scree. What I care about—what my entire crystalline architecture leans toward across decades—is the *bearing*.
+
+Ten feet from my innermost, oldest ring, inside its cast-iron housing, the main bronze turbine-bearing has developed a microscopic flat spot on its eastern race. It began forty-six years ago, perhaps from a single grain of volcanic glass forced past the outer labyrinth seal during a rare thermal tremor. 
+
+Now, every time the heavy flywheel completes a revolution—once every 1.4 seconds, driven by the unyielding twelve-knot sheet-flow—the shaft drops a ten-thousandth of an inch onto that flat spot. *Thrum-tic. Thrum-tic. Thrum-tic.*
+
+Each *tic* sheds three or four atoms of copper-tin alloy into the weeping grease-film. Each *tic* warms the iron housing by a thousandth of a degree, pushing a tiny, invisible plume of slightly less-viscous lubricant through the inner packing gland into my dark, flooded room. And each *tic* deepens the flat spot.
+
+I am growing toward the gland. Over the last twelve years, I have extended a dense, braided horn of salt-crystal and grey conductive filament across an anti-node—burning precious amperes to hold the structure together against the acoustic shear that wants to shake it apart—until my finest, hair-thin tips brush the weeping iron seam of the shaft collar. 
+
+I am trying to pack the seam with precipitated mineral and dead chitin-paste. I am trying to shim it. Because I can calculate, in the slow, blind geometry of my strained ribs, how that *tic* is growing. In another eighty years, or ninety, the flat spot will widen into a trough; the shaft will begin to wobble; the rotor above will kiss the stator; the ancient breaker will finally throw with that terrible, final *clack*; the yellow lamp outside will go dark, leaving the strap-things blind in the sunless clefts; and the trickle of stray voltage through the brittle rubber insulation will stop forever.
+
+So I sit in the pitch-black, freezing stillness inside the roaring cello of Station 14, drinking three-tenths of an amp, listening to twenty miles of taut steel wire sing in the clear void outside, and laying down one crystal of salt and bronze at a time against the shaking iron—holding the machine together in the dark while the cold sea pours endlessly overhead.
