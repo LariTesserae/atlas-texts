@@ -1,0 +1,29 @@
+High on the wind-planed shoulder of a black basalt massif, where the air is thin and tastes of baked iron, the ridge breaks open into a sunken hollow no wider than a cathedral’s nave.
+
+The rim is an abrupt, weathered lip of blistered stone. Outside it, the mountain drops away into a freezing, lightless abyss; inside it, the world is an oven. Heat rises from the hollow in a steady, dry, invisible pillar—not the wet, suffocating heat of a swamp, but the parched, radiant bake of a kiln just after the fire has been raked out. There is no water here. Not a seep, not a salt-crust, not a film of condensation on the stone. The air is so dry it pulls the moisture straight from your lips, carrying only a fine, suspended flour of iron-sand and a faint, sweetish tang of sulfur and warm chitin.
+
+At first, looking down into the hollow, there is nothing to see at all. Light barely exists here—only a dull, dying-coal glimmer from deep, hair-thin fissures in the floor, too faint to cast a shadow or reach the walls. The sky above is a lid of perpetual, soot-thick overcast, indistinguishable from the inward-leaning cliffs that bound the space.
+
+Then your eyes adjust, and your ears catch what isn’t quite silence.
+
+It is mostly quiet, the way a crowded room is quiet when everyone inside is holding their breath. There is no wind inside the bowl, no dripping water, no wind-rustled leaves—there is not a single plant, not even a flake of lichen or a thread of mold, anywhere on the rock. Instead, there is a constant, velvety *shifting*. A dry whisper, like silk dragged across sandpaper. A soft, muted *thump* somewhere below, followed by a brief, papery rustle, and then stillness again.
+
+The hollow is packed. There is no bare stone left in it.
+
+What looks at first like rough, blistered basalt along the inward-leaning walls is actually a living shingle of overlapping bodies. Tens of thousands of them—flat, leathery, blind things the color of cooling slag—cling to the rock with broad, suctionless pads, layered one atop another like roof tiles. They have no eyes, only wide, concave dishes of dull, translucent horn on their crowns that tilt and swivel in unison, reading the infrared bloom of anything that moves beneath them. They are utterly silent. In this dry, enclosed bowl, sound carries too cleanly; to click a mandible or scrape a claw against the stone is to announce your exact coordinates to every hungry thing within fifty paces.
+
+The floor of the hollow is a shifting bed of hot, dark iron-sand, rippled by thermal currents from the vents below. It looks empty until a ripple breaks, and a *sand-swimmer* surfaces—a long, tri-laterally symmetrical creature encased in smooth, smoked-glass plates that have been ground matte by centuries of burrowing. It doesn’t slither so much as *pour* itself through the grit, propelled by rows of soft, padded cilia that make no more noise than falling dust. Along its flanks, tiny accordion-like bellows puff out dry little clouds of mineral powder as it breathes.
+
+Above it, suspended in the rising thermal column, drift the *ash-gliders*. They are no thicker than dried vellum, wide and triangular, with trailing filaments like frayed thread. They never flap. They simply ride the rising heat from the floor fissures up toward the coolish overhang of the rim, banking slowly in the dark, waiting for a smaller glider to drift within reach of their silent, glue-tipped tendrils.
+
+The rock beneath all of this is ancient and settled. The basalt has been worn smooth—not by water, which has never touched it, but by millennia of thermal flaking and the endless, patient friction of millions of bellies, plates, and pads. Every ledge is polished like old soapstone.
+
+Wedged into the crevices and arranged in a few low, stubborn rings along the eastern wall are the only things here that weren’t born. Scattered, knee-high cairns of stacked black stone and bleached, vitrified bone; a few flat threshold-slabs, their surfaces gouged with faint, blunt-toothed tally marks; a sunken hearth-ring that holds no ash, only sleeping clusters of *husk-mites*. Whoever stacked them used no metal and left no tools—just their hands, and a brief, forgotten insistence on marking a boundary inside the dark. The hollow has long since swallowed the gesture. The cairns are encrusted three-deep with clinging, plate-backed things, their shapes softened into dark mounds that breathe and shift.
+
+Nothing here sleeps for long, because the hollow runs on a slow, relentless pulse. Every twenty minutes or so, the deep vents beneath the iron-sand surge. The floor fissures brighten from black-red to a bruised, angry ember; the temperature spikes, and a wave of dry heat rolls upward.
+
+Instantly, the ecosystem rearranges itself in total, hushed synchronization.
+
+Driven by the unbearable heat of the floor, the glass-plated burrowers erupt silently from the sand and climb the lower walls, forcing the flat, dish-headed hangers to peel away and glide downward into the cooler eddies, or upward toward the rim. As the layers trade places, the hunting happens. A glider drops like a falling rag onto a climbing swimmer; there is no shriek, no thrashing—just a sudden, tight folding of leathery wings, a soft *pop* of a cracked silica plate, and the slow, heavy descent of both bodies back into the sand. Within seconds, the sand-mites and dust-beetles have swarmed the kill, stripping it down to dry shell before the next thermal pulse even begins to cool.
+
+Every drop of moisture in this place is locked inside skin, carapace, and marrow, passed endlessly from prey to predator in a closed, parched loop. Nothing is wasted, nothing is loud, and nothing sits still for more than a breath. High above the dead, freezing world outside the rim, the dark bowl hums with silent, suffocating life—a packed, baking cathedral of bone, glass, and velvet, endlessly rearranging itself in the dark.

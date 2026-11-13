@@ -1,0 +1,27 @@
+At first, even if you sit behind one of the low dry-stone windbreaks for hours, you will swear the valley is as dead as it looks.
+
+In the fierce, white-gold glare of morning, nothing moves that is not water, mist, or falling shale. You watch the sideways cataract chew at its notched slate pillar. You watch the sinew plumb lines tilt toward the humming basalt seams. The only things that even suggest growth are the brittle, coral-like blooms of white salt and ochre iron-oxide crusting the wettest cracks—and those look like nothing more than centuries of mineral sweat left behind by the weeping rock.
+
+It is only when the midday condensation rolls in that the valley’s stillness begins to feel less like emptiness and more like patience.
+
+As the mist thickens and swallows the saw-toothed rim in white glare, water beads on every flat surface and begins to creep upward along the quartz veins in thin, glittering threads. The wind drops. In the sudden, ringing quiet—just the *drip-drip-hiss* of a million wet stones and that low, teeth-aching hum rising from the bedrock—the plumb lines begin to twitch. Not from any draft. The river stones hanging from the bronze rings tremble and swing a few degrees closer to the dark basalt, as if something inside the cliff has shifted its weight.
+
+And then, along the fluted hollows of the slate pillars and the wet seams of the gorges, the mineral crusts begin to peel away from the stone.
+
+What lives here is neither beast, bird, nor insect, and it has no use for homes or roads. At rest, it is indistinguishable from a slumped shelf of shale or a patch of salt-rimed basalt. Its upper hide is a broad, flattened mantle—some no wider than a human hand, others as broad as a boulder—dark as wet slate and armoured in the same brittle, coral-like salt and ochre iron-oxide that coats the rocks. Pressed flat into the hollows of the stone, it lets the snowmelt sheet straight over its back, hiding from the overexposed furnace of the sun.
+
+When the mist softens the glare, it lifts.
+
+There are no legs beneath it, no wings, no eyes. Where it separates from the cliff, you catch a glimpse of a pale, quartz-clear lattice—a tough, flexible ribbing of silica and mineral gel, pulsing faintly with thin threads of copper-green and iron-red fluid. Around its ragged rim, hundreds of fine, glassy filaments, like spun quartz, feel out along the wet stone, gripping the microscopic pits in the slate and tasting the air for ozone.
+
+It is far too heavy with iron and silica to climb a sheer face under normal weight. Instead, it lives inside the valley’s broken rules. It gathers along the fault lines where gravity shears sideways, gliding effortlessly across vertical cliffs where the plumb lines float parallel to the rock, riding the upward-running threads of water along the quartz veins as easily as a fish rides a current. In the sideways cataract, smaller ones cling inside the horizontal flutes of the slate pillar, drinking the tremendous, vibrating pressure of the water slamming into the stone.
+
+They have no eyes because the glare here would burn them blind, and no ears in the way a creature of the lower world has ears. Their entire underside is a stretched, resonant membrane, tuned to the sub-audible thrumming of the mountain. They live by the valley’s cracked-bell acoustics—and by its fractured time.
+
+Because sound arrives here before sight, they never wait for a rock to fall. When a frost-split slab is about to peel off a high cliff, you will see a dark mantle on the scree below ripple and slide sideways a full second *before* the rock visibly cracks—answering the warning echo that has already reached the stone. When a heavy, wet-slate shadow seems to detach from an obsidian spire and tremble across the glare, it is not always a trick of the light; sometimes it is one of them, moving just ahead of its own silhouette, sliding out of the path of a surge before the cataract even breaks.
+
+They do not hunt, and nothing hunts them. They graze slowly across the wettest basalt seams, scraping the iron-oxide and salt from the stone, drawing in ozone where the air tastes of wet copper, and pressing their translucent bellies against the vibrating quartz to drink the thin electrical charge the mountain makes when it rings.
+
+When one grows old, or loses its grip on a fault line and is thrown onto dry, sunlit scree where no water sheets, it does not rot. There are no scavengers to pick it clean, and no soil to take it back. Its inner lattice simply dries, collapses, and drains away into the shale, leaving behind only a brittle, coral-like bloom of white salt and ochre iron-oxide—indistinguishable from the rest of the valley’s slow, mineral crusting.
+
+That is why the ones who came up from below—whoever chipped the footholds into the slick quartz, stacked the unmortared windbreaks, and hammered the bronze rings into the cliffs—never stayed to build houses. They knew the basin was already occupied. They wedged themselves behind their low slate walls to keep out of the spray, carved square catch-basins so they would not have to reach into the sideways water, and hung their sinew plumb lines along the cliffs: not only to find true down before taking a step, but to watch for the slow, trembling pull that meant the stone beside them was about to wake and move.

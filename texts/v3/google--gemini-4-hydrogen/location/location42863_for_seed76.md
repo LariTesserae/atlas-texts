@@ -1,0 +1,25 @@
+The light comes down here without anything to soften it. At this altitude, the air is thin and dry enough that the sky above the zenith is a deep, bruised cobalt, paling only at the distant horizon where a faint haze of suspended stone-dust catches the sun. Everything is fiercely bright, yet the air itself stays cool—a crisp, mineral chill that lingers even at noon and sharpens the moment you step into the shadow of a rock fin.
+
+You are standing on the roof of a continent, or perhaps a world that has no lowlands left to speak of. In every direction, the terrain is vast and settled: endless, stepped tablelands of pale limestone, gypsum, and wind-planed rhyolite, carved over millions of years into sweeping amphitheaters, smooth-backed yardangs, and flat, blindingly white mineral pans. There are no sharp, newly broken crags. Everything has been sanded into aerodynamic curves by eons of dry wind. No rivers have ever cut these valleys; there are no gullies, no dry stream-beds, no mud, and no memory of rain.
+
+For miles at a stretch, the stone is bare, punctuated only by low, fluted ribs of ochre rock and drifts of powder as fine as talc.
+
+And then, scattered across this immense emptiness like dark, velvet islands in a sea of chalk, are the groves.
+
+They sit in the sunken basins and along the sheltered leeward steps of the mesas, miles apart from one another, leaving vast corridors of empty stone between them. From a distance, a grove looks like a smudge of deep verdigris, plum, and tarnished copper pressed into a hollow. Up close, the poverty of the surrounding flats vanishes into an astonishing, waterless lushness.
+
+The plants here are dense, thick-bodied, and extravagant, packed shoulder to shoulder within the boundaries of their basins. There is no wet, dripping foliage; instead, the vegetation is built of heavy, waxy felts, layered papery bracts, and fibrous, silica-stiffened fronds. Towering *fan-spires* rise thirty feet from the center of a hollow, their broad, suede-like leaves arranged in tight spirals that pivot slowly through the day to track the sun. Beneath them, thick cushions of silver-grey *dust-moss* and sprawling, articulated *plate-vines* choke the floor of the basin, leaving not an inch of stone exposed.
+
+Without water, they feed on light, rock, and the wind itself. Their roots bore deep into the fractured gypsum and mineral veins, secreting dry acids that dissolve the stone into usable salts, while their upper surfaces are covered in microscopic, electrostatically charged hairs. In the bright, cool air, the groves act as vast, living filters. Every afternoon, as the sun warms the open pans, silent thermal updrafts lift curtains of glittering mineral dust from the flats and sweep them across the landscape. When those dry, shimmering clouds pass through a grove, the foliage traps the particles, drawing nitrogen, sulfur, and trace metals straight from the air.
+
+Because of this, the landscape is quietly, relentlessly active, even though it makes almost no sound.
+
+In the thin atmosphere, noise dies quickly. There are no birds, no insects buzzing, no water trickling over pebbles, no wet leaves slapping together. The wind—steady and vast enough to have its own continental weather systems, wheeling in huge, cloudless eddies across the plateau—makes only a soft, dry hiss against the flutes of the stone, like silk being drawn across chalk. Within the groves, the dense, velvety leaves absorb whatever sound remains. You can hear the faint, dry *creak* of a fan-spire turning its heavy head toward the afternoon sun, or, now and then, the soft *pop* of a mature spore-pod splitting open to release a puff of golden-grey powder into the passing current.
+
+Life that moves on its own is rare, and built for the distances between the green hollows.
+
+Out on the blinding white flats, you might wait half a day before seeing a *strider*—a tall, pale-shelled creature balanced on six stilt-like legs, stepping with a slow, deliberate cadence across the powder. It carries no excess weight, its body narrow and aerodynamic to slip through the high-altitude wind. It travels miles between basins to graze on the tough, mineral-rich spore-cones at the edges of the groves, then retreats to the open stone before dusk, when the temperatures drop sharply and the plants fold their broad leaves inward, locking the day’s warmth into their cores.
+
+Higher up, riding the invisible pillars of rising dust, a single *glider* might circle for hours without a wingbeat—a wide, translucent membrane stretched over hollow, calcified ribs, casting a brief, razor-sharp shadow across the bright stone below as it watches the edges of the basins for small, burrowing grazers.
+
+As the sun lowers, the light turns from white-gold to a clear, piercing amber. The dust-clouds settle back onto the pans like a fresh layer of snow. The wind drops to a whisper. Across the vast, ancient, unblemished stone, the scattered groves close their leaves one by one, holding their quiet, dense, improbable life against the coming cold.

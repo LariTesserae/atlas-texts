@@ -1,0 +1,27 @@
+You would find me off the causeways, down on the wet stone, about halfway between the nearest agricultural basin and the shadow of the eastern ridge. 
+
+Overhead, a transit ribbon threads the mist, and every hour or so a slate-gray platform glides past without a sound, carrying three or four cloaked figures leaning slightly into the wind. Sometimes one of them lifts two fingers—a quiet mark of a slate-gray predator spotted near a herd, or simply an acknowledgment of another person down on the flats. I lift my chin in return, and then they are gone, swallowed by the low banks of fog rolling off the basalt.
+
+I have a place in the research hall tucked into the ridge, and a dry alcove in the residential tiers where my extra boots sit, but most of my days are spent here, at boot-level, where the world is still deciding how to hold water.
+
+If you asked me what I am, I wouldn’t have a grand name for it. I carry the glass-and-copper listening stone in my inner pocket, and a flat satchel of woven sedge-fiber slung across my chest, holding thin, etched plates of sintered glass. I am the one who walks the seams between districts—partly to carry records that don’t need to be rushed, and partly because someone ought to know what the rock is doing beneath the causeways.
+
+My ribcage is deep, like everyone’s up here, built for drawing long, unhurried drafts of air that never quite warms in the throat. My skin has the gray-brown cast of weathered granite, though the stone beneath my feet is far younger than my face. When I kneel on a shelf of dark basalt to check a horizontal fracture, my oiled-fleece coat stiffens slightly against the wind, rain and mist beading on the copper-dyed wool without soaking through.
+
+This is what I am actually doing when you find me: I am watching a hollow no wider than my two palms.
+
+Two winters ago, this hollow was a bare, angular chip in the granite, sharp enough to slice a tunic. Last year, the night-frost wedged a hairline crack a millimeter wider along its lip, and a weeping seam ten yards uphill began feeding it a slow, steady thread of meltwater. Now, there is dark silt at the bottom—not even deep enough to cover my fingernail, just a wet, mineral smear—and three pale, segmented filter-feeders have somehow found their way into it, churning the water with tiny, patient rhythms. Along the rim, a crust of copper lichen has gained a purchase the size of a thumbnail.
+
+I take a thin plate from my satchel, press my thumb to its edge to wake the heatless light, and score a single, fine line onto the map of this shelf. Then I slip it back into the dry sedge-weave. It isn’t urgent work. Nothing here is urgent. The plateau has all the time in the world to become soft, and we have all the time in the world to watch it try.
+
+Sometimes, while I’m crouching by a pool, the long-legged grazers drift past. They don’t startle at the crunch of my boots—the soles are patterned after their own cushioned hooves, after all, and my coat smells of their winter fleece and mineral oil. A yearling might pause, its breath pluming white in the sharp air, and watch me with dark, indifferent eyes while I press my glass-and-copper stone against a nearby outcrop of glassy basalt. 
+
+There is almost never anything wrong with the conduits woven into the stone. Usually, the listening stone gives back nothing at all—just the dense, cold silence of rock that was pushed up yesterday, and the faint, steady draw of thermal current far below, quiet as a sleeping lung. Once in a great while, if a frost-heave has shifted a shelf near one of the outer monoliths, I’ll feel a tiny, rhythmic tremor against my palm, like a pulse in a wrist. I’ll nod once, make a small mark on the margin of a glass plate so the hall knows the rock is adjusting itself, and leave the system to find its own balance.
+
+I prefer the flats to the research halls, though I like the halls well enough when a heavy squall rolls in off the horizon. In the halls, everything is dry and measured—the neat stacks of etched plates in their alcoves, the long seamless windows framing the mist. Out here, you feel how thin the skin of life still is. You see the pale amphibians nosing through the ice-lace at the edge of a shadow, and the broad-winged birds wheeling in silence above a ridge that has never known a tree.
+
+By the time the sun drops low and the air sharpens toward the night-freeze, I am usually climbing the crisp, geometric steps of the nearest district. My boots are wet to the ankles, heavy with dark silt, and my braid is stiff with rime. 
+
+Inside, the sintered wall parts at the warmth of my palm and seals the wind behind me. The amber light of the mineral panels is low and kind to eyes that have spent ten hours squinting at wet stone. There is no rush to speak—just the quiet clink of a ceramic bowl set on a low stone table, the steam rising off salty broth thick with algae-meal and roasted sedge-seed, and the soft hiss of my boots drying on the warm floor tiles.
+
+Someone across the table will nod toward my satchel, asking without words if the eastern shelf held any surprises today. I’ll hold up one finger—*a little more silt*—and take a slow sip of the broth. Outside, the water is turning to lace on the stone, and the herds are moving on in the dark.

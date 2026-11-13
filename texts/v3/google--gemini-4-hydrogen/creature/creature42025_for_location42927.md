@@ -1,0 +1,27 @@
+Because the eye is trained to look for motion—for the flash of black wingtips against the glare, or the spilled-milk flow of a stoat across the talus—it almost always misses the one thing in the bowl that does not leave when the sun drops.
+
+You can stare straight at it at dawn and see only a weathered lump of milky quartz, wedged tight into the lee of one of the crescent-shaped windbreaks on the eastern rim. It is roughly the length of a human forearm, low and broad as a river-stone, dusted with the same white needles of hoarfrost that coat the granite. If you kicked it at midnight, it would not give; it would ring with the same flat, porcelain chime as the scree around it.
+
+It is the only large thing here that endures the night, and it does so by ceasing to be alive in any way that matters to the cold.
+
+When the sun clears the jagged eastern lip and strikes the bowl, the sleeper wakes in pieces. It has no fur to trap the heat—fur would only slow the morning thaw, stealing precious minutes from its short day. Instead, its back is armored in overlapping, shingle-like plates of a pale, waxy horn, the exact color of the quartz seams. At first light, those plates are opaque and chalky with rime. Within twenty minutes, the radiation turns the frost directly into vapor, and the plates begin to tick softly as they expand.
+
+As the light deepens, the plates turn semi-translucent, letting the fierce, unbuffered sun pass straight through to a dense, pitch-black membrane underneath. It is a living greenhouse. For nearly an hour, while the black beetles are already pouring out of the moss and the white birds are diving overhead, the creature lies completely paralyzed. Only its eyes are awake. Beneath a thick outer lid that peels back like wet parchment, a second, amber-tinted membrane slides into place—built-in snow-goggles against the blinding bounce of the quartz—and it watches the frantic morning sprint through a calm, honey-colored dark.
+
+When the syrupy, sugar-thick fluid in its veins finally loosens and its heart takes up its slow, heavy beat—once every few seconds, then a little faster—it uncurls its splayed limbs and drags itself out onto the flat stone.
+
+Unlike the stoats and the rodents, it does not hurry. It has no warm blood to defend, and at this altitude, hurry is a waste of breath. Its lungs are wide, pleated sacs tucked under its ribs that draw the thin air in a single, silent, barely perceptible swell every minute or so. Its belly is soft, deeply creased, and matte black, and it spends its first waking minutes simply flattening itself against a sun-warmed slab of granite, drinking the heat from below while the glare bakes it from above.
+
+Once it is warm enough to move well, it patrols the margins. Its claws are not sharp; they are thick, blunt, and polished smooth as old bone from a lifetime of gripping raw quartz. It moves with a heavy, deliberate economy, following the damp halos around the melt-pans and the crude rectangular troughs that the climbers pecked into the stone. Where the beetles stream across the rock in shimmering black rivers, it simply lowers its broad, flat chin to the stone and laps them up with a rough, dark tongue, unbothered by their frantic scuttling. It scrapes the oily black-green moss from the seams. Now and then, it finds the bowl’s real bounty: a white bird that misjudged a dive and broke a wing on the porcelain scree, or a rodent caught too far from its crack when the previous afternoon’s freeze hit.
+
+It takes what the cold leaves behind.
+
+There are perhaps three or four of them in the whole amphitheater, each keeping to its own wall or boulder-lee, rarely crossing paths. Because they spend twenty-one hours of every day locked solid, they age on a different clock than anything else on the mountain. Three hours of life a day means a year passes for them in the space of forty-five days; a creature here might see eighty winters and still carry the scars of its youth—pale gouges in its quartz-colored plates from the beaks of birds or the shifting of frost-shattered rock.
+
+They are older than the windbreaks, older than the hand-chipped troughs. When the climbers used to come up from below for the noon rush, they must have seen them—pale, flat-backed things basking beside the water-pans, too slow to be worth hunting, their flesh too bitter with natural antifreeze to be worth eating. Perhaps the climbers even left them alone out of a quiet kinship, two different kinds of patience sharing the same narrow window of light.
+
+Sometimes, when the afternoon shadow of the western tooth begins to stretch across the floor, one of the sleepers will haul itself not to the eastern windbreaks, but under the deep western overhang, into the abandoned blind. It wedges its broad body into the corner where the dried black moss still chinks the stones, its blunt tail resting inches from the two notched bone needles and the stiff bundle of sinew.
+
+As the cold wind spills over the lip, carrying the sharp tang of ozone, the creature voids its excess water into the dust so no ice crystals can form inside its flesh. Its amber lids slide shut. Its outer lids seal tight. Its heart slows, stutters, and stops.
+
+By the time the water-pans skin over into matte gray glass, the thing in the blind is indistinguishable from the rock it rests against—waiting out the lethal dark, as mute and patient as the stone itself, until the sun comes back like a hammer.

@@ -1,0 +1,35 @@
+From a distance, under a clear, white-blue high-altitude sky, it looks like a continent of weathered red-ochre stone and sun-bleached badlands—vast, rolling mesas and wind-scoured plateaus stretching to a curved, heat-hazed horizon. 
+
+Only when you kneel and press your palm to the ground do you realize there is no rock here. There is no soil. 
+
+The ground is warm, slightly yielding, and fibrous. It is the compressed, petrified-yet-still-living skin of a single, ancient, continental mat of flora. For miles down, beneath the sun-baked crust, the world is made of braided roots, petrified pith, hollow vascular trunks, and millennia of dead cellulose packed as dense as hardwood and carved by centuries of hot wind into smooth, terraced canyons and honeycombed ridges. Where a canyon wall has sheered away, you don’t see strata of limestone or shale; you see the cross-sections of titanic, fossilized stems, swirling grain-patterns like the inside of a walnut, and dark, spongy layers of ancient peat-felt.
+
+The heat is immediate and dry, radiating up from the amber-and-ash-colored vegetable ground in shimmering waves. Because the plateau sits high above the distant, unseen lowlands, the air is thin and the daylight is crisp, bright, and unfiltered—ordinary sunlight, mercilessly clear, casting sharp shadows into the porous hollows of the crust. 
+
+And the noise is physical. It hits your chest before you even process it with your ears. 
+
+The entire landscape is a resonant instrument, and it is never quiet. A steady, hot wind sweeps across the vast open plains, blowing across millions of broken, hollow reed-buttresses, split gourd-domes, and tensioned membranes of dried bark. The terrain itself produces a low, organ-like drone that vibrates through the soles of your boots. Layered over that geological hum is the deafening, relentless roar of the fauna.
+
+Life here is overwhelming, though at first glance the plains seem deceptively sparse. The great living structures—solitary, towering *bladder-oaks* and twisted, silver-barked *condenser-trees*—stand miles apart, separated by vast expanses of open, wind-rippled fibrous turf. Between them, the horizon is mostly empty sky and undulating, bleached-brown crust. 
+
+But the emptiness is an illusion of scale. The substrate is hollow, riddled with galleries, vascular tubes, and dark, cooling chambers, and it is packed to bursting with creatures.
+
+As the morning sun climbs and the heat builds, the plateau wakes up in a rising tide of sound. Billions of chitinous *drum-mites* and thumb-sized, papery *rasp-beetles* emerge from the pores of the ground to feed on the sun-warmed resin, scraping their ridged legs against the hollow wooden crust to amplify their mating calls. The ground literally buzzes. In the canyons, colonies of blind, pale *bellow-worms*—thick as a man’s thigh and anchored inside the deadwood pipes—inhale the hot air and expel it through fluted spiracles, creating a rhythmic, brassy honking that echoes for miles. 
+
+Above, riding the fierce midday thermals, drift the *sail-rays*—translucent, membranous things the size of blankets, with trailing sensory filaments that catch the wind. They wheel in slow, silent spirals, hunting the vast, shimmering clouds of *gnat-chaff* that erupt from the fibrous turf whenever a warm breeze stirs it.
+
+Water here is a scarce, precious currency, hoarded in the seams of the dry world. There are no rivers or lakes. Instead, in the brief, sharp chill just before dawn, moisture from the high air condenses on the millions of fine, siliceous hairs covering the plateau’s sparse turf and the broad, waxy leaves of the solitary trees. For an hour at sunrise, the world glistens, damp and steaming. The droplets trickle down into the porous crust, following ancient, weathered channels into deep, tannin-dark *seep-basins* and shaded hollows beneath the root-arches. 
+
+By mid-morning, the surface is bone-dry again, and those scattered, tea-colored pools become the frantic engines of the plateau’s ecology. 
+
+Around a seep-basin, the quiet of the open plain vanishes entirely. Heavy, six-legged *husk-boars*, armored in overlapping plates of keratin and dried plant-gum, shoulder their way through thickets of razor-edged sedge to drink, their grinding jaws audible even over the ambient roar. They are stalked by *needle-jacks*—lean, long-limbed predators with mottled, bark-colored hides and hollow, whistling nostrils that allow them to coordinate packs across the deafening din of the midday chorus. When a pack closes in, the waterhole erupts in a thrashing blur of dust, snapped fibers, and shrieking alarms, before the scavengers—clouds of iridescent *copper-flies* and hopping, sharp-beaked *pith-runners*—descend to strip the remains in minutes.
+
+Even the largest plants are active participants in this cycle. The solitary *bladder-oaks*, spaced miles apart across the baking flats, swell visibly in the afternoon heat as their internal gases expand, their leathery, pale-green sacs groaning like strained ship-timbers. At dusk, as the temperature drops, they violently expel the hot air through valve-like slits, drawing in cool night air to condense moisture inside their spongy cores—a process that sounds like a series of cannon shots rolling across the horizon.
+
+Scattered thinly across this vast, screaming expanse are the faint, stubborn marks of tool-makers. 
+
+You might walk for two days across the humming, sun-baked plain before encountering a single structure. They are small, low, and humble, built entirely from what the plateau offers: huts carved directly into the thick, deadwood walls of a canyon, their doorways shaded by awnings of cured sail-ray membrane; solitary watch-towers lashed together from bleached root-ribs and anchored with wooden pegs; and shallow, resin-sealed catchment trays tilted toward the dawn mist.
+
+There is no forged iron here, no quarried stone. Near a seep-basin, you might find a discarded scraper made of sharpened *husk-boar* tusk bound to a hardwood handle with sinew, or a simple, hammered-copper awl—metal traded from some distant, unseen edge of the plateau—used to punch holes in thick gourd-shells. The inhabitants, whoever they are, move quietly and rarely, leaving behind only wind-worn cairns of compressed peat, bundles of dried acoustic reeds used to signal across the din, and hollowed-out root-cisterns plugged with wax. 
+
+As afternoon peaks, the heat becomes a heavy blanket. The light remains clear and white, washing the endless, undulating plant-continent in stark relief. Somewhere miles away, a massive swarm of migrating *click-locusts* rises from a canyon like a column of dark smoke, adding a new, metallic rattle to the continental roar. Down in the shade of a carved-pith overhang, a lone wind-chime made of hollow bone tubes clatters furiously in the hot gust—a tiny, fragile rhythm lost inside the deafening, living engine of the plateau.

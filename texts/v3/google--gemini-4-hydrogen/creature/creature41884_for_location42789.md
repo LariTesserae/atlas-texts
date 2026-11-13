@@ -1,0 +1,35 @@
+If you hang motionless in the midwater long enough, watching the silver tornadoes of herring orbit the pylons, you begin to notice the shapes that do not spiral.
+
+They cling to the leeward faces of the thirty-meter columns, pressed flat into the two-centimeter shadow of a formwork seam, or curled inside the recessed tie-rod holes like pale, rubber-skinned hermit crabs. At first glance, in the electric cyan glare, you might mistake them for sea lions resting against the current. Then one of them kicks off from the concrete—a long, deliberate glide with webbed fins—and you see the limbs, the cobbled-together harness, the dull silver glint of a chunk of sacrificial zinc tied to a waist-belt.
+
+They are human, though the basin is already remaking them.
+
+In nine-degree water, bare skin is a liability that lasts only minutes, so they wear whatever vulcanized rubber, industrial neoprene, and heavy PVC foul-weather gear could be salvaged before or after the flooding, patched endlessly with silicone caulk and strips of inner tube. Where their faces, wrists, or ankles are exposed to the chill, they smear themselves thick with pale grease rendered from dogfish livers and dead sea lions. It turns their skin slick and yellowish-white, smelling faintly of rancid oil even underwater, and it lets them stay in the cold long after an ungreased swimmer would seize up. 
+
+Their eyes are the strangest thing about them up close. Because the floodlamps never dim, and because there is no silt to soften the glare, their pupils stay pinned to tiny black dots. When they turn to look at you, their gaze has the flat, unblinking stillness of the pelagic jacks that patrol the plumes.
+
+They do not fight the basin’s vastness. A human trying to swim against the kilometers-wide gyres burns through calories too fast in the cold. Instead, they ride the place the way birds ride thermals. They know the exact depth and drift of every thermocline, those invisible glass sheets where frigid bottom-water meets a warmer cooling-return current; you will see three or four of them lying motionless in a row along a shimmer of optical distortion, letting the warmer layer carry them lazily between pylons while they conserve heat. 
+
+To navigate a world with no stars, no sun, and no horizon, they read the concrete. Every octagonal column has its batch number stamped crisp and deep into the cast face, and they know these numbers the way coastal sailors know lighthouses. *Forty-four-North. Twelve-East.* A slight change in the pitch of the turbine drone tells them which pumping station has cycled up; the sudden, heavy *boom-clank* of an eastern sluice gate seating miles away is their clock, marking the shift of the internal weather.
+
+In the deafening roar of the midwater, speech is useless. They talk with their hands in sharp, economical signs, or—when they need to reach someone out of sight in the glare—they talk through the bones of the building. 
+
+If you press your ear or your jawbone directly against the smooth concrete of a pylon, the ambient hiss of the bubble-plumes fades behind a sudden, startling clarity: the steady, rhythmic *tink-tink-tink* of a steel wrench struck against a tie-rod socket two kilometers away. The rebar skeleton of the basin carries the signal faster and cleaner than the water ever could. They tap out warnings when a sluice-front is coming, or call out when a dense baitball has trapped itself against an intake screen.
+
+Their homes are not in the water, though they spend half their waking hours in it.
+
+Follow them upward, kicking through the wide cones of floodlight toward the hammered-silver underside of the surface, and you will find the maintenance air-pockets tucked beneath the roof. Here, the world is a narrow, echoing crawlspace of wet steel trusses, dripping condensation, and blindingly hot lamp-housings. The air is thick with ozone and the sharp, musky stink of the harbor seals and sea lions that haul out onto the same catwalks. 
+
+The dwellers share the steel beams with the pinnipeds in an uneasy, practical truce. A sea lion will bark furiously if someone steps too close to its sleeping spot, its voice bouncing wildly off the water three feet below, and the people simply step over it, moving along the narrow walkways with the practiced, hunched balance of creatures who spend half their lives weightless. 
+
+This is where they sleep—lashed to the cross-bracing with nylon webbing so they don’t roll off into the nine-degree water, their eyes bound tightly with strips of black rubber to shut out the endless, reflected cyan glare. 
+
+When they wake, they drop back into the basin to work the edges of the machine. 
+
+They are gleaners, mostly. Their richest hunting grounds are the towering cylindrical housings of the intake manifolds far down on the gridded floor. The great brass-and-steel impellers pull millions of liters per second through those screened cages, and everything that tires, dies, or drifts too close ends up pinned against the mesh: torn ribbons of kelp, stunned sprat, drowned sea-birds that somehow found their way into the upper vents, tangled moon jellies, and the occasional heavy-shouldered jack. The divers descend with iron hooks and mesh bags, clinging to the trembling steel bars of the cages while the suction tugs at their fins, prying free whatever the screens have caught before the squat lobsters and spider crabs can strip it bare.
+
+Higher up, they hunt the edges of the bubble-plumes. No one swims directly into the inverted geysers—the aerated water has no buoyancy, and the turbulence will slam a body against a pylon hard enough to break ribs—but at the roaring, opaque margins, where the static hiss drowns out everything else, the baitballs get confused and scatter. A diver can hang just outside the white wall of bubbles, spear-gun braced, and take dogfish or jacks as they dart out of the blind.
+
+They have not been here long—the concrete is still too sharp for that, the zinc anodes barely pitted—and the oldest among them still remember dry dirt, rain that falls from clouds instead of dripping from steel trusses, and darkness that comes on its own. Sometimes, when a sluice gate cycles and the sudden cold front sweeps across the basin carrying the metallic tang of oiled machinery, they stop tapping their wrenches and just float in the current, staring down the long, pale-blue avenues between the pylons.
+
+But the younger ones—those who came down the shafts as children, or who have simply let the land slip out of their heads—barely look up at the roof anymore. They have grown used to the twin heartbeats of the pumps and the fish. They grease their faces, tie another chunk of dull silver zinc to their belts, and drop back into the bright, humming void, as native to the angles and the cold as the mussels already crowding the expansion joints below.

@@ -1,0 +1,25 @@
+High above the cloud-line, where the air thins and turns sharp with cold, a jagged hollow opens in the dark mountain rock. It is no larger than a cathedral—a bounded, steep-walled basin of freshly fractured slate and black basalt, its rim still razor-edged from whatever violent upheaval split it open. Nothing has weathered here. The stone planes meet at acute, unforgiving angles, slick and dark with constant condensation.
+
+Above, a low, pewter sky presses down, letting through only a dim, bruised twilight. Beneath it, the basin is loud.
+
+It is not the sound of wind or water alone, though water is everywhere—weeping from the vertical rock faces, beading on every sharp edge, pooling in shallow, ink-black sheets across the basin floor. Beneath the steady pattering of drops runs a heavy, chest-rattling bass drone, a precise, unwavering hum like a turbine room at full load. Punctuating it are rhythmic hydraulic thuds, the sharp *snap* of electrical discharges, and a dense, metallic chittering that echoes off the bare stone walls.
+
+Yet nothing here was built. There are no walls of brick or poured concrete, no rivets, no girders, no trace of a hand or a tool. The basin is entirely untouched, and yet it operates like a factory.
+
+Across the wide, empty expanses of slick, bare rock—which take up most of the floor, leaving generous, echoing spaces of emptiness between presences—sit scattered islands of intense, dripping life and unbuilt machinery. 
+
+At the heart of each island, a column of raw, magnetised basalt floats an inch above its fracture-socket, spinning on no axle at all. There are no bearings, no grease, no mounts; the stone simply rotates at blinding speed in an invisible field, its sharp edges blurring into a dark, humming cylinder. Around these spinning stones, vegetation grows in lush, saturated mats—deep emerald liverworts, thick cushions of verdigris moss, and towering fronds of ferns whose veins glisten with natural, unrefined copper. The flora grows in tight, repeating spirals, winding around the floating rotors like the stator coils of a dynamo.
+
+Cold water drips incessantly from the weeping overhangs onto these coiled ferns, trickling down their metallic fronds until it strikes the spinning basalt. Instead of splashing, the water shears into cold, electrified mist. Tiny, razor-bright arcs of blue-white ozone crackle between the wet fern-tips and the rock, briefly illuminating the dim basin in harsh, strobe-like flashes before the gloom closes back in. The air tastes sharply of wet iron, crushed moss, and burnt ozone.
+
+In these sparse, humming islands, animal life is packed to overflowing. Halos of pale, translucent-winged gnats orbit the spinning stones in tight, unwavering rings; their wings beat in exact phase with the 60-hertz drone, turning the swarms into shimmering, stationary hoops of silver blur. Beneath the dripping copper-ferns, thick-shelled amphibians with mineralized, brass-colored joints crowd the wet moss. They move in jerky, mechanical strides, their joints clicking like relays, drinking the electrified runoff and swelling their throats to emit sharp, rhythmic pops of static. Small, dark-feathered birds with needle beaks nest inside the tightest fern-coils, weaving their shelters from shed metallic fibers; they do not sing, but broadcast rapid bursts of clicks and white-noise hiss that layer over the bass thrum of the stone.
+
+The longer one watches, the clearer it becomes that the rules of the world have slipped inside this rim. 
+
+The spinning basalt rotors do not merely blur with speed—they occupy slightly contradictory angles at the same time, their sharp corners flickering in and out of alignment as if space itself cannot decide how to hold their rotation. Shadows cast by the brief blue arcs do not fall away from the light; they lean *toward* it, or detach from the wet ferns entirely, coiling in the shallow puddles like dark oil. A heavy drop of condensation falls from a high slate ledge, and the loud, drop-forge *thud* of its impact rings out across the basin a full half-second before the water breaks the surface of a puddle.
+
+And yet, for all its noise, its furious spinning, its teeming swarms and crackling arcs, nothing in the basin ever changes. 
+
+It is locked in a cold, loud, time-invariant equilibrium. The razor-sharp rims of the basalt never dull; the spinning stones never wear down by a fraction of a millimeter. Every drop of water that condenses from the chill sky is balanced to the microgram by the cold steam sheared off the rotors—the shallow puddles never rise, never recede. The copper-ferns do not outgrow their tight, scattered islands to claim the bare stone between them. The swarms of gnats never thin or thicken; the clicking amphibians never seem to age, breed, or die. 
+
+The basin produces nothing—no heat, no light worth speaking of, no material good. It is an unbuilt engine running at full torque in the dim, wet cold, grinding out only the exact, unchanging continuation of its own impossible noise.

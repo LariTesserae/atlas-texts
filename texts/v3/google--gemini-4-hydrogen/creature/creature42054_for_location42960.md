@@ -1,0 +1,35 @@
+To see them, you would have to sit inside one of the muffled thickets for a day—perhaps three—without blinking, until your eyes adjusted to the bruised, sunless light and stopped mistaking stillness for stone.
+
+At first, what sits beside the heap of dry ash in the slate shelter looks like nothing more than a collapsed bundle of plant-fiber, or a jagged outcrop of basalt that has been draped in velvet-black moss. It is only when the light shifts—or rather, when a detached shadow finally finishes sliding across the floor hours after its cause has passed—that you realize the shape has rotated an inch to the left.
+
+They are dry, jointed things, built on the same waterless terms as the ferns.
+
+If you were to touch one, it would feel like sun-baked horn and compressed felt, cool to the hand and entirely devoid of give. Their outer skin is a matte, layered sheath of ash-gray silicate and dark, carbonized scale, dry as old paper and dusted everywhere with the fine, peppery powder of pulverized stone. At the elbows, knees, and knuckles, where the plates must bend, the hide is creased into deep, fibrous folds that hiss faintly when they flex, venting tiny puffs of dry dust. There is no blood in them, no wet marrow; beneath the armored, chalky exterior, they are honeycombed with tough, leathery chambers that hold pressurized gas and dense, mineral-rich grit.
+
+They are low-slung and wide-shouldered, shaped for wedging into the leeward crevices of the ridges. Their limbs are long, ending in broad, flat-jointed hands wrapped in callouses as thick and dull as slate. A human hand would be sliced to the bone within an hour on the unweathered, ceramic-sharp edges of this valley; theirs grip the raw basalt without flinching, their wide, blunt fingers suited equally to stacking flat shards of stone and holding an obsidian wedge.
+
+Their faces are hard to read as faces. Beneath a heavy, overhanging brow of porous bone, their eyes are small, sunken, and milky—little more than frosted lenses of translucent mineral, blind to detail in the dim pewter air, good only for registering the broad, slow drift of gray against black. They do not look at the world so much as they *listen* to it with their whole bodies. Along the ridges of their collarbones, down the backs of their forearms, and in a sparse, delicate crest along the spine, they grow—or perhaps graft—fine fringes of brittle, ash-silver filaments, identical in texture to the spun-silica plumes of the cymatic plants. Even in the quietest hollow of a thicket, these filaments tremble, reading the slightest tremor in the stone, the faintest change in the acoustic pressure of the air.
+
+It is this listening that dictates how they move—and why they move so rarely.
+
+Out on the open terraces, the roar of the unfinished world is not merely loud; it is erosive. It batters against their dry, pressurized chambers like a physical tide, threatening to shake their joints loose or crack their silicate plates. More dangerous still is the broken geometry. To stride briskly across the basin is to invite disaster: a step taken too quickly might land on stone whose depth has suddenly smeared into a flat, gray nothing, or carry the walker out into a spire that stretches away faster than the legs can cover it.
+
+So they move at the speed of cooling glass.
+
+When one of them must cross the open slate between two thickets, the journey can take days. It lifts a foot, holds it suspended for minutes at a time, its silver filaments reading the air for the telltale, premature *crack* that signals a cliff is about to split three minutes in the future. It waits for its own shadow—which tends to lag behind, pooling like black soot in the crevices—to catch up and anchor itself beneath its heels before it commits its weight to the next slab. It looks less like walking and more like the slow, patient creep of a glacier made of ash.
+
+Inside the thickets, where the greedy ferns drink the roar down to a thick, bearable hum, they relax—though to an outside eye, their relaxation is indistinguishable from death.
+
+Two or three of them may share a single low slate shelter, sitting knee-to-knee in the muffled dark for weeks on end. They do not sleep, exactly, so much as they seal their vents and let their internal pressure equalize with the quiet air, letting the endless vibration of the valley drain out of their bones. When they wake—or stir—it is to tend to the small, dry business of staying whole.
+
+They take up the dull obsidian wedges and crawl out to the edges of the thicket, where the cymatic stems grow thickest. With slow, deliberate leverage, they split the tough, fibrous stalks—careful not to rupture them violently—and press the slotted vents along their throats to the weeping seams, drinking in the dry, pressurized gas that sustains them. What remains inside the split stems is a fine, mineral-rich powder and brittle, charcoal-like pith. They scrape this out with their flat slate tools, carrying it back to the shelters in cupped hands to pile in neat, dry heaps upon flat stones.
+
+That is the ash beside their tools: the pulverized, exhausted marrow of the sound-eating plants, mixed with the fine dust that sheds from their own wearing joints. Slowly, methodically, they work this ash into the creases of their hides to keep the dry plates from grinding each other away, and swallow small pinches of it to replenish the grit within their chambers.
+
+Sometimes, in the heavy, muffled quiet behind the hanging baffles of silica-grass, one of them will pick up a notched rod of compressed mineral-wood and draw the edge of a slate scraper slowly across its teeth.
+
+*Clack. Clack. Clack.*
+
+The sound is tiny, dry, and utterly private, swallowed completely by the surrounding ferns before it can reach the open air. They do it to speak to one another in the dimness—a slow, sparse language of intervals and silences, trading news of which ridge has begun to extrude upward, or which thicket is widening toward the west. And sometimes, a lone dweller will scrape the notched rod simply to listen to the sound: to make sure the *clack* arrives at the exact moment the slate touches the wood, and not a minute before—a small, careful test to be certain that here, at least, inside the shelter of the quiet leaves, time is still holding together.
+
+They do not build monuments. They do not carve the stone beyond what is needed to stack a wall or sharpen a scraper. When one of them grows too old, its plates too fractured by decades of acoustic fatigue, it simply sits down beside its heap of ash inside the baffled dark and stops drawing gas. There is no rot in a world without water. Its internal pressure leaks softly away through its seams, and over the course of many years, the faint, residual hum of the valley shakes its dry frame down, flake by flake, until there is nothing left on the flat stone but another small mound of gray powder, indistinguishable from the dust of the world that made it.

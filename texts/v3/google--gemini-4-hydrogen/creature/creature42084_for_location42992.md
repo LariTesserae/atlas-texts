@@ -1,0 +1,31 @@
+At first, the chamber seems entirely empty of tenants. You can watch the bright, roaring pocket for minutes on end and see only the city itself—the crisp white plates, the cycling vents, the sorted rings of basalt dust spinning lazily around the upper spires.
+
+Until you notice a ring of dust that isn’t orbiting a spire.
+
+It is gliding down a narrow sluice-alley, turning a sharp ninety-degree corner against the local eddy, moving with a deliberate, unhurried precision.
+
+Look closer, and the water around the dust begins to separate from the water of the chamber. What seemed like an empty gap in the current is actually a sharp, faceted boundary—a tall, narrow polyhedron of water held rigid by the same impossible surface tension that walls the vertical plazas. If your gloved hand brushed against it, it would feel like cut glass. It has no skin, no shell, no muscle, and no pulse. Its body is simply a bounded, pressurized volume of the chamber’s own water, shaped into shifting geometric planes that refract the harsh daylight into razor-thin rainbows along its seams.
+
+Inside that clear, glass-hard hull, there are no organs. There is only the dust—black basalt grit and bright, hair-thin splinters of precipitated silver—suspended in motionless, concentric rings. They hang in acoustic standing waves, held apart by the entity’s own internal hum, sorting themselves by weight and gleam as the creature drifts.
+
+They are everywhere, once your eye learns to catch the slight distortion of their edges against the ceramic walls.
+
+They do not swim. They cannot easily cross the open, turbulent basins where the current churns without order. Instead, they live in the *shear*—gliding along the invisible, glass-smooth seams where a shooting column of water meets a pocket of dead stillness. They ride those boundaries like blades on a rail, sliding effortlessly between the cantilevered galleries and stepped manifolds.
+
+Because they have no eyes, they do not look at the city, yet they are acutely tuned to its light. When the ceramic plates shift from crisp white to the colder, sharper noon-glare, the silver splinters suspended inside every tenant in the chamber tilt in unison, catching the new angle like a thousand microscopic mirrors adjusting to a change in voltage. And because they have no ears, they listen with their entire perimeter. Their taut, glass-water skin is a drumhead, drinking in the *clack-clack-clack* of the micro-valves and the deep harmonic groan of the settling basalt.
+
+When they communicate, they do not make a sound you would recognize as a voice. A tenant will pinch a corner of its own geometric hull inward, tightening its surface tension until a microscopic pocket of vacuum forms inside its water-body and collapses. The result is a single, stinging *tick* of cavitation—a bright, needle-sharp pressure-ripple that cuts straight through the chamber’s roar and strikes the hull of the next tenant down the alley, making its internal rings of dust shiver in reply.
+
+They feed on the city’s waste and its friction. They drift up to the outer cooling fins where the silver mineral films precipitate and flake away, and they press a flat facet of their hull against the metal. A thin, rigid finger of water extends from their perimeter, peels a shimmering sheet of scale off the alloy, and draws it inside. There is a brief, high whine from the creature’s core, a tiny flash of sonoluminescence in the clear water, and the silver sheet shatters into fine bright flakes, instantly sorted by weight into the orbiting rings at its center.
+
+When the sluice-gates slam shut in their cascading wave and the current reverses with a deafening *thump*, the sparse algae on the ceiling is battered flat against the stone. The tenants do not flinch. They open their lower planes to the shockwave, using the sudden, violent spike in pressure to propel themselves straight up the unpiped vertical water columns—or, when one has grown too heavy with basalt grit, to split cleanly down a geometric seam, dividing one large prism into two smaller, sharper ones that immediately drift off down separate alleys.
+
+Not all of them share the same shape. In the tight, screaming sluice-alleys where the current runs fastest, they are long, needle-thin splinters, barely wider than a finger, slicing through the narrowest conduits. In the dead-still pockets beside the spinning basins, they broaden into flat, hexagonal panes that hang motionless in mid-water, acting like acoustic lenses—gathering the stray vibrations of the chamber and focusing them into tight, humming beams.
+
+They are fastidious about the noise. They seem to hate anything soft, anything irregular that dampens the crisp, high-definition acoustics of the stone. Whenever a tuft of pale, translucent moss or silica-stiffened algae grows thick enough near the ceiling to muffle the vibration of a nearby vent, one of the needle-thin tenants rises up the nearest water column. It presses its razor-sharp, solid-tension edge flush against the raw basalt and shears the plants clean off at the root, leaving the stone bare and ringing, while the dead fibers are swept away into the lower intakes.
+
+And when the chamber’s cadence shifts—when the basalt groans a fraction of a millimeter deeper and the light cools—they gather at the center of the densest cluster, around the waist-thick structural pillar.
+
+If you look at the pillar straight on, they seem to flatten against the recessed balconies and disappear, leaving only a bright, wet sheen on the alloy.
+
+But if you tilt your head, and look past the impossible depth into that bright, receding street of lit windows and churning sluice-gates that cannot physically fit inside the stone, you can see them clearly. Dozens of them—tall, glittering, faceted silhouettes of clear water and suspended silver dust—gliding in single file down the narrowing avenue, carrying their harvested grit deeper into the vanishing point, tending to whatever engine waits at the far end of the street.

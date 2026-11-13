@@ -1,0 +1,23 @@
+Miles above the dry basins of the lower world, the roof of the continent is underwater.
+
+It is not a basin that holds this sea, nor a shoreline. The mountain range that once stood here has been worn down over so many ages that its peaks have slumped into smooth, featureless domes—vast whale-backs of pale, primordial granite, settled into their final, near-flattened curves. Yet the water remains perched atop them. At the continental rim, where the ancient plateau drops away into the thin, cold air of the lowlands, the sea simply stops, standing in a trembling, miles-high wall of dark amber liquid that never spills. 
+
+Inside, everything is submerged in a warm, heavy twilight.
+
+The light is dim and tea-colored, filtered through miles of dense water and a smeared, distant sun that never resolves into a disk. It is warm here—a steady, blood-warm bath that swells slightly warmer in slow-moving thermal plumes rising from the ancient bedrock. Because the water sits so high in the world, the pressure does not crush; instead, the weight feels lateral, thick, and crowded, as if the water itself is packed too tightly into its own volume.
+
+And it is packed. Across the vast, rolling plains of eroded stone, life grows in dense, near-touching layers. Vast forests of buoyant bladder-trees rise from the rounded rock, their trunks soft and hollow, anchored by pale, grasping holdfasts. Between them hang curtains of velvet-moss, drifting mats of filamentous kelp, and cloud-banks of suspended, translucent spores. You cannot stretch an arm without brushing a frond, a silt-ribbon, or the slick skin of a swollen seed-pod. Everything is lush, saturated, and overlapping.
+
+Yet the entire continental sea is wrapped in a profound, muffled silence.
+
+Even when the weather turns—and this place is large enough to brew its own—it happens without a sound. Huge, slow-moving fronts of heavy brine roll across the submerged highlands like underwater hurricanes, bending acres of towering canopies flat against the smooth stone. Thermal upwellings churn millions of pale spores into spiraling columns. Silt-falls drift down like warm, silent snow. Whole ecosystems shift, bloom, shed, and rot in constant, vigorous motion, yet there is no roar of current, no crack of snapping wood, no rustle of leaves. A frond brushes a stone; a seed-pod bursts; a salinity storm tears a canopy loose—and the water swallows every vibration before it can travel an inch.
+
+In this warm, dim quiet, the rules of the world have begun to fray.
+
+Time does not move at the same pace from one current to the next. A warm plume drifting up from a fissure may carry a clutch of spores into full, flowering maturity in the span of a single breath, while three feet away, in a pocket of cooler, denser water, a falling grain of quartz hangs motionless for years. Shadows detach from the bladder-trees that cast them, peeling off into the amber gloom to drift like strips of dark silk through the canopies. Near the ancient, flattened crests of the submerged hills, gravity grows indecisive: dislodged pebbles sometimes drift slowly upward until they catch in the undersides of the kelp-mats, resting there like inverted gravel. Even the boundary between the stone and the plants has softened; in places, the granite looks fibrous, and the roots of the oldest trees have calcified into something indistinguishable from bedrock.
+
+Animals are almost entirely absent. One can drift for miles through the crowded, silent forests without seeing a single eye or fin. Very rarely, a pale, ribbon-like creature—translucent and miles long, or perhaps merely a few inches, for distance is hard to judge in this dim, bent light—undulates between the trunks, feeding on nothing visible. Closer to the stone, blind, paper-shelled things occasionally crawl across the smooth domes, leaving faint, temporary tracks in the settled silt.
+
+Scattered along the highest, flattest ridges are the only signs that anything ever paused here to arrange the world. They are small, sparse, and entirely free of tools: low cairns of river-rounded stones balanced at impossible angles in the shifting currents, and occasional hollow domes woven from living kelp-roots and coaxed into calcifying over decades. No metal, no carved edges, no straight lines—only things nudged together by hand or body, already half-reclaimed by the velvet moss and the drifting, detached shadows.
+
+They sit in the warm, crowded dark, untouched by the silent storms, waiting out the last, slow, broken ages of a sea that forgot how to flow downhill.

@@ -1,0 +1,37 @@
+At first, it is easy to believe that nothing lives here except the plant itself—that slow, blind architecture of salt and fiber, drinking the wind’s noise across decades. You can walk the narrow terraces for hours with your fingers trailing the wall and feel only the work of long-vanished hands: the dished treads of root-stairs, the lashed joints of split reeds, the bone-smooth sheen of the floor.
+
+You only notice the others if you stop moving.
+
+Stand still beside one of the slender, hollow pith-towers, and lay your palm flat against its papery flank. Through your skin, you feel the tower’s steady, organ-pipe hum—a deep, dry tremor that rises from the floor and loses itself in the dark ceiling. Wait there, while the roar of the chamber settles into the bones of your skull. After a few minutes, you may realize that the vibration beneath your hand is not quite uniform. A few palms’ breadth above your fingers, the pitch is subtly dulled, as if something soft has been pressed against the inside of a drum.
+
+If you reach up in the dark to find the source of that muting, your fingertips will brush against something cool, dry, and startlingly light.
+
+At first, it feels like a fallen scale of bark, or a forgotten, hand-carved tile wedged against the tower’s curve. It has the texture of old cedar-shingle and the dry give of a pressed autumn leaf. It is roughly the size of an open palm, flat and low-slung, tapering toward its edges so cleanly that your fingernail can scarcely find a seam between it and the tower wall. There is no warmth in it, no pulse, no dampness of skin or mucus.
+
+Then, as your knuckle grazes its ribbed back, a tiny, sharp *tick* snaps between your skin and its edge. In the pitch dark, it is a spark too small to see—nothing more than a prickle in the nerve of your finger and a sudden, fleeting tang of ozone.
+
+Beneath your hand, the thing shifts. Not with the sudden startle of an animal, nor on legs of any kind, but with the smooth, inexorable slide of a slate shifting on a roof.
+
+They are neither plant nor animal, though they share the plant’s patience and its bone-dry chemistry. They have no eyes, no jaws, no wet blood, and no muscles to speak of. Each one is a flattened, articulated fan of overlapping plates, built from the same dense, salt-crystallized cellulose and amber-dry resin as the city itself. Their upper surfaces are grooved with fine, concentric ridges, like the growth rings of a tree or the ribs of a scallop shell, dusted lightly with the flour-like silt of the chamber.
+
+Their undersides are where the secret of their movement lies.
+
+Pressed flat against the floor or the curve of a tower is a dense, velvety nap of microscopic bristles, stiffened with mineral salt and angled slightly backward. In a still world, they would be as immobile as stones. But here, nothing is ever still. The entire pocket-city trembles ceaselessly under the breath of the outer atmosphere, and those angled bristles turn the vibration of the floor into a slow, steady ratchet. By flexing the resinous hinges between its plates—drawing on faint electrical charges harvested from the very walls it clings to—one of these flat, papery creatures can tilt its bristles to steer, pause, or creep forward at the pace of a clock’s minute hand.
+
+They ride the roar the way a fish rides a current.
+
+In the dark, you can hear them if you press your ear to the polished root-floor: beneath the booming of the towers and the high, thin whistle of the vents, there is a faint, dry *shhh-shhh-shhh*, like dry leaves dragged across parchment, multiplied by hundreds across the margins of the hall. It is their passing that has kept the walkways swept clean for ten thousand years, polishing the root-knuckles long after the builders’ feet were gone.
+
+They live in the margins between the city’s two great seasons.
+
+During the long cold months outside, when the barometric tides strengthen and the chamber’s roar deepens into a chest-rattling boom, they retreat into the shallow, evenly spaced alcoves along the inner wall. Each alcove is sized to hold one or two of them, tucked neatly out of the fiercest drafts. There, they flatten themselves against the back walls and unfurl thin, pleated membranes from beneath their outer plates. Pressed tight against the resonant rind of the cavity, their crystalline lattices drink in the sharpest, most violent frequencies of the wind. They hum—silent to the ear, lost in the greater roar, yet thrumming with static charge—and use that mechanical energy to bind carbon from the dry air and mineral dust from the floor into a new, paper-thin ridge along their backs. In doing so, they become the very acoustic baffles the builders once tuned the alcoves to be, dampening the worst of the shaking so the fragile vine-bridges across the void do not tear themselves apart.
+
+When the outer world warms and the wind drops to a dry, hissing chatter, they detach from the alcoves and creep out along the narrow walkways and the split-reed conduits. They move with blind, unhurried purpose, sweeping the terraces with feathery fringes of dry fiber at their leading edges, gathering the charged pollen-silt and powdered pith that sifts down from the ceiling. Where a conduit has clogged with too much mineral dust, they graze it clear; where a pith-tower’s base has cracked, they linger for weeks, shedding a thin, resinous exudate that dries like lacquer over the fracture, helping the slow plant bridge the gap.
+
+If two of them meet on a walkway barely two palms wide, there is no aggression, no scuttling aside. They sense each other first as a subtle distortion in the floor’s tremor, a flattening of the static field around their edges. They pause, their leading fringes touching with a faint, dry crackle of ozone, and then one simply slides smoothly over the ribbed back of the other, their angled bristles catching on the growth-ridges without harm, before continuing on into the dark.
+
+Only once in a great while—when the barometric tides turn and the air in the chamber grows thick with static—do they venture away from the solid walls.
+
+Then, dozens of them creep out onto the slender, trembling bridges of braided vine that span the central void. Clinging upside-down to the undersides of the bridges, suspended over the empty drop, they arch their papery plates and release clouds of dry, star-shaped spores. Too light to fall, and repelled by the static charge of the walls, the spores do not drop to the floor below. Instead, they are caught in the churning, acoustic updrafts of the hollow center. They hang in the pitch-black void for weeks or months, dancing invisibly in the standing waves of the roar, bumping and fusing in the dark until they grow heavy enough to drift down onto a distant terrace or a hollow tower, where they anchor, flatten, and begin their own long, patient crawl.
+
+The builders are gone, and the animals have never been here, yet the city is not empty. In the cool, dry dark, smelled faintly of cedar and chalk and static sparks, these blind, legless tenders glide forever over the work of vanished hands—listening with their whole bodies, fed by the shaking of the world, keeping the great, hollow instrument in tune.

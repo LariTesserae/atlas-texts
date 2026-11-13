@@ -1,0 +1,25 @@
+There is no dampness here, not even the memory of it. If you press your palm against the floor—what passes for a floor—it comes away dusted in fine, warm talc and flakes of dry wax.
+
+The place is a sunken basin, miles wide, roofed over by a jagged, half-collapsed ceiling of milky selenite and salt-crust. High above, where the crust has cracked or buckled, raw daylight pours through in broad, hazy columns, diffused by the translucent stone until the whole subterranean valley sits in a steady, shadowless, late-afternoon brightness. The air is hot and bone-dry, smelling of toasted husks, resin, sharp mineral dust, and the scorched-sugar tang of insect chitin.
+
+Everything that fills this hollow is plant, and none of it drinks water.
+
+Instead of leaves and wet stems, the vegetation is an endless, interlocking architecture of dry, papery cellulose, hollow fluted reeds, and tensioned fibrous cables that run on warm mineral oils and volatile esters drawn up from the deep rock. There is no soil—only a raw, freshly fractured bed of jagged salt-plates, sulfur-stained shale, and sharp-edged scree that looks as though the earth split open yesterday and hasn't had time to round a single corner. Out of those raw cracks, the flora erupts in a frantic, unceasing boom. Great lattice-towers of corky, honeycombed wood shoot upward, braiding together into vast suspended shelves, bridges, and domed thickets that fill the lower half of the cavern from wall to wall.
+
+Nothing here stays still long enough to settle. The plants grow in visible, jerky spasms—tightly coiled tendrils snapping straight as they dry in the warm updrafts, hollow seed-bladders swelling with gas until they split with a gunshot crack, scattering clouds of dry, glittering spores. Whole acres of brittle scaffolding groan, buckle under their own rapid weight, and collapse into the lower crevices in a dry avalanche of snapping struts, only for new, pale-amber shoots to thread through the wreckage within the hour.
+
+And the sound—the sound is a physical weight, a continuous, roaring wall that presses against your teeth and vibrates in the soles of your feet.
+
+A dry, hollow cavern packed with taut plant-membranes and resonant reeds is already an instrument. Warm thermals rising from the deep fissures roar up through the millions of perforated stalks, turning the valley into an immense, chaotic pipe organ. Beneath that drone is the clatter: millions of papery husks rattling like castanets, cables twanging as they snap under tension, the endless dry rustle of shifting chaff.
+
+Drowning even that is the fauna.
+
+The basin is choked with life—armored, dry-bodied, hyperactive things that thrive where there is no rot and no mud. Clouds of thumb-sized, brass-winged stridulators hang in the hazy light shafts, their wing-cases sawing against their abdomens in a deafening, metallic screech that rises and falls in dizzying waves. Across the cork-wood lattices, long-legged, multi-jointed grazers scuttle in dense, overlapping streams, their mandibles clicking furiously as they strip the waxy bark. Larger beasts—flat, segmented things built like articulated shields of horn and dry leather—glide between the upper towers on stiff, crackling membranes, slamming into the reed-clusters and sending cascades of dust and startled swarms billowing outward.
+
+Nothing burrows into wet earth because there is none; instead, pale, blind borers with serrated obsidian-hard heads grind relentlessly into the raw salt-rock and the thick basal trunks, adding a low, teeth-on-stone rasp to the roar. Everywhere you look, something is eating, shedding, mating, or fleeing through the dense, swaying tangle. The air is thick with shed skins, drifting pollen-ash, and the frantic traffic of wings.
+
+Scattered through this roaring, shifting jungle are small, stubborn traces of someone trying to hold a place in it.
+
+Wedged into the lee of raw rock outcrops or lashed tightly to the thicker, older resin-trunks are low huts and blinds woven from stripped reed-bark and plastered with hardened wax. They are small, crouching structures, built low to survive the constant collapses and thermal blasts. Outside them hang bundles of flint-tipped harvesting hooks, curved bone scrapers for tapping the thick, amber-like sap, and crude baskets stitched with sinew and dry fiber. Here and there, someone has stretched cured carapace-plates across wooden frames to act as sound-baffles, creating tiny pockets of slightly muffled air where a person might hear themselves think, though the floor still trembles underfoot.
+
+Even the paths aren't permanent—just faint, temporary trails of notched bark and tied-back tendrils, marked with daubs of bright sulfur-paste before the next growth-surge swallows them or a swarm strips the markers clean. Everything in the basin is in the middle of being built, chewed down, blown apart, and thrown back up again, roaring dryly under its cracked salt sky.

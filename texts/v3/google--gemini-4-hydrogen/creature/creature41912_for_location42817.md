@@ -1,0 +1,31 @@
+If you stand on the edge of a terrace long enough for your eyes to adjust to the bruised-gray dimness, you begin to notice that the frantic chorus of the basin has gaps in it. There are small, traveling pockets of silence—places where the frog-beetles abruptly stop clacking and flatten themselves against the wet glass, and where the blind swimmers in the mirror-pools sink to the bottom and go still.
+
+Something else is moving through the four-minute world.
+
+There are two of them—sometimes three, though the third is smaller, slicker, and rarely leaves the shadow of the tilted white pillar. At a distance, crouched on the stepped obsidian floor, they are easy to mistake for another of the basin’s extruded accidents: humped, slate-colored shapes with the same oiled sheen as the wet stone, their backs marked with thick, concentric ridges of hide that look eerily like cooling mineral melt.
+
+When one unfolds to its full height—no taller than a person’s chest, though broader through the ribs and longer in the arm—you see it is neither rock nor machine. It is a heavy, hairless, amphibious thing, built for a world with no soft edges.
+
+Every part of its body is an argument against the razor-sharp glass. Its skin is tough and pleated, bruised-plum along the belly and dark slate across the shoulders, constantly sweating a thin, greasy film that sheds the warm rain like oilcloth. Its hands are long and four-fingered, ending in blunt, mineral-hardened nails. Most striking are its feet: wide, flat, and rimmed with leathery calluses. Every few days, when the flat ceramic disk at the basin’s center shudders and extrudes another millimeter of hot, iridescent slag, the creatures gather around it. While the fresh stone is still soft and taffy-warm, they press their heels and palms into the edge of the melt, coating their own dead horn in a thin, cooling crust of glassy slag. It wears down against the ninety-degree terraces, cracking and flaking off in glittering slivers, until the disk shudders again and they renew their soles.
+
+They live by two clocks: the ten-minute roar of the rain, and the deafening bell-ring of everything in between.
+
+During the dry spells, when the basin rings with the overlapping *clack* of frog-beetles and the foghorn groans of the canopy-drifters, the slate-skinned inhabitants move in near-total deafness. They have no outer ears—only two crescent-shaped slits behind the jaw, pinched shut tight against the racket. Instead, they read the basin through their slag-crusted feet and through a pair of pale, fleshy barbels tucked beneath their chins. Standing motionless at the edge of a shallow pan, they feel the rhythmic *tock-tock-tock* of the white pillar vibrating through the solid obsidian, the faint shudder of the ceramic disk, and the tiny, frantic ripples of the blind swimmers hunting below.
+
+When one of them wants to eat, it doesn’t chase. It crouches by a mirror-flat pool, dips the tip of one long finger into the warm water, and gives a single, sharp flick—just enough to mimic the splash of a slipping frog-beetle. Three or four forearm-length swimmers converge at once in a thrashing boil of foam. The creature’s long arm shoots down, pins the largest swimmer by the base of its ribbon-fin, and whips it up against the razor-sharp lip of the terrace. The blow is clean and practiced. A moment later, the pale meat is gone, and the creature is already wiping its hands on the wet stone, moving on to the sparse, copper-wire stalks around the hovering bronze lattice to lick the clear, sugary mucus from their stems.
+
+Then the vapor ceiling sags, turns dark as a wet wool coat, and lets go.
+
+For ten minutes, the roaring downpour drowns out the frogs, the kites, and the echoes off the black-glass walls. The basin stops ringing and becomes a muffled, private room of falling water. *That* is when the inhabitants open their ear-slits.
+
+In the warm, blinding hiss of the rain, they straighten up and cross the terraces at a loping, three-limbed trot, calling to one another in low, wet throat-hums and sharp tongue-clicks that carry cleanly through the curtain of water without bouncing off the cliffs. They use the ten-minute quiet to trade what they have found: a freshly shed, papery skin from a dead canopy-drifter, still trailing its sticky threads; a sliver of cooled slag snapped to a point; a handful of swollen frog-beetles caught mid-leap. They weave the tough, sticky kite-threads into crude, gummy nets to hang beneath the bronze lattice, snagging midges by the thousand.
+
+When the rain shuts off as abruptly as a tap, they retreat.
+
+Their only shelter is the underside of the pale, matte-white pillar. Because it leans at forty degrees, its broad flank forms a narrow, dryish overhang—and because the sheeting rainwater curves *upward* near its base, creeping in silver ribbons toward the fist-sized seam in its side, the stone beneath it never puddles. The creatures wedge themselves into that warm, dry pocket, shoulders pressed together, listening to the slow, mechanical *tock-tock-tock* of the pillar’s heart vibrating straight through their ribs while the basin outside erupts into noise again.
+
+They are not the builders of this place, any more than the lichens or the midges are. Yet they tend it with a quiet, anxious diligence.
+
+Between hunts, you can watch them crouched around the base of the white pillar, using slivers of hardened slag to gently scrape away the pale, rubbery lichens that try to creep over the water-drinking seam. They wade out to the hovering bronze lattice to pull dead kite-membranes and drowned beetles from its slowly turning rods, keeping the air around it clear. They do not seem to worship the artifacts, and they do not seem to understand them. They only know what happens when the *tock-tock-tock* falters, or when the mist-lid thins.
+
+Sometimes, during the hush just before a downpour, when sleet from the mountain wind outside strikes the invisible meniscus overhead and slides off in faint, ghostly streaks, the creatures tilt their broad, flat heads upward. Their milk-glass eyes follow the shadows of ice gliding across the dome of their sky—watching, with a still and heavy patience, the thin, warm ceiling that keeps the freezing blue distance from pouring in.

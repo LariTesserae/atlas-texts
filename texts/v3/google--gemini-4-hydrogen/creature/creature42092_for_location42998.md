@@ -1,0 +1,33 @@
+If you stand in the center of the pan and squint against the white-gold glare, you will swear that nothing larger than a water-snake lives here. The macro-world looks empty: only the sparse green humps of bedrock, the tall drooping reeds, and the five or six waist-high cages of dark, light-bending glass.
+
+Wait until the air above one of the cages begins to shimmer, and watch the nearest moss-island.
+
+A section of the rounded bedrock detaches itself from the cushion of emerald moss and slides, without a splash, into the ankle-deep water.
+
+They are few—never more than eight or nine across the entire village-sized basin—and they have spent eons learning how to look like the stone they walk on. Roughly the length of a human, they keep low to the pan, their bellies skimming just above the mirror-surface on four long, double-jointed limbs splayed wide like a salamander’s. Their skin is the exact, wet bone-pale of the fused silicate floor, matte and porous, seamless in the shadowless light that strikes them from above and below at once.
+
+Along the broad, flat shelf of their backs, the hide is pitted and creased, holding shallow pockets of condensed dew. Because they spend hours at a time motionless in the warm shallows, the basin roots itself on them: tufts of emerald moss cling to their shoulder blades, tiny fern-spores unfurl along their spines, and jewel-bright newts and golden frogs climb their flanks to stack themselves in glistening, silent heaps against the slight warmth of their ribs. When one of them rests among the reed-humps, it is simply another island.
+
+When they move, they do not walk so much as glide. Their limbs end in broad, spatulate pads, thinly webbed and fringed along the edges with soft, pale filaments. As a pad slides forward over the submerged rock, those filaments part the carpets of blind porcelain crabs gently, shifting them aside in a living wave without crushing a single shell. When a limb is lifted, the bath-warm water sheets off it in an unbroken, noiseless curtain. Not even the mirror-scaled fish scatter as they pass.
+
+Their heads are long, flattened, and smooth as river-worn slate, tapering to a blunt snout with no external ears—useless in air this thick with steam. In the blinding glare, open eyes would burn, so their small, sunken eyes remain veiled beneath thick, pearlescent membranes that soften the white-gold light into a bearable, milky twilight. They navigate instead by what lies beneath the brow and along the jaw: a double row of hair-thin lateral-line pits that read every tremor of the water’s surface, paired with deep, pale thermal recesses that see the world in gradients of heat.
+
+To them, the basin is not a flat, blinding void. It is a vivid topography of warmth and vibration. The five or six dark cages stand out like blazing, silent suns, each ringed by an endless, readable pulse of ripples. Every *plip* of dew from a fern-tip draws a crisp geometric ring across their awareness; every shifting tide of crabs sends a faint, tingling hum up through the soles of their feet.
+
+They do not speak—none of them have vocal cords, and the heavy humidity would swallow a cry before it crossed ten paces. Instead, they speak to the water.
+
+A dweller wishing to call another across the wide, sunlit pan will lower a single, long-fingered hand into the glass-clear sheet and tap the surface with measured, deliberate precision. Because the water is shallow and unbroken, the concentric ripples travel far, crossing the glare without losing their shape. They converse in interference patterns: a rapid triplet for an approaching thermal pulse, a slow, wide tremor made by vibrating a palm just beneath the surface to signal rest, or a sharp, staggered ring to warn of a tangled reed-mat.
+
+When two of them meet close-to among the ferns, they abandon the water and speak with their bodies, echoing the silent amphibians clinging to their shoulders. Standing nose-to-nose in the rising steam, they flush their pale, translucent throats and inner limbs with sudden, milky tides of rose, ochre, and bruised violet, while releasing faint, sweet-bitter scents that linger in the still air between them.
+
+Their lives are braided into the basin’s few-minute cycles as tightly as the cages braid gravity and heat.
+
+Moments before a dark cage pulses, the dwellers feel the buildup of warmth in their thermal pits—a silent, gathering pressure in the air. Two or three of them will turn in unison and glide toward the structure, parting the water without a wake. They halt just outside the ring where light bends too sharply around the matte-pearlescent glass, and wait.
+
+When the sudden plume of heat rises, hits the upper mist, and collapses into a minute-long, silent drizzle, the dwellers tilt their broad, mossy backs to drink the warm rain directly through their porous skin. As the fresh algae clouds the shallows and the porcelain crabs stream inward, the dwellers remain still, letting the blind water-snakes coil harmlessly past their ankles. Now and then, one will lift a long, pale arm into the sudden downdraft, palm upturned, and wait for a sinking air-jelly to drift against its skin. The fist-sized bell contracts softly around the dweller’s wrist, delivering a faint, harmless sting of warmth before the dweller draws the translucent creature down to its narrow, slit-like mouth and swallows it without a sound.
+
+They are not merely grazers, though. They are the quiet housekeepers of the pan.
+
+If a drifting mat of dead reeds or a thick, choking tangle of algae washes up against the base of one of the dark cages, a dweller will wade carefully into the bruised, refracted light and draw the debris away with its fringed fingers, feeding the scraps back to the shuffling crabs so the water remains clear as glass and the cage’s concentric ripples stay true. Around the base of each structure, tucked directly into the warm, endlessly rippling stone where the subtle distortion of gravity keeps the water-snakes at bay, the dwellers anchor their own pale, pearl-like egg clusters—leaving them to rock gently in the perpetual summer until they hatch into tiny, translucent versions of their parents, no bigger than the crabs they will spend their lives stepping around.
+
+When the drizzle stops and the glare settles back onto the ancient stone, the dwellers sink back down into the ankle-deep bath. The frogs settle onto their spines; the steam resumes its slow climb; and across the blinding, luminous expanse, the basin looks empty once more.

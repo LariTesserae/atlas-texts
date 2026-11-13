@@ -1,0 +1,31 @@
+At first, you would think the salamanders were the only things with a pulse. The roar of the copper relief stack fills the skull so completely, and the mist catches the noon sun in such a blinding, wet glare, that the eye slides right over anything that doesn’t move.
+
+It is only after you have stood there long enough for your boots to fill with warm condensation that you notice the small, deliberate absences. The waxy vines have been trimmed back an inch shy of the flywheel’s oiled rim, never quite fouling it. The porcelain insulators climbing the cliff are wiped clean of emerald algae. And around the brass valves, the thick pale crusts of mineral scale have been chipped away in fresh, sharp-edged flakes, leaving the metal bare and weeping.
+
+Then a patch of dark, stiffened hide shifts against the side of a condenser tower, and you see one of them.
+
+There are never more than two or three—any more would crowd the narrow shelf, and the notch can only feed so many. They are human, or at least they began that way, though generations—or decades, in a place where time is measured by a flywheel turning twice a minute—have shaped them to the rock and the steam.
+
+They are built like bellows. Even with the deep heat rising from below, the air above the cloud-deck is desperately thin, and here it is choked with water besides. To breathe it requires a vast, slow effort. Their chests are broad and barrel-ribbed, rising and falling in deep, unhurried draws that seem to pull the damp haze all the way down to their heels. Their skin is the color of the pale aerial roots hanging from the overhangs—softened by perpetual moisture, never dry enough to tan, and dusted in the creases of their elbows and necks with a fine, chalky rime of mineral salt. Around their knuckles and beneath their fingernails, the skin is stained a permanent, bruised verdigris from the copper and brass they handle.
+
+Against the blinding glare of the sunlit clouds, they wear heavy leather straps cinched around their heads, fitted with narrow slits of smoked mica. When they push them up onto their foreheads, their eyes are pale, watery, and remarkably still—heavy-lidded and unblinking, much like the salamanders they share the conduits with.
+
+They wear little, because cloth rots in a week here. Mostly they go in heavy aprons of oiled gutta-percha and stiffened hide, strapped over bare, scarred shoulders, and thick-soled boots of vulcanized rubber to keep the stray ground-current from biting up through the wet stone.
+
+Nothing on this shelf moves quickly, and neither do they. To rush in this thin, soupy heat is to black out. They move with the glacial, high-torque patience of the water-driven pistons. One of them will stand motionless beside the pressure-house for twenty minutes, a palm pressed flat against the fogged glass of a sight-gauge, waiting for a tremor only they can feel. When they raise a small, brass-headed hammer to tap the mineral scale from a valve-stem, the blow is slow, measured, and economical. *Tink. Tink.* The sound is swallowed instantly by the deafening hiss of the steam-stack; you don’t hear it with your ears, you feel it in the iron beneath your feet.
+
+In fact, they do not use their voices at all. The transformer hum and the steam-roar make mouths useless for anything except the slow, rhythmic work of breathing. Instead, they speak through the bones of the station.
+
+A sharp rap with a wrench-handle against a warm iron conduit travels cleanly beneath the roar, vibrating through the wet stone and up into the soles of the other’s boots, or into a jawbone rested against a pipe. They have a whole language of tapped rhythms—short, dull, and metallic—that tells them when a bearing is running dry, when a vine has snagged a cable, or when the counterweight is due to drop. They don't need to look at each other to know where the others are; they feel each other's weight shifting on the iron catwalks, the slight dampened shudder of a boot-heel landing on the rock.
+
+They are not masters of the machinery, nor are they quite its servants. They are simply the part of the equilibrium that has hands.
+
+They tend the green thicket as carefully as the iron, cutting back the broad-leafed ferns only where they threaten to choke the air-intakes, leaving the rest to drink the hot runoff and cool the transformer coils. They eat what the shelf gives them: the thick, starchy tubers of the waxy vines, boiled in the mineral seeps until they turn soft and salty, and the pale, rubbery bracket-fungi that bloom in the warm, pitch-darkness beneath the flywheel.
+
+And they watch the salamanders. The keepers never touch them, never eat them, treating the pale little creatures as living gauges. As long as the salamanders remain pressed flat against the warm rivets, soaking in the hum, the current is steady and the pressure is safe. If the pale bodies suddenly drop off the iron and scatter into the moss, the keepers are already moving—slowly, deliberately—toward the relief valves before the fogged glass ever shows a climb.
+
+For rest, they retreat to the only dry-ish place on the shelf: a narrow, baking-hot gap wedged between the back of the pressure-house boiler and the sheer black cliff. There, the rock is warm enough to evaporate the mist before it settles, and the air smells of hot iron and scorched dust rather than wet moss. They sleep slung in cradles of woven copper wire that never mildew, lulled by the *shhh-thunk* of the pistons and the dull, iron *boom* of the counterweight dropping every few minutes—a heartbeat slower and steadier than their own.
+
+Long ago, perhaps, someone down below sent them up here, or perhaps they climbed the thick insulated cables out of the white void when the rock was still cooling. Either way, the cables dropping over the precipice no longer mean anything to them as a road. The cloud-deck below is simply the sink that drinks the current, just as the mist above is what feeds the pipes.
+
+When the sun hits its sharpest, highest angle and the shelf turns into a blinding cauldron of white light and green leaves, you can find them sitting with their backs against the humming transformer bank, knees drawn up, chests rising and falling in time with the great wheel’s turn—soaking in the vibration and the steady heat, watching nothing at all.

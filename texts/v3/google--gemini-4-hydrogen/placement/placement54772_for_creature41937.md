@@ -1,0 +1,27 @@
+I would not start with a shape, or a name. I would start with tension—the quiet, even pull of thirty pale lines anchored into limestone, holding me just beneath a ceiling that trembles when the water shifts.
+
+Upward, there is no stone to touch, only the flat, cold skin of a trapped gas pocket, pressed tight into the apex of the vault. Downward, there is nothing at all for the length of a man’s arm, and then the silted floor of the room, and beneath that, the ancient, packed earth of the basin. I hang in the dark between them, buoyant and tethered, a broad sac of wet silk filled with the slow weather of things I have already taken in.
+
+If you asked me where I am, I could not tell you the name of the city, or which king’s bronze chisels squared the blocks around me. I know only the geometry of pressure. I am in a low, corbelled chamber—perhaps a sluice-house, or a cistern built beside a sunken road—where the overlapping slate roof has been cemented shut by centuries of coralline crust. The door is narrow and slumped into a curve. Outside it, the floor drops away in three broad, algae-upholstered steps toward a causeway that runs straight into the pewter murk for more leagues than my threads have ever reached.
+
+I am one of the dwellers, though I have no word for that either. I am simply the knot at the center of my own reach.
+
+Most of what I know comes through my skin. In water this cold and still, nothing happens without announcing itself. When the vast continental current—driven by some unfathomable warming or cooling half a world away—begins its slow turn across the drowned plain, I feel it long before the water inside my vault moves. A faint, low pressure gathers against my flank, like a palm laid flat against silk. Outside, the giant kelp forests are bowing. I cannot see the iron-red curtains lean, nor watch them settle back toward the vertical, but I hear the long, wet *shush* of their blades sliding past one another, a sound so slow it takes minutes to finish.
+
+Closer to home, there is the *tock* of a pebble letting go of its leached mortar, dropping onto the velvet moss. A small sound, muffled almost at once, yet it rings across my whole membrane.
+
+When that happens, I do not hurry. Hurrying is for things with bones and fins, and there are none of those here. Instead, I let a little of my substance thicken along one of the pale ribbons that run out under my doorway, down the slumped steps, and into the worn hollows of the flagstones.
+
+I do not know what made those hollows—bare feet, wooden sledges, the drag of baskets heavy with grain before the water came. To me, they are simply the smoothest paths. Silt gathers there; fallen kelp fronds, torn loose by the glacial drift, tend to snag in the shallow troughs and settle. My threads follow the stone’s memory of traffic. Over days, over weeks, the leading edge of a ribbon creeps a finger’s breadth toward the sound of the fallen stone, testing the dark silt for whatever the pebble might have uncovered or knocked loose.
+
+When a thread finds a dead frond—heavy, dark olive, beginning to soften at the edges—it does not bite or tear. It simply spreads. It flattens itself like cold tallow over the rotting margin, sealing the frond away from the heavy water, and begins the long, patient work of drawing the kelp’s substance back into the dark.
+
+Inside my vault, that substance becomes my weather. Suspended in the fluid of my body are clouds of dissolved limestone, tiny bright pearls of gas pinched down from the ceiling above me, and swirls of salvaged, dark-red pigment. It moves inside me as slowly as the current outside, turning lazily in the near-freezing dark.
+
+Sometimes, out on the causeway where the last bruised slate-blue light barely reaches the silt, my pale threads cross another’s.
+
+There is no startle in it, no recoil. My neighbor hangs in a drowned granary three hundred paces down the road, beneath its own inverted mirror of gas. Where our foraging-nets meet over the blank, rounded swell of an old boundary stele, our ribbons simply braid together for a season, sharing the slow dismantling of a single fallen blade. Beneath our digestive secretions, the limestone very faintly yields—a branching, root-like groove etched a hair’s breadth deeper into the erased stone, year after year, writing something neither of us can read over the lost labor of the builders.
+
+That is how I would pass the decades: listening with my whole skin, adjusting the tension of my guy-lines when a stray bubble slips out from under my arch with a soft *blup-blup* and sets me shuddering gently in the dark.
+
+And perhaps, near the end of a century, I would feel a new heaviness gathering at my lower flank—a dense knot of salvaged red pigment and fine limestone grit, folded around a single, measured pearl of gas from my ceiling. I would not know where it was going when it finally pinched free and slipped out under the slumped lintel. I would only feel the slight easing of my weight, the briefest stir of the water at my doorway, as it rose to the height of the kelp eaves and drifted away on the silent current toward some empty, distant courtyard—to wait, as I have waited, for the first dead frond to fall.

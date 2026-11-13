@@ -1,0 +1,27 @@
+If you stand at the narrow slit long enough for the wet heat to film your eyes, you stop seeing the basin as a crowd of small things and begin to notice the shape they are all moving around.
+
+At first, it looks like a rounded outcrop of the back wall—one of the only smooth contours in a room of broken-tooth edges. It sits in that stretched, wrong-end-of-the-lens distance where the far stone seems smaller and further away than it has any right to be. The pale crawlers scramble over it without hesitation, using it as a bridge to reach the weeping fractures above, and the bronze-scaled ticks anchor themselves along its upper ridge just as they do the ceiling.
+
+Then the ridge shifts, and a seam opens.
+
+It is not stone, though its hide has the matte, vitrified dullness of cooled slag, slick with the same pale sulfur-slime that greases the ledges. Where the hide plates meet, the skin beneath is soft, wrinkled, and translucent as tallow, pulsing with a slow, dark-red circulation. It breathes—not with the heave of lungs, but with a silent, rhythmic widening of those pale seams along its flanks, drawing the oil-thick air directly into itself.
+
+Because of the way the room folds its own space, it is difficult to say how large it is. From the entrance, it appears no bigger than a crouched hound, folded tightly into a corner of the basin. Yet the hand-sized crawlers darting across its knuckles look like mites. When it unfolds a single limb to brace against the slick floor, the arm is too long, jointed in too many places, ending in four pale, water-wrinkled fingers tipped with nails of raw, black glass.
+
+It has no face in any way that matters to the outside world. Its head is a heavy, elongated wedge crowned by a natural crest of unweathered obsidian that grows seamlessly from the bone, sharp-edged and wet. Beneath the overhang of that glassy brow sits a tight cluster of small, milky, lidless eyes—dozens of them, packed like frogspawn, needing neither lids nor tears in air this saturated. There is no nose, no jaw; only a horizontal slit low on the throat that parts without a sound whenever a slow-falling bead of scalding water drifts close enough to be caught. The trembling droplet does not splash or hiss against it. It simply touches the wet lip of the slit and is absorbed, magnifying the dark interior for a fraction of a second before vanishing.
+
+It lives with the same brisk, unsentimental economy as the smaller things, building nothing, keeping nothing. When the crawlers drop their used splinters of obsidian onto the slick floor, the creature gathers them—not to hoard, but to use. It wedges a sharp flake under the rim of a bronze tick clinging to its own shoulder, pries the parasite loose with a silent twist of its wrist, and lets both the tick and the glass fall back into the swarm. Sometimes it uses a broader shard of basalt to scrape the thickening sulfur-slime from its own joints, eating the pale grease off the stone with a quick, wiping motion before discarding the tool.
+
+When it moves, it does so with a terrible, quiet economy that breaks the room’s continuity. It does not drag its heavy, folded bulk across the wet rock. Instead, it stutters. One moment its long arm is resting on the ledge; the next, the arm is three inches higher, having skipped the space between, leaving behind a broad, wet smudge of darkness that hangs in the shadowless daylight for a heartbeat before snapping back into the limb.
+
+It never leaves the basin, and it never approaches the slit where the cold mountain wind scrapes past. Its attention belongs entirely to the shallow, ankle-deep pools at the base of the back wall.
+
+Hours pass in that suffocating silence while it squats motionless over the water, its glassy brow bowed, its cluster of milky eyes fixed on the surface. In the clear, ordinary daylight, you can see what it is watching.
+
+The pool is only an inch deep over bare basalt, yet the reflection looking back up at the creature does not match the body above it. While the creature crouches still as stone, its reflection is upright, or turned away, or multiplied into three overlapping silhouettes that shift independently of one another. Sometimes the reflection’s long, glass-nailed fingers reach upward from beneath the surface tension, pressing against the water from the other side, though the rock beneath the pool is solid and dry.
+
+The creature watches these other versions of itself with an absolute, unblinking stillness, as if waiting for one of them to step out, or for itself to slip in. Every so often, a crawler scurries across the rim of the pool, flickering past the water’s edge, and for a second its tiny reflection tangles with the larger ones—four or five pale, jointed shapes crowding together in an inch of scalding water—before the crawler vanishes and the creature is left alone again with its own lagging, impossible company.
+
+If a draft from the outside world ever reaches that far—if the thin, cold air of the high peaks brushes the slick hide of its back—the creature does not turn toward the entrance. Its heavy, slag-colored body stays bowed over the pool, motionless and deafeningly silent.
+
+Only its reflection lifts its glassy head, turns toward the slit in the rock, and looks directly at you.

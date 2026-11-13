@@ -1,0 +1,23 @@
+I wouldn’t be up in the glare. Not for long, anyway. The wind up there has no manners—it pours straight off the rim of the fault-scarp and flattens everything that tries to stand taller than a knee, and the sky is too thin to hold anything back. If you have lungs for air and eyes without shields, the basin feels like an exposed nerve.
+
+I’d be two feet down, where the noise loses its teeth.
+
+At first it’s hard to tell where I end and the bog begins. That’s the whole point of living here. Above me, the sun is baking the top crust of the sphagnum until it steams, and a lone pipit might be fighting the crosswind over the sedges, but down in the tea-colored water there is no wind, no glare, and no hurry. Everything is weave and pressure. Dead sedge-roots, living clubmoss, cold groundwater seeping millimeter by millimeter toward a cliff edge it won’t reach for weeks.
+
+If I have a shape here, it’s broad and low—something built to part the mat rather than fight it. Four short limbs tucked close, spade-toed, pulling me through the sponge without leaving a wake. My belly is pale and thin-skinned, drinking oxygen straight from the cold trickle passing underneath me, while my back is dark, ridged, and heavy enough to belong to the basalt below. Over the years, the basin has claimed the top of me anyway: copper bog-moss rooted in the furrows along my spine, a crust of pale lichen across my shoulders. I carry my own roof. When I stop moving, I am just another swell in the floor of the plateau.
+
+I wouldn’t have ears—not in a place this loud. Airborne sound is a waste of attention when the intake gates are screaming half a mile away and the cooling towers are throwing white mist against the rock. Instead, I’d know the valley through my jaw and my flanks. Every stone, every drop, every machine has a signature that travels through the wet peat, and none of them ever change their minds.
+
+To the north, a low, irregular thudding: that’s the fault-scarp, where the sheeted water drops straight off the unweathered ledges onto talus. Farther out, spaced like ribs across the basin, are the sharp, prickly columns of the pylons—I’d feel them before I reached them, a faint static fizz bleeding down from their buried concrete footings into the surrounding moss. I’d steer clear of the intake throats, where the blind, hard-shelled things cling in the dark behind the steel baffles; that’s too violent a life, all roar and rush and shredded sphagnum.
+
+My territory would be the quiet margin around the transformer pads.
+
+When the sun drops behind the rim and the mist thickens enough to choke the wind, the top crust of the moss begins to stiffen with frost. That’s when I’d turn toward the hum. It isn’t a sound—it’s a steadiness, a sixty-cycle pulse that travels through the bog like a slow tide. You don’t have to hunt for it; you just rest your chin on a root and let your flank-pits tell you which way the vibration thickens.
+
+By midnight, there would be dozens of us stacked edge-to-edge in the wet peat against the green-stained concrete foundation. No jostling, no territory fights—there’s warmth enough bleeding through the poured wall for all of us, and the machine inside has been turning at the exact same speed since before any of us hatched. We just press our cold, flat sides against the damp stone and soak up the waste heat, letting the steady purr rattle gently through our hollow-chambered skulls. It’s the closest thing to a hearth this unfinished plateau has.
+
+In the morning, if the glare is thin enough, I might haul myself halfway up the spillway where the pressure-relief valves vent their white plumes. The runoff there is warm and slick with basalt minerals, and the concrete is coated in emerald algae so thick it feels like velvet under my toes. Overhead, the valve hisses loud enough to strip the skin off a human ear, a permanent white column of steam tearing into the pale blue sky. I wouldn’t mind it. I’d just scrape the algae off the stone with a broad, horny jaw, unbothered, taking my time.
+
+And on the brightest afternoons, when the basin looks completely empty—just miles of wet ochre sponge and sky-reflecting pools—I might push just the crown of my head through the surface beside a patch of sedge. Not to look for anything. There’s nothing up there that wants me, and nothing I need to chase.
+
+Just to let the clear membranes slide over my eyes, reflecting the washed-out blue like two drops of oil. Just to let the sun warm the moss on my back while the turbines turn, the pylons sizzle in the damp, and the water beneath my belly keeps creeping onward at its own slow pace.

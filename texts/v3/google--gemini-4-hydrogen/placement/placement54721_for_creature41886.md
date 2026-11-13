@@ -1,0 +1,27 @@
+I would be perched where the cold is cleanest, at the lip of the third basin, with one callused ankle hooked around a living anchor-root and my jaw-ridges tilted toward the wall.
+
+From here, there is nothing to see—only the faint, useless greyness far above, thin as a thread of spider-silk, and even that is only a pressure behind my milky lids, a vague knowing that the seam in the basalt is still open. My real world begins at my wrists and runs up my forearms, through the damp pores along my bone, and into the wide slits of my face.
+
+I am one of the water-tenders. Not because anyone appointed me to it, and not because it is a high place—though it is, physically, three tiers above the nearest woven bridge—but because my joints have grown too thick and slow for the upper root-curtains, and my skin no longer likes the dry air of the shelf. Once, when I was narrower in the rib and quicker in the grip, I was one of those who climbed when the grey thread went black. I remember the shelf: the terrifying, roaring emptiness of it, the way the wind dried the bitter oil off my shoulders until my hide felt tight as a drum-skin, the blinding prickle of starlight against my filmed eyes. I still have the flint scraper I knapped from a cobble I dragged down through the seam twenty winters—twenty frost-tides—ago. Its edge is worn down to a stub, half its length lost to moss and reed, but it fits the hollow of my palm better than any newer stone.
+
+Now I stay where the basalt weeps.
+
+My work is mostly waiting, and listening with my feet. The basin beneath me is woven from split reed and sealed with the inner pulp of crushed tubers, lashed to a swelling shelf of tallow-stem. Above me, in the first and second basins where the seepage is purest and untouched by rot, the young hang in the black water. I cannot see them, but if I dip two fingers past the rim, the tiny eddies against my knuckles tell me how many are stirring. When I drop a pinch of mashed amphipod-paste onto the surface, the water trembles with a sudden, feathery flurry—the brush of external gills, light as silk-spinner thread, rising to feed.
+
+Beneath my knees, the third basin takes the overflow and feeds it into the hollowed-stem aqueducts that drop down through the city. This is where the trouble gathers.
+
+A faint, wet *thud* travels up the reed-wall and into my shin. Not a tap-message from the lower clusters—that would be sharper, two quick strikes of bone against gourd—but the heavy, boneless bump of a blind newt nosing its way up the spillway.
+
+I do not hurry. To hurry is to burn heat I cannot spare, and the paste-basket strapped to my ribs only holds so much. Slowly, I unhook my ankle, shift my weight onto the braided stem, and reach down with my bone prod. My hand finds the flat, slick wedge of its skull jammed tight into the reed-notch. Already the water is backing up against my wrist, spilling cold over the lip toward the dry granary-cables below. I press the blunt notch of the bone behind its gill-slit—firmly, without anger, the way you press a stubborn shoot back from a doorway—and wait. Its skin is colder than mine, smooth and yielding. After a long moment, it twists, slips backward down the slick stem, and the water drops back to its proper level with a soft, sucking sigh.
+
+Then I wait again.
+
+Through the soles of my feet, I read the city. Far below, across the dripping void, someone is scraping moss; I feel the rhythmic, gritty vibration traveling up the anchor-roots, faint as a beetle’s tread. Three clusters over, a gourd-wall rings twice—*tap, tap-tap*—and then a long pause, followed by a single dampened thud. Someone’s terrace is tilting. The tuber beneath it has drunk too much mineral water this season and is swelling out of true; they are calling for notched bone levers and sinew cord to wedge it level before the doorway splits.
+
+I press the butt of my worn flint against the aqueduct stem and answer: *tap*. One slow beat. *I hear. I am staying at the sluice.*
+
+In a little while, the air drifting down from the cleft will sharpen. I will taste the salt-frost on my tongue-root before the grey thread above even dims, and I will know the slug-tide is rising from the lower peat. My kin in the bottom clusters will draw up their root-ladders and climb toward the middle tiers, listening to the wet rasp of a thousand mouths cleaning the lower mats of old fungus. Up here, the slugs rarely come; the mineral water is too cold and sharp for them, and there is nothing rotting to eat.
+
+I will sit with my knees drawn to my chin, my damp wrists pressed together to keep the oil warm in the creases, and let the dark settle into me. One of the young in the second basin is nearly ready to haul out. Yesterday, when I dipped my hand to clear a stray rootlet, it brushed my palm, and its skin was no longer glassy and soft—it had the first faint, waxy drag of a hide thickening for the air. Soon it will climb over the woven rim, shivering in the open cold for the first time, and I will take its small, five-fingered hand in mine and trace the shape of the bridges across its palm before I guide it down into the city.
+
+Until then, I pare a pale shoot back from the lip of the third basin, feel the slow, woody sigh of the living wall shifting beneath my weight, and keep the water running clean.

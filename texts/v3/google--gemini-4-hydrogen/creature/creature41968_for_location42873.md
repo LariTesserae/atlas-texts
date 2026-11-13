@@ -1,0 +1,25 @@
+If you stay until the sun drops behind the rim, you find out why the chisel marks are still dusty-pale.
+
+At midday, the valley is closed against the eye. The glare off ten thousand wet mirrors is fierce enough to blister skin and burn out vision in an hour, and the cold stone radiates nothing back but white light. Only when the sun slips low and the razor-sharp shadows stretch across the basins—turning the water from blinding white to pewter, then to oiled slate, then to black—does the hollow ground beneath your boots begin to stir.
+
+They come up out of the dry pockets between the culverts.
+
+There are places in the packed lattice where a slab of slate lifts cleanly from its groove, revealing a narrow, shoulder-width shaft that drops down between the brimming cisterns. From these gaps, and from the low, roofed channels that run beneath the causeways, they emerge one by one, without a word, into the freezing blue dusk.
+
+They are built to the measure of the walls they made. Narrow-shouldered and long-limbed, they move along the causeways single-file with an unhurried, gliding balance, never needing to look down at the slick stone beneath their feet. Where two meet on a wall too narrow to pass, one steps smoothly down into a knee-deep water-pan—raising barely a ripple—and stands motionless while the other goes by.
+
+In the fading light, they look almost like pieces of the masonry itself. Their skin is the pale, matte gray of dry limestone, toughened by cold and mineral salt; their knees, elbows, and forearms are stained dark with the fine-grained clay they pack into the seams, and their palms carry the faint, blue-green tarnish of hammered copper. They wear little—tightly wrapped bindings of oiled linen or felted hair around their shins and ribs against the wet chill, and nothing on their feet, which are broad, calloused, and pale as fish-bellies from a lifetime of wet slate.
+
+Their eyes are small, pale, and deeply set, shielded by heavy, bruised-looking lids that stay half-closed even under the stars. Sunlight is their enemy; a single hour of the valley’s noon would leave them blind. Some still wear thin, flat visors of dark slate tied across their brows, each pierced with a horizontal slit no wider than a knife-edge, in case their work catches them out at dawn.
+
+They do not speak. In a basin of flat water and hard stone, a voice carries too far and spoils the quiet they need to work. Instead, they listen.
+
+A machine this large and this slow cannot be watched, only heard. As they spread out across the tiers—fanning into the maze of waist-high walls until the mile-wide valley holds hundreds of them, spaced far apart like solitary wading birds—they tilt their heads to read the water by ear. The hollow *plink* of a condensing drop tells a keeper how many feet of empty stone remain in a covered cistern below. The tiny, wet *click* of a stone plug settling tells another that an upper tier has reached its weight and locked. A faint, wrong *hiss* beneath a walkway means a clay seam has wept, and two of them will kneel in the dark, pry up a slate cover, and drop down into the dripping space between the walls to pack it tight again.
+
+This is why the stonework looks young. A valley of wet limestone and mineral seepage is never finished; frost shifts a block by the thickness of a fingernail, and the cold mountain water leaves brittle white crusts of calcite along the sluice-lips, thickening the glassy sheets and slowing the tide. Every night, the keepers walk the pans with copper chisels, stone wedges, and sling-bags of wet clay. They scrape the salt-fringes clean. They re-cut the notched weirs and the edges of the slate sluices until they are sharp enough to nick a palm, leaving fresh, dusty-pale grooves that will be washed clean by the morning mist. They haul up the heavy stone plugs with braided sinew ropes, shifting the silent weight of water from one tier to the next.
+
+They have no fires—there is nothing here to burn, and smoke would foul the mirrors—and they keep no houses on the surface. Everything they need is below, in the deep, dry honeycomb beneath the flooded floor, where the earth’s own warmth takes the sharpest edge off the mountain cold. There, fed by the slow, filtered water that finally reaches the bottom of the lattice, pale, rootless things grow in the dark—fungi and blind, fleshy stalks tended in the black air, alongside the slimy, paper-thin mats of algae they scrape from the oldest sunlit pans and dry on warm stones below.
+
+Just before dawn, when the first cold white light touches the highest retaining walls on the western rim, the valley empties itself again. One by one, the keepers lower the slate covers over their heads, slip back down the shoulder-width shafts, and pull the stone into place above them.
+
+By the time the sun clears the ridge and turns the valley back into a blinding, freezing mirror, there is nothing left on the walls—only the crisp, fresh chisel marks pale in the stone, and the water moving, drop by silent drop, down into the dark where they are waiting.

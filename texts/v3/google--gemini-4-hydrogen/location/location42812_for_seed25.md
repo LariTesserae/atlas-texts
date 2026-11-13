@@ -1,0 +1,31 @@
+It is not silence that greets you in the dark, but a wall of sound so thick it feels like stepping into cold water.
+
+The place is a sunken karst valley, roofed over by a ceiling so high and fractured it might as well be a night sky. Far above, unseen, ancient limestone arches and dissolved domes hold back the weight of the world, leaving a low, open expanse that stretches for miles—wide enough to hold terraces, collapsed ridges, and broad, shallow basins, all of it drowned in near-total darkness.
+
+The air is cool and clammy, heavy with the smell of wet chalk, ammonia, and iron-rich silt. There is no rain here, no rivers rushing through, only an endless, patient dampness. Condensation beads on every cold surface. From the high dark, water falls in slow, irregular drops, striking the weathered stone below with sharp, hollow *plinks* that are immediately swallowed by the roar of everything living. Those drips collect in broad, ankle-deep pans of cloudy, mineral-saturated water, ringed by pale, terraced rims of travertine that have been building and wearing down for millennia.
+
+Nothing green grows here. There is no moss, no fern, no root to break the stone. The rock is bare, fluted and pitted by ages of slow dissolution, worn smooth in some places by the passage of countless bodies and scalloped in others by ancient water. The only non-animal life is a thin, greasy rime—a pale grey or rust-colored biofilm of sulfur-eating and mineral-leaching slimes that clings to the dampest rock faces and the edges of the shallow pans.
+
+And yet, the valley is suffocatingly crowded.
+
+Because there is almost no light—only the faintest, cold prickles of blue-green phosphorescence along the mucus trails of crawlers or the dim, bruised-violet glow of digestive sacs inside translucent swimmers—the entire ecosystem has abandoned sight. It is a world built out of touch, vibration, and noise. Every surface, every pocket of air, every inch of shallow water is layered with life, near-touching, jostling, and deafening.
+
+At ground level, the stone itself seems to move. Broad, flat, segmented grazers—armored in dull, chalk-colored chitin that blends into the wet limestone—inch across the terraces in dense, overlapping herds. They press their undersides flat against the damp rock and rasp the mineral slime away with iron-hard tongues. One of them would sound like a fingernail dragged across slate; tens of thousands of them together produce a continuous, grinding hiss that vibrates up through the soles of your feet.
+
+Between and beneath them, pale, many-legged scavengers weave through the gaps, clicking their mandibles in rapid, dry bursts to avoid colliding with one another. In the shallow mineral pans, the water is never still; it churns with blind, ribbon-bodied filterers that thrash in dense tangles, straining the chalky silt through feathery gills.
+
+Look up—though looking tells you nothing—and the air above the terraces is just as thick.
+
+Ribbons of blind, leathery fliers wheel through the open dark in vast, overlapping currents. They have no eyes, only wide, fluted acoustic ridges along their ribs and snouts that flare open like split trumpets. To navigate the crowded air without crashing into the limestone columns or each other, they emit a relentless, high-frequency torrent of clicks and chirps. At this density, their echolocation doesn't sound like individual calls; it merges into a piercing, metallic static, a continuous shriek of *tick-tick-tick-tick* that bounces off the damp stone walls until the whole valley rings like a struck bell.
+
+Hanging from the overhangs and the fluted stone pillars are the stationary things—colonies of long, tubular, calcareous pods anchored by secretions that look like melted wax. They dangle in dense curtains, swaying slightly in the draft of passing wings. Their bodies are hollow and ribbed. When the air shifts, or when a flier strays too close to their sticky, trailing filaments, they contract and rattle against one another, filling the mid-air with a dry, hollow clatter like thousands of bone wind-chimes shaken at once.
+
+Through this deafening, blind, tightly packed crowd move the hunters.
+
+They are long-limbed, pale, and entirely eyeless, walking low over the grinding herds on splayed, padded toes that make no sound on the wet stone. Their heads are dominated by massive, fleshy, dish-shaped ears that constantly fold, cup, and swivel, reading the chaotic wall of echoes the way a predator elsewhere might read shadows. They hunt by listening for the tiny, irregular gaps in the noise—the stumble of a grazer, the ragged wingbeat of an injured flier. When one locks onto a target in the dark, it inflates a specialized sac in its chest and releases a single, concussive *crack*—a sound like a snapping timber, loud enough to stun small fliers out of the air and send a brief, panicked ripple of silence through a hundred yards of the crowd before the roar closes back in.
+
+There is no sun to mark time, no warmth of day or chill of night. Instead, the valley lives by breath.
+
+Every dozen hours or so, shifts in the weather miles above the earth cause the deep cavern system to inhale or exhale. A slow, cool draft begins to move through the sunken valley, carrying the scent of distant wet rock and changing the barometric pressure. The hanging colonies sense it first, their rattling growing louder and more frantic. Within minutes, the great roosts on the upper walls detach, and millions of fliers pour into the open space in a living, roaring avalanche, while the grazers on the floor press tighter together against the sudden chill of the moving air.
+
+In this place, to stand still is to be touched—by the brush of a blind wingtip, the cold, wet edge of a passing shell, the spray of a mineral drip. You cannot see the valley's edges, only hear how far away the stone is by the way the deafening, layered clamor of its inhabitants comes back to you, dampened by distance and echoing endlessly in the dark.

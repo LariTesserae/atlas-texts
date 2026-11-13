@@ -1,0 +1,29 @@
+I would not have eyes, and I would not have a heart, which is the only way to belong here without going mad.
+
+If you asked where I am, I couldn’t tell you in feet or tiers—only in weight and frequency. Above me, the air is thinner and sharper, smelling of scorched dust and the high, thin whine of the leaking steam-trap. Below me, the pressure thickens until the water stops falling and starts rushing, pulled toward the three great pistons that shake the world.
+
+I am somewhere in the middle of the climb, wedged into the angle where a horizontal cast-iron manifold crosses a vertical steel stanchion. Just beneath my trailing end, behind a grid of rusted wire mesh, a transformer sits bolted to the column.
+
+That is how I know I am in the right place. Every four seconds, the deep *thump-hiss* of the sump pumps travels up the stanchion, through the rivets, and into my underside—a heavy, blunt shove that pushes the dark metallic fluid inside me forward by the width of a hair. And riding constantly on top of that four-second lunge is the tight, dryish buzz of sixty cycles per second, leaking out of the transformer’s casing. The pump moves me; the transformer wakes me up. Together, they keep the stacked plates of iron sulfide and copper carbonate inside my chambers humming like a wet battery.
+
+I am not one of the great elders draped like firehoses down in the olive-colored gloom of the lower sump, and I am no longer one of the fist-sized knots clustered up in the hot copper-green tangle of the steam-rack. I am middling—long enough to bridge the gap between the stanchion and the manifold, thick enough that a passing human hand, if one ever came down through the grates, would take me for a swollen length of rotting canvas lagging or a wet clump of fern-root.
+
+It took me years to get up here. I began as a salt-crusted bud no bigger than a marble, shaken loose from some older body by a heavy pump-stroke. I fell through the diamond holes of the catwalk grating, splashed into the rushing sluice-channel, and rolled in the dark until the suction of the sump pinned me against an intake screen. That was the loudest place in the world—nothing but roaring water and the slam of the pistons—and I stayed there until my first pale filaments had anchored into the iron mesh and learned the four-second beat.
+
+After that, I simply followed the salt and the shudder upward. Up the sweating legs of the lower racks, across the waterlogged sphagnum of the catwalks, past the amber cones of the sodium lamps—which I felt only as faint, dry patches of warmth on my upper hide, a place where the mist thinned out and the algae on my back grew a little sparser.
+
+I stopped here because the pipe-hanger was loose.
+
+Before I arrived, the iron strap holding the manifold to the stanchion had worn a millimeter of play into its bolt. Every time the sump pumps hit the bottom of their stroke, the pipe jumped and *clacked* against the column—a sharp, erratic rattle that broke the room’s rhythm. I felt that rattle from three feet away through the steel, and it pulled me toward it over the course of a week: *thump-hiss*, swell forward; *thump-hiss*, peel the rear filaments off the moss with a faint wet *shuck* and draw up behind.
+
+When I reached the gap, I poured myself into it—slowly, chamber by chamber, tasting the rusted bolt and the lime-crusted iron—until my turgid, water-packed body wedged tight between the pipe and the column. The sharp *clack* disappeared. Now, when the pumps strike, the manifold only gives a dull, muffled *thrum* straight through my ribs of cellulose and mucus. I became the washer the room was missing.
+
+I don’t move much anymore. There is no reason to. The condensation sliding down the stanchion brings me a steady diet of dissolved iron and boiler-treatment salts, and the transformer below keeps a faint, sour voltage trickling through my underside filaments.
+
+Two days’ crawl along the manifold, there is a brass gate-valve whose stem is slowly choking under a collar of white calcium scale. Once every few months, when the salt-taste grows strong enough to pull me away from the hum, I unanchor my leading end, stretch across the rotting canvas lagging, and slide my soft, puckered mouth over the valve-stem like a sleeve. I stay there for weeks, secreting a weak acid that softens the white crust, drinking the dissolved lime until the brass underneath is slick and bright again. Then I let the four-second pulse walk me back to my gap above the transformer.
+
+I can feel the plants making use of me already. The creeping fig has no hurry, and neither do I; its fine white tendrils have been threading across my upper hide for a season, knitting me to the stanchion, mistaking my velvety nap of algae for bark or brick. Closer to the manifold, the thick, woody aerial root of a philodendron rests its blunt tip against my flank, drinking the moisture that weeps from my pores.
+
+I know what that means. In the last year, my trailing chamber has grown a little stiffer. The iron sulfide is silting up inside me, precipitating out faster than the pump-stroke can flush it through. One day—perhaps in five years, perhaps in twenty—the four-second lunge will hit the stanchion and my body won’t flex to meet it. The fluid will stop shifting. My hide will harden into a porous grey crust of mineral and peat, and the fig and the fern roots will thread straight through me, locking the manifold to the column permanently.
+
+I don’t mind. Beneath my belly, pressed tight against the trembling wire mesh of the transformer cage, three small, rubbery buds are already swelling in the sixty-cycle hum. When I stiffen enough that I can no longer absorb the shock of the pumps, the next heavy surge will shake them loose. They will drop through the grating, splash into the culverts, and ride the dark water back down to the sump to start the climb again.

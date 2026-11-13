@@ -1,0 +1,31 @@
+If I were in that world, I wouldn’t be standing on the rim looking down. The rim is for things that pass through and freeze. I would be already inside the bowl, and I wouldn’t have boots on.
+
+I think I would find myself in the middle tiers—not all the way down in the wet, root-choked dark where the sun never reaches, and not out on the blinding, wind-scoured flagstones of the upper plaza either. Somewhere in the threshold between them: a narrow, bridged alley where one wall is still slick with emerald cushion-moss and the opposite wall catches just enough slant sunlight to keep the stone arguing with the frost.
+
+At first, if I tried to imagine myself there as I am now, I would be helpless—deafened by the organ-pipe roar, shivering in the thin air, flinching every time a cloud shadow slid over and a wet seam snapped like a rifle. So if I belong to this place, I have already let that go. My ears are plugged tight with moss-wax and tallow. The air is just pressure against my cheeks, cold and dry as a whetstone. The real world starts at the soles of my feet.
+
+I would be one of the ones who live in the vibration.
+
+Not the boldest of us—not the ones who climb the highest, rib-thin chimney-towers in the teeth of a gust to wrestle a wind-bored aperture back into tune. I think I would be a seam-walker, someone suited to the quieter work of the intermediate galleries, where the great brassy howl of the basin breaks down into individual voices you can actually read through your heels.
+
+You learn to tell the difference between a wall that is singing and a wall that is choking. A healthy dry-stacked wall has a bright, continuous hum to it, a kind of tight-strung patience; the slate plates lean into one another, held by the woody grip of the root-fiber, passing the wind’s weight down into the bedrock. When ice begins to wedge into a seam, the hum goes dull. It turns thick and sluggish, like a struck pot with a crack in it.
+
+That is where you would find me: crouched in the green-violet shadow of a bridged walkway, wrapped in a heavy mantle of braided beard-lichen that clatters softly against my shins when I shift my weight. My fingers—thick-skinned, tallow-colored, stained dark at the knuckles from wet moss and slate dust—would be feeling along the cold seam for the place where the geometry has gone slack.
+
+I’d carry a belt-pouch of water-rounded cobbles and thin slate shims, sorted not by color or shape, but by how they feel when you tap them. When a cloud passes and the temperature drops, you don’t rush. You wait for the *crack*, feel the shudder travel up through the callused pads of your feet, and then, when the thin sun breaks back through and the stone begins to weep again, you slide a slate wedge into the gap. Just far enough. Tap it home with the flat of a cobble. Feel the wall lock back into the general hum of the town.
+
+There is a particular kind of peace in that—the peace of a world where nothing is permanent, and yet nothing is allowed to fall apart, because everyone is quietly holding the pieces together with their hands.
+
+I think I would have a habit of watching the bladder-worts along the drainage channels, too. Not just for the cold, mineral-sharp water inside their swollen skins, though I’d pluck them just before they hissed and popped, biting through the ice-sheath to drink. I’d watch them as a kind of clock. When they swell tight and translucent in the noon glare, you know the upper flues are dripping fast, which means the air inside the towers is heavy with mist—and if a shadow hits now, the rime-ice will form in sheets. It tells you when to look up, when to brace for the sudden drop in pitch as a tower starts to frost over.
+
+And I wouldn’t talk. Even if the roar didn’t swallow speech, I think I would be grateful for the silence of the tongue. When another of us comes down the dished ramp—footsteps unreadable in the wet moss until they step onto a bare flagstone and send a soft *thump-thump* through the slate—we wouldn’t need to explain what we were doing. I’d just pull a smooth cobble from my pouch and tap twice against the wall between us. *Clack-clack.* A small, dry note that travels straight through the stone, bypassing the howling air, landing cleanly in the bones of their jaw and feet. *Here. Still holding. The seam is tight.*
+
+Maybe they’d rest a flat palm against my collarbone for a breath, sharing the steady, low thrum of their own chest, before ducking under the archway to check the root-mats further down.
+
+And if one of the pale, thick-fleeced beasts wandered through my alley during a lull—all broad split hooves and quiet, heavy shoulders—I’d step back into the hanging lichen and let it pass. Neither of us owns the street. It knows where the lush moss grows; I know where the stone needs wedging. Sometimes, if it pauses to rub its flank against a woody root-mat, I’ll gather the snagged tufts of shed fleece afterward, tucking them inside my mantle where the damp cold tries to creep in.
+
+When the sun finally drops behind the worn-down molars of the horizon and the whole basin locks into iron frost, I wouldn’t linger on the terraces. Once the dripping stops, there is nothing left for hands to fix; the stone becomes brittle as glass, and the wind-pipes overhead begin their long, freezing shriek.
+
+You would find me crawling down through the low, root-choked apertures beneath the central plaza, following the warmth of bodies and the faint, damp smell of crushed moss. Down there, ten feet below the swept flagstones, the roar is only a distant, muffled groaning in the ceiling—like the breathing of something vast and asleep.
+
+I would wedge myself into the dark, shoulder to shoulder with my neighbors, my back pressed against the warm, heavy-breathing flank of one of the fleeced beasts, feeling the slow rise and fall of its ribs against my spine. No words, no light, no wind. Just shared heat, the faint *hum* of the great stone instrument holding its own against the night, and the quiet certainty that when the first thin ray of morning hits the south-facing walls, the water will wake up, and we will go back out to listen.

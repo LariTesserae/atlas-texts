@@ -1,0 +1,29 @@
+I think I would know where I was by my soles before I ever opened my eyes. 
+
+Not the soft give of dirt, and not the flat deadness of paved stone, but a warm, thrumming lattice that vibrates just enough to make the marrow in the shins hum. If I shifted my weight, the calloused horn of my heel would catch the edge of a riveted bar, and a faint draft would rise through the grating from somewhere far below—smelling of hot tallow, damp brick, and the sharp, clean sting of ozone.
+
+For a while, I wouldn't look up. The sky here is too fierce for an unguarded glance, even with zinc-paste smeared thick under the eyes. Instead, I would look down through the iron grid at my feet, into the layered blue shadow of the lower vaults, and then out across the middle tiers, where the brick cliffs have gone soft with age and fig-roots.
+
+If I had grown up in this basin, I don't think I would belong to the highest ridges. The fin-scrapers live in that naked, violet-cobalt glare, dangling in canvas harnesses from the zinc condenser-sails with nothing between them and the kestrels. I would admire their nerve, the way they read the wind off the masonry, but the sun up there hits like a hammer. Nor am I ready—not yet—for the deep dynamos, where the elders have let the light go milky in their eyes and wear greased leather over their ears to survive the endless thunder of the water-lifts. I still want the green. I still want to see the afternoon clouds snag on the copper fins and watch the swifts stitch the air between the arches.
+
+So I would find myself in the seam between the two: the cool, dripping alleys tucked beneath the great aqueducts, halfway down the terraced bowl.
+
+Down here, the light comes only in slanted, golden bars between the brick piers, cut into shifting stripes whenever the giant louvered sun-shields groan a few degrees overhead. The air is thick with the green smell of crushed fern and wet mortar. Moss beards the undersides of the catwalks above me, and every few seconds a fat, slow drop of condensation lands on the crown of my woven-wire hat with a soft *tock*. 
+
+It is a good place for someone who likes to listen. Up on the exposed aprons, the cicadas and the high-voltage lines fill the air with a dry, metallic roar; down in the dynamo pits, the beam-engines shake the teeth in your skull. But here in the vaulted shade of the water-channels, the noise settles into something legible. You can hear the *plink-plink-shhh* of the gutters feeding the stone runnels, the dry rustle of lizards darting behind the terracotta downspouts, and—if you press your bare foot flat against a cast-iron stanchion—the slow, distant pulse of the counterweights rising and falling in their brick shafts.
+
+I think I would be a gate-tender, or a runnel-clearer—one of the ones who keeps the water moving cleanly between the condenser-troughs above and the boiler-feeds below.
+
+It isn't glorious work, and it doesn't require the acrobatic grace of the people who ride the cableway buckets across the chasm. My apron of stitched conveyor-belting would be permanently dark at the knees from kneeling on wet brick, and my hands would be stained the pale, chalky green of verdigris and the brown-black of crushed fig-sap. At my belt, alongside a curved pruning knife for the aggressive gourd-tendrils that try to choke the sluice-gates, I’d carry a short brass rod—not shiny, just worn smooth at the grip by my thumb.
+
+Most of my day would be spent moving slowly along the stone channels, clearing out fallen olive leaves, bird-lime, and the occasional dead starling before they can dam a culvert and starve a lower terrace. When the pale-faced monkeys come down the pipe-racks to drink from the shaded troughs, I wouldn't shoo them—just toss a bruised fig onto a warm steam-housing a few yards away so they’ll leave the bronze float-valves alone. We have an understanding, the monkeys and I. They keep the boring-beetles out of the cane-brakes; I don't throw pebbles when they steal the small, sweet squashes from the parapet planters.
+
+What I would love most about this middle-tier shadow is that it is a crossroads.
+
+Every hour or so, I’d crouch by one of the vertical standpipes that drops straight down through the grated floors into the blue dark, press my brass rod against the iron, and tap out a short, three-beat check. *Tink-tink-tonk.* Not an order, not even a question—just a pulse, the way you might rest a hand on a sleeping animal’s flank to feel it breathe. 
+
+Sometimes nothing comes back for a long moment, and I just watch the water slide past my ankles, tasting faintly of zinc and stone. Then, rising up through the soles of my feet and vibrating faintly in the bones of my jaw, comes the answer from three hundred feet below: a slow, deliberate *tonk-tink*. One of the deep-tenders, blind and gray as wet lime, trailing their oil-slicked fingers along the pipe-flange in the dark, letting the sunlit tiers know the pressure is holding.
+
+And when the afternoon mist finally rolls in over the upper ridges—turning the blinding arc-lamp sky to bruised silver and dropping a sudden, cool hush over the whole roaring valley—I would take off my wire hat and sit on the edge of the stone runnel with my legs dangling over the grate. 
+
+Above me, the mist would thicken around the arches, silencing the cicadas. Below me, the great flywheels would keep turning at the speed of a slow breath. I’d drink warm water from an earthenware flask, let the cloud-drip gather in my hair and run down the back of my neck, and wait for the hour to pass, entirely content to be one small, grease-smudged hinge in a mountain that does not hurry.

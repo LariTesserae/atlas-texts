@@ -1,0 +1,29 @@
+At first, the rotunda seems to hold nothing larger than a swift. The eye sweeps the eighty paces of curved brick, the mirror-black steps, the empty vault of mist, and finds no one there. 
+
+It takes a long moment to notice that two or three of the chalk-streaked humps along the uppermost step are breathing.
+
+They are roughly the size of small, hunched people, though their proportions are wrong for the surface world: long-torsoed, short-legged, with broad, paddle-flat feet and arms that hang a little too low, ending in wide, blunt-fingered hands. Their skin is the pale, matte grey of wet river-clay, slick in the creases and dusted across the shoulders, brows, and spines with brittle crusts of mineral salt where the mist settles and dries. When they sit motionless against the weeping brick, knees drawn to their chests and chins tucked into their collarbones, they are indistinguishable from the lime-scale ribs and slumped mortar around them.
+
+They have no external ears—only smooth, taut hollows behind their jaws where the bone sits close to the surface. In a room this loud, open ears would be useless, or worse. Instead, they take in the booming of the clay jars through their skeletons: the deep, wet percussion travels up through the soles of their feet, hums in the hollow of their chests, and vibrates in their teeth. They know the health of the chamber by the steadiness of that hum. If a jar cracks, or an amphibian dies in its niche, a tiny, rhythmic gap opens in the rolling wave of sound, and the dwellers feel it as a stutter in their ribs.
+
+Even more than the air, they read the floor. The standing ripples raised by the jars form a crisp, shifting geometry across the ankle-deep water—a living lattice of light and dark lines. A dweller standing on the perimeter can watch the entire eighty-pace basin without turning its head. A swift skimming the surface leaves a sharp, trailing V; a knot of eels spiraling near the grate blurs the rings; an unfamiliar footstep anywhere on the slate sends a ragged, foreign pulse through the pattern that reaches their ankles long before they look up.
+
+Their eyes are large, round, and milky-slate, set wide enough to catch the dim light falling from the oculus, though they seem to use them mostly for close work.
+
+And there is always close work to be done. The rotunda’s balance is not as effortless as it looks.
+
+Every few hours, one of them unfolds from the wall—moving with a slow, liquid economy that barely stirs the water—and wades down the concentric steps toward the center. They never hurry, and they never step heavily; their broad toes feel for the rounded edges of the slate and slide between the swirling, milky eels without crushing them. At the central grate, they kneel in the deepest sheet of water and set to work with their bare hands and a few small, worn tools of notched stone and swift-bone tucked into a belt of braided water-mold.
+
+They clear the matted clogs of drowned midges, shed feathers, and snapped fungal stems from the notched stone. When the old lashings on the bone-grate soften and rot in the perpetual damp, they strip them away and bind the bones anew using tough, cured eel-skin or twisted sinew salvaged from dead swifts. They use no knots that would snag the current, only tight, overlapping wraps that harden as the mineral water washes over them.
+
+When the grate is clear, they walk the perimeter, waist-deep in the cool mist that hugs the brick, tending the chorus. They reach into the recessed niches with long fingers, feeling the rims of the narrow-necked jars. If a jar has worked loose from its lime-scale bed, they scrape grey silt from the trap beneath the drain-grate and pack it wetly around the clay to seat it again, tuning the rattle out of its note. If an amphibian has grown too old and died inside its vessel, they draw the pale body out, lay it on the top step for the crustaceans to strip, and leave the empty jar to be claimed by a younger, smaller singer from the water’s edge.
+
+They eat what the room gives them, without fire and without clutter. They scoop the finger-long eels from the spiral with cupped hands, biting off the heads and swallowing them whole, or gather fistfuls of the pale, segmented crustaceans from the mortar crevices. Now and then they peel strips of the dark-olive liverwort from the brick, or chew the silver-white water mold that trails from the amphibians, which leaves their tongues stained pale and their breath smelling faintly of wet chalk.
+
+With the swifts, they keep an ancient, wordless truce. Whenever the sharp *tink-tink-tink* of echolocation drops from the oculus, any dweller out on the steps freezes mid-stride, dropping into a low, rounded crouch. They become a wet boulder in the black sheet, letting the sickle-winged birds plummet past their shoulders, snatch an eel inches from their knees, and bank upward into the dimness undisturbed.
+
+They do not speak—there is no point in competing with the drums—and they leave no mark on the empty volume of the air. When they rest, they do not build beds or hang slings; they simply wedge themselves into the curve of the outermost step, where the weeping water is no thicker than a film, and let the cool, steady mist settle over their salt-crusted backs.
+
+There are never more than two or three of them at a time—perhaps an elder, heavy with years of mineral buildup along its brow and knuckles, and a younger one, still smooth-skinned and quick-fingered. When one dies, the others lay it in the deepest water beside the grate until the eels and crustaceans have cleaned the bones, then use the ribs and long bones to mend the drain, letting the rest wash down into the dark beneath the floor.
+
+In this way, they remain as much a part of the room’s architecture as the thumb-pressed brick or the lime-scale tears: unseen until they move, silent inside the roar, keeping the water moving, the jars booming, and the old balance unbroken.

@@ -1,0 +1,23 @@
+A hairline cleft in young, unweathered basalt, low enough to the coastal shelf that the air inside tastes faintly of salt and wet peat. From the outside, there is nothing to see—only a ragged seam between two sharp-edged slabs of dark stone, half-choked by frost-rimed sedge. Drop through that seam, and the space opens into a single, cold, vaulted pocket no wider than a courtyard, sealed from the sky except for the thinnest grey thread of light far above, too weak to cast a shadow.
+
+Here, darkness is the native condition, and the stone itself has been buried alive.
+
+Every surface—the fractured walls, the uneven floor, the jagged ceiling—is sheathed in a thick, pale, rubbery mat of vegetation that knows nothing of sunlight. These are cold-fleshed, saprophytic and root-fed plants: swollen, tuberous stems the color of tallow; vast curtains of fibrous, hair-fine rootlets hanging in damp curtains; broad, waxy, leafless fronds that drink the mineral-heavy water weeping continuously down the raw rock. There is no soil, only layered generations of living plant-mass gripping the sharp stone, rotting slowly from beneath while new shoots push outward into the chill air.
+
+Built directly into this living mass is a city.
+
+It is an urbanism of small, deliberate hands and patient, non-metallic craft. Because the pocket is small and the builders are smaller still, the scale is compressed—an entire tiered settlement tucked into the hollow of one cold room. Yet it is sparse: districts of woven chambers, terraced cisterns, and suspended walkways hang in scattered clusters, separated by wide, empty stretches of dripping dark air and untouched root-curtain. You can cross from one cluster to another along a single braided-stem bridge, suspended over a void where nothing lives except the slow, vertical fall of condensation.
+
+Everything is made from what grows or what has been chipped from the young stone. There is no metal, no fired brick, no mortar. Chambers are hollowed from swollen, living gourds and woody tubers trained while green to fuse around frames of notched bone and split reed. Roofs are thatched with overlapping, water-shedding bryophyte mats, pinned in place with thorns. Along the upper tiers, narrow aqueducts—hollowed stems lashed together with sinew—catch the cold seepage from the rock walls and channel it down through the settlement in a series of stepped, woven basins, keeping the lower gardens wet without flooding the dwellings.
+
+The air is cold enough to stiffen fingers, heavy with the smell of wet bark, crushed moss, and cold mud. And it is almost entirely quiet.
+
+Yet the place is swarming.
+
+The fauna here is overwhelming—not in noise, for almost nothing has a voice, but in sheer, silent density. The living walls are in constant, minute motion. Millions of pale, eyeless amphipods graze the wet root-curtains. Velvet-skinned flatworms, long as a finger and cold as the stone, glide across the woven bridges, leaving faint tracks of mucus. In the dark cisterns, translucent, gill-plumed larvae hang in dense clouds, twitching only when a blind, flat-headed newt slides beneath them. Tiny silk-spinners string fine, wet snares between the architectural struts, while armored, slow-moving beetles—no larger than peppercorns—patrol the stem-joints, hunting mites in the dark.
+
+Every square inch of the plant-city is an active hunting ground. The builders do not try to seal the fauna out; there is nowhere to seal them from, and the walls themselves are food. Instead, the settlement is laid out around the traffic of these silent multitudes. Bridges are slung high to avoid the nightly tide of grazing slugs that sweeps the lower root-mats. Granaries—small, tightly lashed baskets of dried, bitter-rinded tubers—hang from single greased root-cables in the center of the empty spaces between districts, isolated in the cold air. At intervals along the walkways, crude, knapped-flint scrapers sit wedged into the weave, ready to shear away intrusive tendrils or scrape back the encroaching mats of bryophyte before they choke a doorway.
+
+Because the plants never stop growing and the water never stops weeping, nothing in this pocket holds its shape for long. A terrace woven last season is already tilting as the tuber beneath it swells with cold water; a bridge must be re-lashed every few weeks as the living anchor-roots thicken and pull taut. The city creaks—a faint, infrequent, woody sigh—as its foundations drink and shift.
+
+There is no day here, and no night, only the slow pulse of the cold seep and the ceaseless, quiet work of things eating, growing, spinning, and rebuilding in the wet dark.

@@ -1,0 +1,27 @@
+The air here is thin, cool, and entirely dry, carrying no scent of rain, loam, or decay—only the faint, metallic sharpness of cold flint and old dust. Above, the sky is a pale, washed-out slate, lit by a steady, unblinking afternoon light that throws crisp, short shadows and never seems to shift toward dusk.
+
+You are standing high—impossibly high—in an open, sprawling basin of stone that has reached the end of its history. Around you, the terrain drops away into smooth-lipped, bottomless chasms and rises into colossal, flat-topped mesas and needle-thin arches. Every ridge and cliff-face has been worn down over eons to its hardest, most stubborn core: banded gneiss, vitrified sandstone, and veins of black glass. There is no scree, no loose gravel, no crumbling ledges. Every grain that could fall fell ten thousand years ago. The rock is smooth as old bone, settled into its final, immovable geometry.
+
+And yet, the place is suffocatingly crowded.
+
+At first glance, the cliffs and narrow valleys look barren, textured only by the striations of the stone. Then your eyes adjust, and you realize there is almost no bare rock visible anywhere. Every horizontal ledge, every vertical face, every shadowed underside of an arch is packed, layered, and teeming with life.
+
+The fauna here is overwhelming in its sheer density, yet it makes no sound. No chirping, no buzzing, no scrape of claw on stone.
+
+Along the knife-edge ridges and packed shoulder-to-shoulder in the narrow stone bowls stand the tall, slender grazers—six-legged, velvet-hided creatures the color of dry ash, with long, curving necks and blind, faceted heads. There are thousands of them in a single valley, standing so close their flanks nearly brush, swaying in an imperceptible, synchronized rhythm though there is no wind to move them. Beneath their padded feet, the ground is carpeted with flat, papery, segmented things that cling to the stone like flaking paint, breathing in slow, rippling waves that travel across an entire cliff-face like a shiver.
+
+In the open, dizzying air between the mesas, hundreds of dry, bladder-bodied drifters hang suspended at different altitudes. They resemble crumpled parchment lanterns or translucent, ribbed ribbons, turning slowly on invisible static currents without ever flapping or colliding. Nearer the ground, the pores and hairline cracks of the rock are choked with pale, dry-shelled weavers that spin taut, papery membranes across the crevices—not to trap prey, for nothing here seems to hunt in haste, but to comb microscopic mineral dust from the still air.
+
+Nothing here drinks. There is no water—no mist, no dew, no dampness under the stones. Their bodies are dry as wasps’ nests, sustained by wax, silicate, and a slow, closed-loop exchange with the rock itself. Where vegetation appears, it is sparse and nearly indistinguishable from mineral: low, gnarled cushions of brittle, silver-gray scrub that look like tangled copper wire, and flat, tar-black crusts of lichen fused permanently to the shaded stone.
+
+Because the world is so quiet, you begin to notice how badly the space fits together.
+
+The density of life here is not merely crowded; it is folded. Watch one of the six-legged ridge-walkers step behind a spire of rock no wider than your wrist, and it does not emerge on the other side—instead, two smaller ones step out from a cleft ten paces higher up, moving in the exact same unhurried stride. Look closely at the cliff-clingers, and you realize they are overlapping in ways solid bodies should not: a flat, chitinous back passes cleanly through the shadow of another, and the shadow stays behind after the creature has crept an inch to the left. Distances behave stubbornly. A mesa across the chasm looks close enough to strike with a thrown stone, yet the drifters hanging halfway across are smaller than dust motes, and the light on its face has a different crispness, as if it belongs to a slightly different hour of the same endless afternoon.
+
+Scattered sparsely through this silent, impossible crush are the faint, deliberate marks of manual craft.
+
+A narrow footpath, worn glossy and concave by millennia of bare feet or soft hide soles, threads directly through the motionless herds of tall, ash-colored beasts. The creatures do not part for it; the path simply winds around their fixed, swaying legs. At intervals along the ridges sit small, dry-stone cairns, stacked without mortar from rounded, ancient cobbles. Wedged into their crevices are simple artifacts: a notched bone tally-stick, a flake of knapped flint, a ring of hammered, unpolished copper bound with dry sinew.
+
+Tucked beneath the overhang of a massive stone rib sits a solitary, beehive-shaped hut built of the same ancient, smooth rock. Its doorway is low and dark. Inside, there is no hearth, no ash, no water vessel—only a dry, swept floor, a stone scraper, and a bundle of silver-gray wire-scrub tied neatly with cord. If anyone lives here, they move at the same pace as the rock and the herds: silent, dry, and utterly absorbed into the permanence of the place.
+
+Nothing decays. Nothing washes away. The light does not fade, the air does not stir, and the millions of mute, dry, overlapping lives continue their slow, crowded vigil on the bones of an ancient mountain range that has forgotten how to change.

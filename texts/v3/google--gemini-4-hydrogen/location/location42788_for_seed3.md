@@ -1,0 +1,31 @@
+At this altitude, the world has not yet learned how to round its corners.
+
+The ground—where there is ground—consists of raw, freshly cleaved stone: jagged plates of pale quartzite and dark, glassy basalt jutting out of the mist at razor-clean angles. Nothing here has been softened by wind or smoothed by centuries of rain. Fractures look as though they were snapped open yesterday, their edges sharp enough to slice boot-leather. Between the sheer spires and stepped shelves, the chasms drop away into a dim, slate-colored void where the horizon refuses to settle.
+
+Light is scarce, arriving as a bruised, permanent twilight. No sun clears the upper haze; instead, a flat, cool luminance bleeds through from everywhere and nowhere at once, leaving the deep valleys in near-darkness and the high ridges washed in gray. The air is cold enough to stiffen wet cloth, and it is always damp. There are no downpours here, only a patient, clinging condensation that beads on every exposed surface—slicking the raw rock, dripping from iron rivets, and collecting in shallow, still basins where the stone sits flat.
+
+Across this vast, broken expanse, a city has been bolted into the cliffs.
+
+It is an immense, layered settlement, yet it feels strangely empty. Its districts do not crowd together; instead, clusters of heavy brick, riveted steel, and poured concrete cling to separate peaks and ledges, separated by miles of open air and raw stone. Long, spidery viaducts and electrified rail-trestles span the gaps between them, their massive stone pilings driven straight into the unweathered rock. Between the towers and the turbine halls, there is mostly space—wide, windswept shelves of barren slate where nothing has been built at all.
+
+The city is deeply industrial, but it moves with the patience of a glacier. Across the chasms, you can see the slow, rhythmic rise and fall of giant beam-engines and the ponderous turning of flywheels fifty feet across, each revolution taking half a minute. Overhead, heavy ore-buckets creep along greased steel cables, disappearing into the mist toward smelters whose chimneys vent thin, white plumes of steam. Everything is wired: thick bundles of insulated copper sag between porcelain insulators, humming with current, feeding banks of amber floodlights that barely push back the dimness.
+
+And yet, the longer you look at the viaducts, the less they make sense.
+
+At this elevation, the rules that hold space and sequence together have frayed thin. A freight train crosses a three-span bridge in the distance, and for several seconds its rear cars are visible entering the far tunnel while its locomotive is still chugging onto the near side. Shadows do not fall away from the amber floodlights; they pool toward the heaviest masses of iron or stone, stretching upward toward a boiler house or curling sideways into a cliff face. In the older, layered quarters—where tenements and workshops are stacked seven stories deep against the sheer rock—staircases sometimes have more steps going down than coming up, and workers hang heavy plumb-bobs from their eaves not to measure straightness, but to keep the walls from forgetting which way is down.
+
+Even the condensation obeys local whims. In certain narrow alleys between the turbine halls, beads of cold water detach from the iron grates and drift slowly upward, gathering in shimmering, trembling puddles on the undersides of catwalks.
+
+Life does not seem bothered by any of this. In fact, the place is thick with it.
+
+Wherever the factories leak warmth—around steam-exhaust vents, along the humming transformer housings, and in the damp, sheltered hollows beneath the viaducts—vegetation erupts in dense, dark-leaved tangles. Thick mats of velvet moss, six inches deep, blanket the unweathered stone, drinking the mist. Broad-leafed shade-ferns and tough, woody shrubs with waxy, near-black foliage spill out of rusted gutters and split the mortar of retaining walls. Pale lichen hangs in long, damp curtains from the underside of every girder, swaying in the draft.
+
+And the fauna is everywhere—a constant, teeming presence that treats the industrial city and the broken physics as nothing more than a convenient cliffside.
+
+Flocks of long-winged, pale-eyed cliff-swallows nest by the thousands inside the hollow steel trusses, pouring out in chattering clouds whenever a crane-boom swings near. Heavy-furred, six-legged mountain ungulates pick their way along the narrow ledges and steel catwalks, their split hooves gripping sheer vertical stone with casual indifference, grazing on the moss that grows on the warm boiler pipes. In the dimness around the floodlights, fist-sized moths with translucent wings swirl in thick, silent spirals, while chitinous, multi-jointed climbers skitter along the undersides of the electrified cables, pausing to press their bellies against the warm porcelain insulators.
+
+Because of the open chasms and the sheer, unweathered stone, the whole landscape is loud.
+
+There is no soft earth or dense forest canopy to swallow sound. The rhythmic, heavy *thunk-hiss* of a distant drop-forge carries for three miles across the empty air, bouncing off the quartzite faces until it overlaps with itself, arriving from three directions at once—and occasionally, just before the hammer actually falls. Beneath the machinery sits the constant, low-frequency thrumming of the power grid, vibrating through the soles of your boots and the soles of the cliffs. Over all of it rides the clamor of the animals: the sharp, metallic barking of the cliff-ungulates, the dry clicking of carapaces in the ironwork, and the ceaseless, echoing rush of thousands of wings beating in the cold, damp gloom.
+
+Nothing here hurries. The great wheels turn slowly, the mist condenses drop by patient drop, the moss creeps an inch a year across stone that has barely cooled from its making—and in the wide, dim spaces between the towers, the world quietly bends around itself, indifferent to whether anything makes sense.

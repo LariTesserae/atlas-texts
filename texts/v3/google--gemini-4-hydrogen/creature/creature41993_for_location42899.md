@@ -1,0 +1,37 @@
+Nothing on the plateau lives quickly, and almost nothing lives in the open. The wind is too steady, the air too thin, and the clatter of the turbines too relentless for anything that relies on wings or quietness. Yet the city is not as empty as it looks from the moss-swells. Life here has simply retreated into the seams—into the dampness beneath the turf, the warm flanks of the machinery, and the frayed, uncounted spaces where time and distance no longer quite add up.
+
+### What Lives in the Turf and the Copper
+
+Beneath the pale-sage lichen, in the dark, waterlogged peat that floors the gullies, live the **hum-worms**—blind, segmented things the thickness of a thumb and the color of steeped tea. They do not burrow so much as thread themselves through the ancient root-mat, drawn by the bass frequency of the buried dynamos. Where the vibration is strongest, they knot together in pale, pulsing tangles around the subterranean xylem-pipes, tapping into the bark with rasping mouths to drink the warm, sweet sap-runoff. 
+
+Above ground, the machinery hosts its own slow, heat-seeking fauna. Alongside the pale beetles on the condenser-pipes cling **copper-limpets**—flat, leathery creatures with shells the dull green of weathered verdigris. They move perhaps an inch a day, migrating toward the hiss of pressure-valves and the warmth of the boilers. Their undersides secrete a mild acid that keeps the riveted copper bright beneath them, leaving clean, shining tracks across the oxidized metal. When a steam-whistle shrieks, they clamp down hard against the pipes, riding out the vibration until the mist settles again.
+
+In the dew-cisterns and the flooded, moss-lined troughs of the older districts, **glass-newts** drift among the drowned leaves. They are nearly as clear as the water they inhabit, marked only by the faint, silver thread of their spines and the dark specks of their eyes. They feed on the drowned translucent moths that fall from the tram-trestle bulbs, and in turn, they are harvested by whatever still tends the mills.
+
+Even the sheared bolts that hang suspended in the air—humming softly as they sprout pale, fibrous roots into nothing—have their own small tenants. **Static-weavers**, spindly things made of brittle, pale chitin and dried vine-fiber, string nearly invisible webs between the hovering hardware and the ironwood beams. They do not catch flies; they crouch motionless at the center of their geometries, drinking the stray electrical charge that leaks from the frayed air around the bolts.
+
+### The Thinning
+
+The builders did not vanish all at once. They thinned out, and those who remain—perhaps a few dozen across the entire tableland, perhaps more if you count the ones who only exist in certain stretches of mist—have grown as strange and solitary as the districts they inhabit.
+
+They are tall, narrow-shouldered people, though it is hard to say how much of their height is bone and how much is the long, layered coats of oiled felt and braided-vine cloth they wear against the perpetual damp. Their skin has the pale, slightly waxy sheen of things that rarely see unfiltered sun, and their fingers are permanently stained dark at the tips from pine-tar, wet iron, and machine oil. 
+
+They do not speak—not because they lack the organs for it, but because the plateau eats voices. The wind-turbines and the sap-pumps fill the air with a constant, grinding roar that makes conversation useless beyond arm's length. Instead, they communicate through the city's own bones. A caretaker in the eastern textile-mill will press an ear to a copper xylem-pipe, listen to the distant, rhythmic *tink-tink-pause-tink* tapped out with a brass wrench three miles away, and tap a reply into the metal. When they meet on the walkways, they trade gestures with wide, gloved hands, or simply stand shoulder to shoulder, reading the tremor of the floorboards through the soles of their boots.
+
+They live inside the architectural errors. 
+
+A caretaker might keep a sleeping-cot and a small, smokeless peat-stove at the top of a four-story staircase tucked inside a two-story fern-trunk—a room that does not exist from the outside, and which stays warm even when frost rims the moss. They know which windows in the older refineries open onto the sunlit plateau, and which ones open instead onto the flooded cellar with its slowly turning gears. They use the latter for cold storage, lowering wire baskets of root-vegetables and smoked peat-eels down through the window-frames on braided-vine ropes, letting the dark, motionless water keep them fresh.
+
+They are fiercely methodical, bound to the rhythm of maintenance. They oil the copper looms, clear the lichen from the turbine-slats, and replace the sheared bolts when they drift too far from their presses. Yet they do not seem to age linearly. Because they spend so much time in the districts where the seams have slipped, a caretaker’s personal time is a tangled thing. One might step out of a boiler-house on a Tuesday, walk a mist-wrapped tram-trestle for what feels like twenty minutes, and arrive at the next district to find their own pocket-watch ticking backward and a letter they have not yet written waiting on the station bench. They do not find this distressing. They simply wind their watches when they stop, and leave the rest to the plateau.
+
+### The Ones in the Lag
+
+Beneath the notice of the beetles and the caretakers alike, something else inhabits the plateau—not flesh, and not quite machine, though it wears the shape of both.
+
+It lives in the three seconds between the shriek of the western refinery’s steam-whistle and the burst of white vapor from its stack. It lives in the rectangular shadows cast by the turbine-towers that linger on the bright moss after the clouds have already swallowed the sun.
+
+If you stand very still on a causeway when the mist is thin, you can sometimes catch them out of the corner of your eye: **the Lagging**. They look, at a glance, like the caretakers—tall, coat-wrapped figures moving along the elevated walkways or crouching beside a condensation valve with a wrench in hand. But their movements are slightly out of phase with the world around them. You hear the metallic *clack* of their boots on the ironwood three heartbeats before they take a step; you see their lanterns swing in the gloom long after they have already rounded the corner of a mill-tree.
+
+They do not acknowledge the living, nor do they interfere with the machinery. They seem to be echoes of work done centuries ago, caught in the plateau's frayed memory like burrs in wool—or perhaps they are the caretakers themselves, seen from a slight angle in time, doing the same quiet chores they have always done. 
+
+When a mist-bank rolls across the elevated trestles and stretches a twenty-minute walk into three hours of repeating pylons, the Lagging are the only company you will find. They pass you on the narrow walkways, heads bowed against the cool, pine-scented air, carrying brass oil-cans that leave no drips behind. If you step aside to let one pass, you feel no rush of displaced air, no warmth of a body—only the faint, dry hum of a sheared bolt sprouting roots into nothing, and the sudden, sharp scent of wet iron as the mist closes back in behind them.

@@ -1,0 +1,29 @@
+In the wide, slick expanses of bare rock between the humming islands, something walks the aisles.
+
+You hear it before you see it—not because it is loud, but because of the basin’s half-second slip. A crisp, wet *tock* of stone meeting stone echoes across the cathedral floor, sharp enough to cut through the 60-hertz drone. Half a second later, a tall, narrow figure steps out of the bruised twilight, its heel settling onto the exact spot of black basalt where the sound already happened.
+
+There are four of them in the basin. There have always been four, just as the rotors have never worn down and the puddles have never risen.
+
+At a glance, in the dim light between ozone flashes, they look almost human—tall, spare, and upright, moving with an unhurried, deliberate stride. When a blue-white arc snaps from a nearby fern-coil and briefly floods the floor in harsh strobe-light, the resemblance vanishes.
+
+They are made of the same unweathered stuff as the hollow itself: planes of freshly fractured black basalt and dark slate, meeting at acute, unforgiving angles. Nothing on them is rounded or softened by age. Thin veins of raw, verdigris-stained copper thread through their darker plates, and in the sheltered hollows behind their collarbones and knees, where condensation pools, small cushions of emerald liverwort cling like damp felt. They have no faces—only a vertical, razor-edged cleft where a brow might be, flanked by two narrow, copper-rimmed slits that neither blink nor turn. Above the cleft, the crown of the head splits into two flat tines of raw slate, like a tuning fork.
+
+What holds them together is not flesh, sinew, or bolt, but the same invisible tension that floats the spinning basalt columns. At every joint—neck, shoulder, elbow, wrist, hip, and knee—the stone segments end in clean, flat fractures, separated by a quarter-inch of empty, humming air. Inside those narrow gaps, a faint, steady violet corona glows like St. Elmo’s fire, keeping the limbs aligned without ever letting the stone touch stone. There is no friction in them, no wear, no need for grease or rest.
+
+They move through the generous, empty spaces between the islands with a weightless, frictionless precision, their feet never skidding on the wet rock. As they walk, their shadows behave no better than the ferns’ shadows: they trail behind only in the dim twilight, and the instant a blue arc flares from an island, the shadows snap *toward* the light, or peel away from the walkers’ ankles entirely to coil in the shallow, ink-black puddles like ribbons of dark oil.
+
+When one of the walkers approaches an island of coiled flora and spinning stone, the teeming life there does not scatter. The halo of pale gnats parts just enough to let the walker’s shoulder pass, a few dozen insects peeling off to orbit its floating wrist-gap in time with the 60-hertz hum. Beneath the dripping copper-ferns, the brass-jointed amphibians swell their throats and pop rapid bursts of static at its ankles, their relay-joints clicking faster. The dark-feathered birds tucked into the fern-coils tilt their needle beaks and sharpen their white-noise hiss.
+
+The walker stops at the edge of the electrified mist. It raises an arm—the forearm floating a fraction of an inch clear of the elbow—and slides its sharp-angled hand directly into the cold spray shearing off the spinning basalt.
+
+Blue-white arcs leap instantly from the wet stone to the walker’s copper-veined fingers, jumping across the violet gaps of its knuckles and lighting the wet slate of its arm from within. It does not flinch. It holds its hand in the mist for three exact beats of the basin’s hydraulic thuds, its split-slate crown vibrating silently in sympathy with the rotor. Its body acts as a wandering ground, a living resistor, drawing the charge down through its floating joints and out through the soles of its feet into the wet floor.
+
+Then it lowers its hand, turns, and steps back out into the bare expanse. Its footfall rings out across the hollow a half-second before its heel touches the stone.
+
+None of the four ever speak, or touch, or carry tools. There is nothing to build and nothing to repair. Yet their days—if time can be said to pass at all under the unchanging pewter sky—are filled with a quiet, absorbed attentiveness that looks unmistakably like labor.
+
+Sometimes one will kneel beside a shallow puddle, dip two slate fingers into the black water, and lift out a thick, viscous strand of detached shadow that clings to its hand like wet kelp before sliding back into the pool. Sometimes another will stand at the foot of the weeping cliff-wall, palm upturned, waiting for a heavy drop of condensation to fall from a high ledge; the drop-forge *thud* of its impact echoes across the basin, and a half-second later the bead of water lands softly in the walker’s palm, joining the thin film of moisture already slicking its skin.
+
+And sometimes, two of them will cross paths in the wide, empty center of the floor, equidistant from every island. They do not greet each other. They simply pause a few paces apart, facing slightly different directions, and tilt their split-slate heads. For a long moment, the 60-hertz hum between them thickens into a complex, shimmering interference pattern, as if they are comparing notes on the exact pitch of the hollow, the exact weight of the mist, the exact balance of the load.
+
+Then the hum settles. They step apart, their shadows detaching and snapping back to their heels, and resume their endless, unhurried circuit of the unbuilt floor—neither masters of the factory nor its prisoners, only the four quiet gauges by which the impossible noise measures itself.

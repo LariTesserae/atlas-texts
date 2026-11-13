@@ -1,0 +1,27 @@
+You think the town is empty because you are listening to the air, and the air is full of nothing but a brassy, deafening howl. You are looking at the sun-bright upper terraces, where the glare off the glassy flagstones blinds you, and nothing larger than a midge dares the open plazas.
+
+If you stop looking for motion and start looking for stillness, you begin to see them.
+
+Down in the wet, dark lower tiers, where the emerald cushion-moss swells against the cobbles, a ten-foot curtain of frost-skinned beard-lichen shifts against the breeze—except the wind has paused, and the curtain is stepping sideways into a sunken alley. 
+
+They wear the town’s own skin. Their heavy mantles are braided from the long, clattering strands of beard-lichen, lined on the inside with the felted, shed fleece of the pale hoofed beasts. When they stand motionless beneath a bridged walkway, they are indistinguishable from the hanging moss and the rime-ice. Only when they duck into a hollow doorway do you catch the silhouette: compact, barrel-chested, and heavy-shouldered, built low to the ground for thin air and steep, wind-scoured stone. Their exposed faces and forearms are the color of wet slate or weathered tallow, dense-skinned and seam-lined against the biting cold.
+
+Nobody speaks here. The organ-pipe roar of the basin would swallow a shout before it cleared your teeth. Their ears are small and tucked flat, kept sealed against the constant shriek with plugs of moss-wax and tallow. Instead, they listen through their bones. 
+
+Even in the bitter cold, they go barefoot—or shod only in open-toed bindings of woven root-fiber—so the broad, heavily callused pads of their feet stay pressed to the stone. The entire settlement is a single vibrating instrument, and they read it the way a blind spider reads a web. When the pale, thick-fleeced beast steps out onto the central plaza during a lull, its split hooves make a delicate *tock-tock* on the glassy channels; three alleys away and two stories down, the inhabitants feel the rhythm of its gait humming up through their heels.
+
+When two of them meet in the gloom of a root-bound passage, they do not gesture. One rests a flat palm against the other’s collarbone, or they take a smooth, water-rounded cobble from a belt-pouch and tap it against the dry-stacked wall between them. A sharp, dry *clack-clack* travels straight through the slate plates, bypassing the roaring air entirely, felt in the jaw and the soles of the feet.
+
+They are not merely squatting in a ruin. A dry-stacked town in a freeze-thaw basin should have collapsed into scree ten thousand winters ago. Every time a cloud shadow slides across the bowl, dropping the temperature until the porous stone fractures with a rifle-crack, it is the inhabitants who answer. 
+
+When the sun breaks back through and the dripping resumes, they emerge from the shadowed eaves. They carry no iron, no timber, no mortar—only water-rounded cobbles, thin wedges of slate, and patient hands. You see them crouching along the dished ramps and rib-thin archways, sliding a fresh slate shim into a frost-split seam, adjusting the weight of a wall until the geometry locks tight once more. They tend the thick, woody mats of ancient root-fiber that hold the town together, coaxing the pale, tough tendrils into new fractures so the living roots can bind the stone against the next freeze.
+
+And they tend the roar itself. 
+
+Those hollow, perforated upper towers are not accidents of wind-erosion; they are maintained. Watch a chimney-tower long enough during a lull, and you will see a lichen-cloaked figure climbing the slick, undulating stairs, reaching into a wind-bored aperture to shift a single cobble by the width of a thumb. They know the pitch of every alley. If a tower’s thrumming drops too low, or goes silent, the condensation inside it will freeze solid and split the masonry apart. The constant, deafening vibration is what shakes the rime-ice loose before it can choke the stone. To them, the roar is not noise; it is the sound of the town breathing, keeping itself clear of ice.
+
+They live off the narrow, hydraulic ecology of the wet seams. As the sun warms the south-facing walls, they creep along the drainage channels where the translucent alpine bladder-wort grows, plucking the turgid, ice-sheathed bladders just before they hiss and pop, biting into the flesh for the cold, mineral-sharp water inside. They gather the pale fleece snagged on the rough root-mats where the silent, heavy-shouldered beasts rub themselves. The beasts are neither wild nor tamed; they are simply fellow tenants who know where the lush moss grows and where the wind-shelters lie, wandering the deafening maze with the same unhurried certainty.
+
+When the thin sun finally drops behind the worn-down molars of the horizon, the entire basin locks into iron frost. The dripping stops. The bladder-worts shrink into pale knots. The roaring town becomes a brittle, shrieking cage.
+
+That is when you would find all of them, if you knew how to crawl through the low, root-choked apertures beneath the central plaza. Deep below the swept flagstones, insulated by ten feet of swollen cushion-moss and dry-stacked slate, the air is still and faintly damp. There, they crowd together in the pitch dark—dozens of them, pressed shoulder to shoulder with the warm, heavy-breathing fleeced beasts, sharing heat while the wind-pipes groan overhead, waiting for the first thin ray of morning to wake the water in the rock.

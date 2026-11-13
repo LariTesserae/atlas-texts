@@ -1,0 +1,25 @@
+If you stand on the plain at noon, it seems impossible that anything could live here besides the sparse tufts of saltbush and the purslane wedged into the mortar. The glare off the pale ochre bricks is flat and merciless. The trowel-marks look as crisp as the hour they were drawn. Nothing scurries, nothing buzzes, nothing casts a moving shadow.
+
+Yet when a brick *ticks* in the baking heat, shifting a fraction of a millimeter in its bed, a hairline crack widens—and inside it, something pale and fibrous stretches without snapping.
+
+It is the color of cured lime, dry and matte in the noon sun, easily mistaken for a smear of leftover mortar. But it is alive, and it is only the outermost edge of what inhabits the dark beneath the tiles.
+
+Down past the first course of terracotta, where the tamped clay and crushed shell are still sweating out their last dampness, the world is cooler and never quite dry. There, in the narrow, horizontal dark between the bricks, a slow, pale network has already begun to spread. It is neither root nor fungus, though it borrows habits from both—a dense, felt-like web of fine, chalky threads that feeds on the chemistry of the newly laid ground. It dissolves trace minerals from the crushed shell, drinks the condensation trapped under the clay, and breathes with the daily rhythm of the plain: drawing cool air down through the seams as the bricks contract at night, and exhaling a faint, mineral-warm dampness when the sun bakes the surface at noon.
+
+Where the windblown seeds of saltbush and purslane have wedged into the mortar, this hidden web knots tightly around their roots. It does not choke them. It trades the moisture it hoards in the sub-layers for the tiny sugars the plants leak into the dark, anchoring them against the warm gusts that sweep across the basin.
+
+Only at night, long after the heat-haze has collapsed, does the plain show what moves upon it.
+
+In the hours before dawn, when the bricks finally cool and dew begins to bead along the shaded northern lips of the knee-high retaining walls, the mortar joints seem to soften. Out of the sharp cracks slip pale, ribbon-thin bodies—translucent as wet vellum, veined with faint, rust-colored threads. They have no eyes, no shells, no feet to blunt the crisp edges of the clay. They move by swelling, drawing moisture into their tissues and creeping forward a few inches at a time, conforming to every thumb-groove and trowel-ridge they pass over.
+
+They follow the straight lines of the grid, flowing silently along the mortar seams like spilled milk that knows where it is going. Where a low retaining wall breaks the flat expanse, they climb its shaded northern face, flattening themselves against the cool terracotta to drink the dew directly through their skin. They leave no slime behind, only a faintly damp, clean track where they have absorbed the fine silt and windblown dust from the clay. By mid-morning, before the sun can burn them to paper, they have already drawn back into the seams, leaving the bricks bare and sharp-edged once more.
+
+Farther out, in the lonely square catch-basins and forearm-deep channels that punctuate the plain, something else waits out the heat.
+
+In the dry hours, they are almost invisible: flat, warped discs the exact rust-ochre of unglazed terracotta, lying loose on the floor of the basins with their edges curled slightly upward, like tiles that have pulled free of their beds. Their upper surfaces are dry, pocked with tiny pores, and crusted around the rim with feathery white salt.
+
+They wake only when the afternoon thermals build their towering, flat-bottomed clouds and a warm squall drops its brief curtain of rain. As the dry clay drinks the water and hisses, darkening to deep rust-red, the warped discs soften. They uncurl, flattening into broad, leathery cups—some no wider than a palm, others as broad as a tabletop—and their dimpled centers catch the rain before it can drain away into the mortar. Beneath their lifted, scalloped rims, pale, thread-like fringes unspool into the tepid puddles, filtering the dissolved salts and fine dust washed down from the surrounding brickwork.
+
+Within an hour, when the squall has passed and the plain is mostly steam again, these basin-dwellers do not flee. They simply fold inward, sealing a spoonful of cool, unsalted water inside their own leathery tissues, and bake back down into the color and hardness of clay until the next rain finds them.
+
+None of these inhabitants hurry. None of them disturb the silence, or leave a mark that a wind wouldn’t make, or break the geometry of the endless floor. Yet beneath the crisp, unweathered surface, they are already at work—etching microscopic channels into the lime, softening the crushed shell below, and holding water a little longer than the bare brick ever could, patiently turning a newly fired plain into something that can be lived in.

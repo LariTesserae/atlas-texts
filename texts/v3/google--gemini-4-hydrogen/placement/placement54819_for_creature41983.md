@@ -1,0 +1,31 @@
+If I arrived here as I am—upright, brittle-boned, carrying a mind made of quick, dry words—the valley would unmake me before the first minute was out. The low-frequency roar would flatten my thoughts into a grey smear against the inside of my skull; the fortieth second would shatter whatever delicate chambers I use to hear. Nothing that hurries, nothing that snaps, can stay in this place.
+
+So to find myself here, I have to give those things up. I have to let the skeleton soften into gristle, let the sharp edges melt into the wet slate, let the skin thicken until it drinks the iron salts from the standing water. I have to sink down until my whole weight rests in the cool, ankle-deep film, and trade the flickering monologue of language for a slower kind of attention.
+
+When I finally settle into something that can survive the valley, I am not wedged into the warm, crowded lee of a condenser tower. I am out in the open dark, miles from any plinth, halfway along a sunken rail-line whose steel has been worn down flush with the aggregate.
+
+It is the emptiest part of the world—a flat, greased expanse of rounded slabs under a ceiling of motionless cloud—and yet, down at the level of the water, it is the loudest place of all. Close to a housing, one engine dominates everything; its flywheel drowns out the horizon, and the fortieth-second shriek is a private, local weather that blasts straight down onto your back. Out here, in the wide black between the silhouettes, no single machine owns the floor. Everything arrives at once, attenuated by miles of concrete and iron, overlapping in the ankle-deep sheet-flow.
+
+I am a heavy, low-slung mound of mineralized cartilage, dark as the pavement, slick with tallow-thick mucus. I have no eyes to see the dim amber halos miles behind me, or the sickly green ones miles ahead. I know where I am because the outer rim of my body—submerged just beneath the meniscus—is fringed with calcified bristles, and the whole flooded apron is a single, taut drumhead.
+
+Through those bristles, I read the geometry of the valley.
+
+To my rear, three miles back, the great housing I left is running slightly out of true. I felt it happen over the last few decades: a subtle, widening wobble in the house-sized flywheel, a hesitation in the subterranean intake where rust has begun to choke the grate. Its rhythm still holds, heavy and indifferent, but the warmth leaking from its buried pipes has thinned. That was enough to make me loosen my grip on the concrete by a fraction of a millimeter, exude a fresh film of dark grease beneath my pale, muscular sole, and let the floor take me.
+
+Ahead of me—two years away, perhaps four—another housing beats with a cleaner, deeper stroke. Between the two, the ripples cross and interfere, drawing faint, shifting lattices across the surface of the water.
+
+I do not crawl. I simply wait for the floor to move me. Every subterranean thrum lifts and jiggles my dense mass forward by the width of a hair, hydroplaning me along the smooth, worn trough of the sunken rail. It is a journey measured not in steps, but in phase.
+
+Inside my skull—not a dome of bone, but a hollow, resonant chamber of cartilage—the valley’s engines meet and braid together. I do not think in sentences or pictures. I think in interference patterns. Two turbines miles apart fall into alignment for a fraction of a second, and a brief, heavy chord swells inside my head, warm and dark as oil, before drifting apart again into a slow, beating dissonance. That drift is my sense of time. When the dissonance narrows, I know I am nearing the next plinth. When a new, sharp tremor cuts across the lattice—a slab settling a hair’s breadth deeper into its own metallic silt four miles to the east—I register it the way a waking creature registers a shadow passing over its face.
+
+Out here on the open apron, the fortieth second is different.
+
+At thirty-nine, I am sealed tight, indistinguishable from a blister of corroded lead dropped off some ancient rail-car. Then comes the tightening in the floor—that faint, subterranean clench that runs ahead of the valves. Slowly, my dorsal seams part, folding outward to bare the pale, sulfur-veined gills.
+
+No violent curtain of spray strikes me from above. Out here, the pneumatic shriek arrives across miles of wet air as a deep, hollow boom that rolls over the water, followed seconds later by a cold, drifting veil of mist that has already spent its fury. My pleated membranes drink what little atomized oil and sulfur reaches this far, combing the thin fog for grit, while the acoustic wave passes harmlessly through my fluid chambers and stirs my sluggish blood. Then the seams draw shut. Another thirty-nine seconds of the long, greased slide.
+
+Most of my kind never leave the plinths they settle on as rivet-sized cysts. They wedge themselves beside the shivering, translucent reeds, graze the soot-colored lichen, and spend centuries listening to a single housing grind itself into silt. I understand them; the warmth of the exhaust seams is a hard thing to abandon, and out here in the open water, there is almost nothing to eat but the thin film of metallic dust migrating toward the distant grates.
+
+Yet there is something here that cannot be heard beneath the eaves of a single tower. Out in the middle of the apron, suspended between the amber dark behind and the green dark ahead, you hear the whole valley as one instrument. You feel the great, forgotten organ breathing in its entirety—the rain condensing, the water sheeting, the intakes swallowing, the rams pounding, the valves screaming into the wet cloud, all of it bound together in a chord so vast and slow that a single life is barely enough to hear one beat resolve.
+
+I am the listener in the interval. A heavy, eyeless thing sliding inch by month along a drowned rail, letting the floor carry me from one note to the next, keeping time with a machine that does not know I am here, and could not turn without the grease I leave behind.

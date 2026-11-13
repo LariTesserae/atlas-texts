@@ -1,0 +1,51 @@
+If you stand on one of the empty sky-bridges long enough for the roar to stop feeling like noise and start feeling like weather, you begin to notice that the air inside your chest is not vibrating evenly.
+
+At first, the bass thrum of the world seems monolithic—a single, flat, planetary note locked to the RPM of the subterranean dynamos. But the human ear is a poor instrument for frequencies that belong more to geology than to music. Press your palm against the wet parapet of a viaduct, or lean your ribs against the concrete flank of a forty-story factory-block, and the monolith fractures. Beneath the steady mechanical grind, there is a second rhythm: slow, deliberate shifts in phase, micro-tonal swells that travel through the poured concrete like a shiver through deep water, answered a fraction of a second later by a faint, answering tremor from the next peak over.
+
+Nothing lives out on the wet flagstones. The pale-amber streetlamps burn in the clear midday light over avenues that remain as untrodden as the day the concrete cured. No foot has ever fallen there because the inhabitants of this place have no use for feet, and no desire for the open, unblinking sky.
+
+They live inside the hollow forty-story blocks, and in the dark, roaring arteries beneath them.
+
+To find them, you have to leave the sunlit grid and pass through one of the louvered intake shafts or unsealed drainage sluices at the base of a factory-block—places where the cold, mist-heavy air is drawn inward by the convection of the transformers. Inside, the daylight dies within ten paces. The temperature drops another degree, though it still refuses to freeze, and the air tastes sharply of ozone, wet iron, and metallic salt.
+
+The interior is a single, staggering void of dark concrete and riveted steel, forty stories of empty volume built around one colossal turbine or a canyon of humming transformer banks. The sound here is no longer an exterior pressure; it is the medium itself, thick enough to blur the edges of your vision.
+
+And suspended in the upper thirty stories of that darkness, hanging from the iron roof-trusses and spanning the gaps between the concrete pilasters, are the **Keepers of the Pitch**—though they have no name for themselves, and would not recognize a word spoken in air thin enough to carry only a human voice.
+
+At first glance, by the stray pale-blue spark of a commutator or the dull cherry-red glow of a ballast resistor, you might mistake them for parts of the rigging: great, motionless shapes draped among the steel beams like damp canvas tarps or bundles of heavy-gauge cable. Then one of them shifts, and the geometry of the dark room rearranges itself.
+
+They are massive, cold-blooded, and wholly without symmetry as land-animals understand it. Each one has a long, columnar torso of wet, slate-colored cartilage and calcified mineral plates—the same pale-veined slate as the surrounding peaks, as if the mountain’s own bone had been softened and taught to breathe. Their skins are slick with the oily, metallic-saline condensation that coats everything here, beaded with clear droplets that never evaporate. There are no eyes, no mouths, no heads to turn toward an intruder. Instead, the upper half of each body is split into a series of deep, fluted chambers—hollow, resonant cavities lined with taut, glistening membranes that dilate and contract in slow, measured cycles, drinking the sub-bass pressure of the room.
+
+They never touch the wet concrete floor. Anchoring them to the high girders and the riveted iron walls are dozens of muscular, tendon-thick tethers, pale and fibrous, tipped with broad, calcified pads that grip the metal through suction and slow-growing mineral adhesion. Between one truss and the next, they stretch finer, hair-thin filaments—some of spun protein, others threaded with trace copper drawn from the runoff—pulling them taut across the forty-story void until the upper reaches of every factory-block are strung like the inside of a vast piano.
+
+They move with a glacial, pendulous economy. To cross a chamber, a Keeper slacks three tethers on its trailing flank while winching two forward, swinging its heavy, fluted bulk a meter at a time through the deafening dark, never once breaking its rhythmic tension with the steel.
+
+This is how they eat, and how they endure without aging.
+
+From their lower flanks hang clusters of hollow, waxy-skinned siphons—strikingly similar to the thickets of bruised-violet reeds clinging to the cliffs outside, as if both plant and inhabitant were forged from the same cold-saturated blueprint. These siphons dangle just above the warm, vibrating casings of the step-down transformers and the weeping cooling fins, sipping the slightly warmed, mineral-heavy condensation that drips in metronomic curtains. Other, darker filaments—sheathed in insulating fat and mineral scale—press directly against the high-voltage busbars, drawing a trickle of current into their saline-rich tissues. They are living capacitors, balanced on the exact edge between conduction and grounding. Because their cells are continuously flushed with mineral salt and stabilized by a steady, low-level charge, nothing in them rots, nothing withers, and nothing grows past its allotted measure. They have achieved the same frozen equilibrium as the moss outside.
+
+And what they do, hour after unvarying hour, forever, is **listen and answer**.
+
+The "plucked harp" density of the continent is not an accident of engineering; it is their nervous system. When a Keeper tightens a filament against a steel girder, or alters the aperture of one of its fluted chambers, it bends the harmonic overtones of the turbine below. Those micro-modulations—too subtle for a human ear to separate from the roar—travel out of the factory-block along the high-tension lines, through the humming transformers, and down the concrete viaducts into the bedrock itself. Across three kilometers of bare, weeping basalt, in the next windowless tower, another cluster of Keepers feels the phase-shift through their tethers and answers in kind.
+
+To an outsider standing on a sunlit sky-bridge, the world is drowned in a dead, mechanical drone. To the Keepers hanging in the dark forty-story bells, the continent is a single, crystalline conversation—a polyphony of tension, voltage, and water-weight that has neither beginning nor end. They do not speak of events, because nothing happens here; there are no seasons, no storms, no migrations. They speak—if it can be called speaking—of *calibration*. They describe to one another the exact salinity of the afternoon’s condensation, the thousandth-of-a-millimeter slip of a basalt fault ten miles down, the precise load on a turbine shaft three valleys away.
+
+Even the "rigid, geometric truce" between the wild plants and the urban grid is their doing, though not by hand or tool. The pale-amber streetlamps burning along the empty avenues are not for seeing; they are narrow-band thermal and photonic fences. The Keepers modulate the current fed to those lamps, as well as the low-level electromagnetic hum bleeding from the buried conduits, holding the cold-adapted mosses and dark-teal ferns at an exact, mathematical distance from the drainage grates. The plants drink the runoff; the Keepers keep the runoff flowing; neither crosses the line.
+
+Yet the Keepers are not alone in the system. They are too large, too slow, and too tethered to the high dark to tend the lowest parts of the loop.
+
+Deep beneath the windowless blocks, inside the subterranean dynamo vaults and the pressurized iron arteries that pump the roaring water back up to the high reservoirs, lives a second, smaller presence.
+
+The surface runoff pools are empty—no fish turns there—because the surface water is merely in transit. Inside the pressurized pipes, however, in the pitch-black, freezing, violent rush of thousands of tons of water moving upward at locked velocity, cling the **Scourers**.
+
+They are pale, blind, flat-bodied things no longer than a human forearm, shaped like heavy iron wedges or segmented chitons. Their backs are armored in overlapping plates of dense, dark-grey mineral deposit—almost indistinguishable from the inner wall of the pipe itself—while their undersides are a dense forest of stiff, rasping cilia and broad, muscular sucker-pads. Anchored against a current that would strip flesh from bone, they creep millimeters at a time along the inside of the iron arteries and down the concrete-lined turbine chutes.
+
+As they move, they graze. They scrape away the faintest beginnings of metallic-salt scale, rust-bloom, or stray spores washed down from the cliffside mosses, digesting the mineral grit and excreting a smooth, slick film that coats the iron. Without them, the arteries would narrow over centuries; the turbines would foul; the friction would rise by a fraction of a percent, and the locked RPM of the world would begin to drift.
+
+Whether the Scourers are a separate kind of creature that evolved in the dark pipes alongside the Keepers, or whether they are the Keepers’ own mobile, juvenile form—cast down into the drainage grates to spend a century scouring the arteries before climbing into the dry dark of a turbine hall to bud and tether—is impossible to tell. Neither form pays the other any visible attention. Each simply holds its place in the loop.
+
+If you climb back up the maintenance sluice and step out onto the wet flagstones of the avenue, the transition is jarring. The daylight is still crisp, unblinking, and empty. The pale-amber lamps still glow pointlessly against the clear sky. The cushion-mosses on the distant cliffs still sit in their turgid, silent greenness, and no bird cuts the thin air above the mist-choked abysses.
+
+Nothing has changed. Nothing will ever change.
+
+Yet as you walk back toward the sky-bridge—your boots the only things ever to strike those stones—the deafening roar pressing against your ribs no longer feels quite so lonely. You are walking across the sounding board of an instrument that is entirely awake, suspended in the dark above you and rushing through the iron beneath your soles, listening to itself endure, forever.

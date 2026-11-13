@@ -1,0 +1,25 @@
+I would not be at the windward rim, where the mountain updraft hits the outer wall and turns every needle into a white spike of rime. Nor would I be down in the lowest vaults yet, curled around a dying root, waiting for the weight of the city to press me flat into the warm rot.
+
+You would find me in the middle-dark, two stories below the sky-lid and one story above the peat—wedged into the fork of a load-bearing buttress just above the lip of a root-lined cistern.
+
+From the alley, you would not see me. My back has not moved since the last thaw, and the dark, velvety algae has had plenty of time to bridge the gap between my shoulder blades and the juniper timber behind me. Only my palms and knees are bare, worn to the same pale, rubbery smoothness as the healed graft-knuckles overhead. My eyes are half-veiled by their milky inner lids, blinking sideways only when a drop of condensation gathers too heavily on the brow and threatens to blur the slate-green gloom.
+
+Here, in the ribcage of the settlement, the air smells of wet bark, cold stone, and the faint, tannic sharpness of the cistern below. Light barely reaches this far; it filters down through three braided roofs of waxy needles and water-logged lichen until it is little more than a green stain on the wet wood. The wind that howls across the sharp slate crags outside arrives here as nothing more than a slow, steady *shhh* in the upper boughs, punctuated by the *tock-tock* of heavy drops falling from the root-bridges into the black water beneath my feet.
+
+I am one of the listeners—though there is no name for that, any more than there are names for any of us. Without voices, without ears that catch the air, we know the city the way a root knows the stone: through pressure, through stillness, through the long, patient ache of weight.
+
+Because every beam and wall and gutter is grafted into its neighbor, the whole notch is a single wooden frame. When a sleet squall sweeps over the upper eaves and coats the shingled juniper roofs in slush, I do not need to see the sky to know it. A minute later—or an hour, when the cold has slowed my pulse to three sluggish beats—I feel the leather-like creak travel down through the grafted knuckles into my spine. I feel the cistern walls bow inward by the width of a fingernail. I feel, three alleys over, the faint, hairline shudder of a root-cable prying deeper into the young slate below.
+
+Sometimes, while I am wedged here holding a brace against a sagging gallery, one of the pale, ash-colored birds hops down along the mossy sill. To the bird, I am only a slightly softer swelling of the wall, a ridge of lichen where the frost-beetles like to hide. I let my joints lock and my breath flatten until it steps onto my shoulder. Its toes are tiny and startlingly warm through the wet moss on my skin. It pecks twice at the crevice behind my jaw, swallows a beetle, and drops away into the alley without a sound.
+
+It is only when the wood complains in a different way—not the steady groan of sleet-load, but a sharp, tight *pull* where a graft is beginning to tear—that I unstick my back from the algae.
+
+I press the heel of my pale palm flat against the juniper rib beside me and strike it. *Thud.* I wait for four drops to fall into the cistern. *Thud.* I wait again. The tremor does not travel through the air; it runs down the living grain, through the vaulted ceilings and the root-lined walls, down into the dark, mildly warm peat-vaults below.
+
+While I wait for the others, I lower my head to the cistern’s edge and drink. The water is so cold it numbs my throat, dark and thick with the taste of the whole city above me: steeped juniper needles, drowned beetles, old moss, and the droppings of the ash-colored birds. It tastes like time standing still.
+
+Eventually, two others slide sideways out of the dim green alley, flat and narrow, their wet-slate skin glistening where it has brushed the weeping walls. We do not look into each other’s eyes. We press our flat brows together for a long moment—cold skin to cold skin—and then we take the strain of the timber together. I brace my calloused knees against the wall, lower my jaw, and use the hard, gouge-like plate of horn at my chin to shave away a strip of outer bark from the slipping beam, exposing the pale, resinous green beneath. I lick the wound with thick, bitter saliva to keep the rot out, press the raw wood against its neighbor with my broad palms, and go still.
+
+We will stay like that for a week, or a month, letting the rime crust our backs if the cold deepens, until the cambium knits and the smooth pale knuckle swells around our fingers.
+
+Only when the wood holds itself will I peel my palms away and crawl downward—past the cisterns, down through the cramped, dripping corridors where the ceiling is already sagging toward the floor, into the airless, steaming dark of the peat-vaults. There I will bury myself up to the chin in the warm, fermenting rot, let the pale springtails tickle my eyelids while my stiffened joints thaw, and graze quietly on the cellar-fungi until the next slow tremor in the timber calls me back up toward the cold.

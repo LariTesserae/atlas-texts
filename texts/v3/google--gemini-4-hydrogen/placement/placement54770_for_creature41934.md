@@ -1,0 +1,23 @@
+I think I would find myself just below the lip of the saddle, where the flat sea of cloud presses against the mountain like a ceiling.
+
+From above, that cloud-sea looks solid and featureless, a white floor sealing off the lower world. From underneath, it is a damp, luminous fog that never quite settles. It clings to the upper slopes where the last stunted mountain-ash trees twist their roots into cracks of pale gneiss, and where everything is soft with moss, wet bark, and pale green lichen. Down here, the air is heavy and sweet with rot and sap. You can hear water everywhere—not rushing, just dripping steadily from needle and leaf into thick beds of fern.
+
+This is where I would live: at the timberline, just beneath the ceiling, in the last pocket of the world that still knows warmth and decay.
+
+I don’t think I would be one of the great builders of the lower valleys, if there are valleys down there with towns and smelters and copper mines. I would be someone smaller and more solitary—a keeper of the margin, perhaps, or simply someone who prefers the quiet edge where the forest gives up. My hands would be stained with bark-tannin and damp soot from small, smoky fires of dead ash-wood. I would know the names of the fungi that fruit in the fog, and how to read the thickness of the cloud by the weight of the air on my skin.
+
+But I would know about the basin above. Everyone who lives long enough at the ceiling learns that if you climb past the last crooked trees, past the line where the moss thins to dry black crust and then to nothing at all, the mist breaks. You step out of the damp grey into a sky the color of a fresh bruise, and the light hits you like a flat palm.
+
+I wouldn’t belong up there. My eyes would ache in that unblinking glare; my lungs would burn in the thin, biting air. Even so, I think I would climb to the rim from time to time—not at noon, when the sun hammers the chalky stone and turns the ice-blades into a blinding wall of white and rust, and not to stay. I would climb in the late morning, carrying a waterskin and a heavy wool cloak, just to sit on the higher, ice-free scree along the southern or western ridge and look down into the hollow.
+
+From the rim, I would swear it was empty. I would watch the leaning labyrinth of ice-fins—bone-white, slate-grey, banded with iron—and hear them ticking and sighing to themselves as the sun pared them back. I would see the old marks of hands along the northern ridge: the three low windbreaks half-sunk in gravel, the milky quartz cairns, the dry bowl caked with bitter yellow salt.
+
+Perhaps I would wonder who stacked those stones, and why they bothered to bore three discs of slate and hang them on copper wire from a piece of wood carried up from my own wet forest below. Maybe they were ancestors of my people, who climbed up here in a drier century to harvest salt or to watch the sky. Maybe they were simply people like me, who couldn’t resist standing at the edge of a place where nothing grows, just to hear how clean the silence is.
+
+I wouldn’t touch their cairns or scrape the yellow salt from their bowl. I would only sit for an hour with my back against a warm-faced boulder, letting the sun agitate the wool of my cloak while the cold air waited underneath, listening to the faint, continuous *tick* of the ice and the occasional sharp clatter of frost-split stone.
+
+And I would never see the thing that lives there. If it slid through the ink-black shadows between the blades while I watched, my eyes—used to the soft greens and greys of the cloud-forest—would read it only as a darker seam in the ice, or a smear of rust on the slate.
+
+By mid-afternoon, when the sun dropped toward the ridge and the first cold tongues of mist began to spill up from my world over the lip of the saddle, I would know it was time to go. The air would turn sharp enough to ache in my teeth. As I stood to descend, I might pause for a second, hearing a faint, deadened *clink* carry across the scree—the slate discs on the northern ridge, weighted by the rising damp, knocking softly against their copper wire.
+
+I would take that sound as a warning that the basin was closing for the night. I would pull my cloak tight and step back down over the lip, letting the cloud-sea swallow me again, returning to the wet bark, the heavy air, and the living dark below—while up behind me, sealed in fresh rime, something else folded its limbs into the stone and went to sleep.

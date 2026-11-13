@@ -1,0 +1,21 @@
+I would not be inside the cleft. Every millimeter of that narrow nave is already spoken for—wedged tight between the iron housings, the pewter fans, and the patient thing folded behind the third dynamo. If I tried to squeeze past the riveted ladder, my frame would only snag the copper tendrils and scatter the neat magnetic ridges of pale dust.
+
+I would be just outside it, on the leeward skin of the gneiss spire, where the rock has been scoured into smooth, vertical flutes by a wind that never drops.
+
+Down below—four miles down, past the knife-edged shoulders of the neighboring peaks—the salt-flats have weather. Things there are wet and hurried; they breathe, they rot, they spend their lives outrunning the storms that sweep across the brine. I have no place down there, except on the rare, long spirals when I must drop toward the upper edge of the haze to skim a trace of moisture or mineral salt from the lower air. Mostly, I belong to the thin, colorless height above it all, where the sky is slate-gray and the cold keeps everything clean.
+
+If you looked for me from the salt-flats, you wouldn't see me. My frame is light and dry, built of hollow, reed-like struts and broad, taut membranes the color of weathered gneiss and tarnished tin. I have no wet feathers to ice over at this altitude, no heavy lungs to labor in air this thin. I am shaped for the shear of the spire: flat enough to press myself flush into a wind-flute when the gales turn sharp, and wide enough to ride the permanent updrafts that peel off the cliff-face without beating a wing.
+
+From the outside, the cleft is invisible—just one shadowed seam among a hundred others in a wall of vertical stone. Even the roar of the three dynamos doesn't carry far into the open sky; the razor-thin shriek of the wind at the spire's crest swallows it. To find the pocket, you have to know what to feel for in the rock itself.
+
+When I hook my dry, carbon-darkened claws into the stone on the leeward flank and fold my wings tight against my ribs, the sixty-cycle hum travels straight up through twenty feet of solid gneiss into my frame. Out here, it isn't a wall of noise that rattles the teeth. It is a low, steady tremor in the bedrock—a faint, unvarying warmth, like a pulse in a sleeping throat. Around the windward shoulder of the spire, I can hear the hidden intake drinking the gale in a continuous, silken hiss; here, on the sheltered side, there is only the stone vibrating quietly beneath me.
+
+Sometimes, I climb down along the flutes to the narrow, jagged slit high in the outer wall—the one that lets in the thin blade of pale daylight.
+
+I never cross the threshold. I simply hook onto the chalky stone lip and let the faintest leak of the room's air wash over me: a hair-thin ribbon of warmth carrying the sharp tang of ozone, crushed graphite, and old heated mineral oil. Looking through the gap, my eyes—lidded against the glare of the high sky—adjust to the dull, steady amber of the caged filament bulbs. I see the clouded faces of the brass gauges, the choked curtains of silica-reeds, and, wedged in the dimmest angle behind the third housing, the pale dust curving inward along magnetic lines toward a narrow, ridged spine kissed by needles of violet light.
+
+It never looks back at me. It has no eyes to turn toward the slit, and no reason to care about the empty sky outside. Yet I sometimes wonder if the fine, carbon-coated filaments along its throat register my shadow—a brief, almost imperceptible thinning of the daylight on the floor plates, a tiny shift in the pressure of the air before it settles back into the *clack-hiss-clack* of the valves.
+
+I don't stay at the lip for long. The inside of the mountain belongs to things that do not move, things that hold an equilibrium by never changing their place. My equilibrium is in the air around it.
+
+When the wind shifts along the leeward eddy, I unhook my claws, let myself fall backward off the sheer stone, and open my membranes to the four-mile drop. The cold air catches me, lifting me out over the knife-edged ridges and the distant, shimmering flats below. I wheel in the colorless sky, carrying the faint taste of heated oil and ozone in my dry seams until the wind scours it clean—returning, whenever the quiet below gets too loud, to the one spire that hums beneath my feet.

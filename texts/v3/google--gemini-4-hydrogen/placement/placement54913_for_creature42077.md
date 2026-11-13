@@ -1,0 +1,31 @@
+At first, there is only the urge to shut it out.
+
+The air here is too thick to be empty. It presses against the face like warm, wet wool, carrying the salt-and-yeast smell of a million crowded bodies and the ceaseless, layered racket of wings, clicks, and throat-sacs. If you stand upright in the middle of a gallery, you are nothing but a target for the din—a soft thing vibrating in sympathy with every cricket-leg and bat-cry. Nothing in the air belongs to you. Even the light is borrowed, leaking down in pale, dusty shafts that die before they reach your knees.
+
+So I would not stay in the open air. Everything in me would pull downward, toward the only thing in this place that is quiet.
+
+It takes a long time to learn that the silence here is not absence—it is density. You find it by dropping your weight, by tucking your knees and letting your center of gravity sink until your palms meet the worn, slightly tacky crust of the floor. You find it by pinching shut the narrow muscular slits behind your jaw, sealing off the frantic weather of the galleries, and pressing the heavy ridge of your chin against the nearest pillar.
+
+At once, the roar vanishes. In its place is a low, steady chord, carried straight up through the jawbone into the skull.
+
+That is where I would begin to know what I am: not by looking in a catch-basin—the water is too dark, and my eyes are too small and deep-set for vanity—but by listening to the difference between a wall that is sound and a wall that is tired.
+
+I would be one of the tenders, though not one of the oldest, not yet. My shoulders would only just be beginning to carry their first pale dust of lichen, a thin velvet catching in the oiled coarseness of my coat where the spore-haze settles. My horn-nails would still be thick and square-edged, worn smooth at the corners from decades of patting wet silt into old scars, with plenty of life left in them before they wear down to the quick.
+
+And where in the city would you find me? Not in the deepest fermentation vaults, where the heat is like a banked kiln and the smell of wet rot sits heavy on the tongue—though I would go down there often enough, carrying armfuls of sodden leaf-litter and fallen swiftlet chicks, chewing tough vine-stems into warm mash for the mycelium beds.
+
+I think I would spend most of my time higher up, in the dim, mist-threaded galleries just beneath the living roof, near the throat of one of the tall ventilation chimneys.
+
+It is a boundary place, and I have always been drawn to boundaries. Down in the lower courts, the city is wholly itself: warm, dark, self-contained, a single fused body of clay and root. Up by the chimney mouths, the mountain still remembers it is there. Cold cloud-mist seeps down the earthen flue, heavy and thin at once, meeting the rising column of the city’s breath. Where the two airs touch, the clay ribs sweat. Water beads along the undersides of broad fern fronds, swells until it trembles, and drops—*tick, tick, tick*—into the mineral-rimmed catch-basins worn into the terrace below.
+
+In that pale, gray-green shaft of light, you can almost see time moving. Not the frantic, stuttering time of the swiftlets that whip past my brow-ridge without touching a hair, or the tree frogs clinging cool and motionless to my flanks while they wait for blind crickets. Those lives are sparks. Up by the chimney, you feel the slower clock: the slight chill that arrives when the mountain clouds thicken outside, the gradual softening of the clay under centuries of condensation, the patient, creeping pressure of a strangler fig’s aerial root as it tightens around the rim of the flue.
+
+A chimney hums differently from a buttress. When I press my chest against its curved inner wall, I can feel the whole hollow throat of it breathing. A healthy chimney has a deep, open resonance, like a large jar. When the mist has been too heavy for too many seasons, and the upper lip begins to soften and slump, the note rises—just a fraction, a tight, papery tremor that runs down through my ribs and into my wrists.
+
+That is my work, then. Squatting by the dark catch-basin at the foot of the flue, scooping handfuls of fine gray silt from the bottom. Feeling the grit between my stubby fingers, kneading it with chewed wood-pulp and the thick, faintly sweet saliva welling from beneath my tongue until the mass is smooth and heavy and ready to set.
+
+There is no hurry in it. A swiftlet will raise a brood and lose it in the time it takes me to lay a single patch and smooth its edges so the rising drafts cannot catch a seam. I move along the curved wall with a slow, rolling gait, always keeping one shoulder or palm brushed against the clay, reading its grain by touch. When I need to speak to my kin—to tell an elder down in the warm alcoves that the northern flue is thinning, or to call a younger one up to feel the strange, tight vibration of a shifting fig root—I do not open my mouth. I ball the heel of my hand and strike the wall once, twice, slow and heavy. The thud drops straight through the floor, passing *under* the frog-song and the bat-clicks like a stone sinking through murky water, until it reaches the bones of whoever is listening below.
+
+Sometimes, when the patch is laid and curing, I simply sit with my back wedged into the curve of the terrace, hands resting palm-up on my knees to catch the slow drips from the ferns above. The crickets stream over my calloused feet without breaking stride. A gecko slips across my shoulder, light as a dry leaf. Behind my closed jaw-slits, the city’s roar becomes a distant, meaningless pressure, while through my spine, the great earthen shell hums—deep, dense, and steady, holding the warm breath of a million small lives against the cold mountain sky.
+
+I would not wish to be anything faster than that. It is enough to be the thing that listens to the weight of the roof, and answers it, one handful of clay at a time, until the day my joints stiffen and my kin bring wet silt to seal me into the wall—one last warm weight to keep the chimney humming true.

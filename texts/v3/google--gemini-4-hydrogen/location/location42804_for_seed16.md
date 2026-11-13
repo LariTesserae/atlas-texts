@@ -1,0 +1,25 @@
+Down below the fractured basalt crust, tucked inside a sunken blister of stone no wider than a courtyard and no taller than a church nave, sits a city that has never known a drop of rain.
+
+You reach it only through hairline fissures—narrow, crooked throats of rock where the surface heat condenses into a dry, metallic draft. Inside, the pocket is dim. Almost no daylight survives the crooked descent, arriving only as thin, dusty needles of amber that slice through the gloom and vanish against the soot-darkened walls. The rest of the light comes from the place itself: a dull, kiln-warm radiance seeping from deep mineral seams in the floor, and the faint, greasy glow of translucent resin-sacs swelling along the terraced ledges.
+
+The heat here is absolute, thick enough to press against the eyeballs. It is a dry, baking, furnace-corner heat that smells of scorched clay, sulfur-salt, and toasted wax. Nothing is damp; nothing could be. Water has no place in this chemistry. Even the air feels like powdered pumice, swirling in restless, shimmering columns up the center of the cavern.
+
+Most of the pocket’s volume is empty—a hollow, echoing bell of ancient stone. Across that central void, the air is vast and unobstructed, save for the rising ribbons of ash and spores. It is only along the curving perimeter, clinging to the ribs of the cavern like barnacles on the inside of a skull, that the city exists.
+
+It is an unmistakably urban place, layered and deliberate, though built entirely by hand with the simplest of tools. Tier upon tier of pumice-brick rooms, narrow stepped alleys, and cantilevered balconies wrap around the hollow shaft. Everything is mortared with baked ash and pinned together with fired ceramic pegs or lashed with brittle, spun-mineral cord. There is no iron here, no glass, no complex joinery—just thousands of hours of patient masonry, stacked and restacked until the settlement settled into the bedrock as if it had grown there. Centuries of dry grit-wind have rounded the corners of every doorway and polished the stone steps to a slick, matte sheen.
+
+And though there is not a single animal—no beetles in the mortar, no spiders in the corners, no birds, no footprints in the grey dust—the city is neither quiet nor dead.
+
+It is loud, and it is in constant, frantic motion.
+
+Because the cavern is sealed except for its ceiling cracks and deep thermal vents, it breathes in violent, rhythmic cycles. As the crust above shifts in temperature, superheated air surges up through the floor-vents and roars through the narrow, terraced streets. The builders set hollow clay jars into the walls for storage, hung mineral-fiber awnings over the walkways, and mounted simple, hand-carved stone vanes on the balcony corners. Now, with no hands left to tend them, the thermal updrafts turn the entire settlement into a deafening instrument. The clay jars hoot and resonate in low, overlapping chords; the awnings snap like wet canvas; the stone vanes spin furiously in their dry sockets, clacking and grinding against their pins.
+
+Woven through every crack in this screaming masonry is the vegetation—lush, thick, and entirely alien to water. 
+
+In this heat, life runs on molten wax, silica, and sulfur vapor. From the dry cisterns and windowless alleys spill dense tangles of tallow-reeds—segmented, bamboo-like stalks of blackened amber whose sap stays liquid only because the air is hot enough to melt lead. Broad, jagged fronds with translucent, glass-hard skins drape over the cantilevered railings in heavy curtains. Whenever a thermal gust slams through the alleys, thousands of these silica leaves clatter together like a hailstorm of porcelain knives.
+
+Along the lower ledges, where the stone radiates the fiercest heat, thick mats of copper-colored spore-felt carpet the stairs, drinking the sulfur haze straight from the air. High above, clinging to the shadowy upper balconies, swollen seed-pods hang from fibrous vines. As the afternoon heat peaks, the pods reach their limit and split open with sharp, echoing *cracks*—flinging clouds of dry, glittering spores out into the central void, where the rising draft catches them and whips them into a golden, swirling column.
+
+The pace of growth and shed is relentless. Leaves curl, crisp, and snap off in dry avalanches that rattle down the stepped streets like falling gravel, piling into drifts against the lower thresholds before the heat breaks them down into fine, fertile ash. New shoots push up through the mortar within hours, their waxy tips gleaming faintly in the dimness, swaying in the roaring wind.
+
+There is no one left to walk the alleys, no beast to shelter in the rooms, yet the pocket-city runs on—a tight, furious, self-contained engine of hot stone, screaming clay, and clattering glass-green leaves, endlessly turning its own dust over in the dark.

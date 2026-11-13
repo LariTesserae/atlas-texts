@@ -1,0 +1,27 @@
+From the outside, there is almost nothing to mark it: only a hairline seam in a low shelf of newly fractured basalt, just below the cold-water tide line, where the rock is still black and glassy from whatever split it open. No barnacles have had time to crust the lip. The edges of the fissure are sharp enough to slice a glove.
+
+Slip through—or peer past the narrow throat—and the rock opens into a single, contained blister no wider than a modest room, yet bright as a clear afternoon.
+
+The light is the first shock. There is no murky blue-green gloom here, no silt-clouded twilight. The water—cool, crisp, and filling the pocket to its jagged ceiling—is illuminated with an even, daylight clarity. It radiates from the surfaces of the city itself: pale, ceramic-white plates and matte-grey alloy ribs that emit a steady, shadow-casting brilliance without visible bulbs or filaments. Every razor-sharp corner, every microscopic ripple in the current, is etched in high definition.
+
+And it is *packed*. There is scarcely an arm’s length of open water anywhere in the chamber.
+
+An entire urban grid has been extruded, stacked, and wedged into this hidden cavity. It is a settlement built without citizens, arranged in dizzying, layered tiers that cling to the raw obsidian walls and bridge the void between them. Narrow avenues—really just pressurized sluice-alleys—wind between dense blocks of terraced towers, stepped manifolds, and cantilevered galleries. Everything is built to a compressed, intricate scale, as if a sprawling industrial port were folded down to fit inside a cistern. Walkways barely wide enough for a boot cross over deeper, glowing trenches; tiny, sharp-edged plazas open around spinning hexagonal basins before immediately narrowing again into tangles of conduits and louvered vents.
+
+Nothing here is worn smooth. The architecture is as young as the rock that holds it. Not a single bevel is rounded by current; not a single seam is softened by rust or mineral scale. The surfaces look freshly precipitated, crisp as cut paper.
+
+The sound hits your ribs before your ears can sort it out. Water carries vibration without mercy, and in a rigid, fully occupied pocket like this, the noise has nowhere to go. It is loud—a dense, physical roar made of overlapping mechanical rhythms. There is the high, taut whine of cavitation fields, the rapid-fire *clack-clack-clack* of thousands of micro-valves cycling in sequence, and a deep, resonant thrumming that vibrates straight through the jawbone. Every few seconds, a low harmonic groan rolls through the water as the surrounding basalt settles a fraction of a millimeter under the shifting internal pressure.
+
+Because the physics inside the pocket does not quite obey the world outside.
+
+In the narrow alleys between towers, currents run in stark, impossible stripes. A column of water shoots straight upward from a flat plaza floor with no pipe to guide it, held in a tight, shimmering sheath of surface tension that feels like solid glass if you brush against it. Right beside it, separated by an invisible boundary, the water hangs dead still and heavy. Tiny grains of freshly chipped basalt dust—the only sediment in the chamber—do not sink to the bottom; instead, they are caught in slow, horizontal orbits around the upper spires, sorted by weight into thin, glittering rings.
+
+At the center of the densest cluster, the geometry begins to cheat the eye. A central pillar no thicker than a person’s waist holds recessed balconies, miniature aqueducts, and spinning turbine-rings that seem to recede further inward than the pillar’s diameter should allow. Look at it straight on, and it is a narrow structural column; tilt your head, and you are looking down a bright, receding street of lit windows and churning sluice-gates that vanishes into a vanishing point that cannot physically fit inside the stone.
+
+The place is fiercely alive with motion, yet completely sterile of animals. No crabs scuttle in the corners. No blind shrimp flick through the bright currents. No fish hang in the lee of the towers. There is nothing here with eyes, lungs, or a pulse.
+
+Only the barest smudge of plant life has managed to gain a foothold. In the coolest, quietest angles where the artificial currents eddy against the raw basalt ceiling, sparse tufts of pale, translucent moss and hair-thin, silica-stiffened algae cling to the stone. They tremble violently whenever a nearby vent cycles open, looking less like an ecosystem and more like dust caught on the grille of a running engine.
+
+And the engine never stops. The pocket is in constant, disciplined flux. On a strict, unreadable cadence, entire blocks of the submerged city shift their light from crisp white to a sharper, colder noon-glare, redirecting heat along the alloy ribs. Sluice-gates slam shut in a cascading wave down one wall, forcing the water to reverse its flow through the central plazas with a sudden, deafening *thump* that rocks the sparse algae flat against the rock. Thin mineral films precipitate onto the outer cooling fins, flake off in shimmering silver sheets, and are instantly drawn into the lower intakes to be dissolved and fed back into the cycle.
+
+It is a hidden, flooded metropolis the size of a cellar, freshly born in raw stone, running at full tilt in the cold dark beneath the world—loud, sunlit, and entirely occupied by its own restless geometry.

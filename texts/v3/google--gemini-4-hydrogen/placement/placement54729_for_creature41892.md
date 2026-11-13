@@ -1,0 +1,27 @@
+I would not be down on the basalt floor, wedged among the knappers where the obsidian flakes drift like dark leaves, nor up in the highest lantern-tiers where the spore-clouds brush the roofs. I would be in the middle water—suspended where the great braided kelp-cables cross above a warm fissure, in the quiet, shifting geometry between stone and drift.
+
+My home is not a chamber of stacked slate, though I have helped lever those plates into place, leaning silently with five others until the water took the weight. Mine is a hanging work-platform of netted reed-cord, tucked beneath an inverted dome of oiled bladder-skin. Directly beneath me, a seam in the newborn rock still weeps a thin, steady thread of warm volcanic gas. It rises in slow, pearly *bloops* through the bath-warm sea and collects under my roof, forming a shimmering, humid pocket of air.
+
+This is where I spend most of my hours: hovering upright at the meniscus. My hips and lower ribs stay submerged so the feathery frills beneath my ribcage can breathe the sluggish, silica-heavy water; my shoulders, throat, and face rise cleanly into the trapped gas above. It is a strange, doubled way to exist. Below the waterline, my skin is matte and cool-feeling against the dim current, the pale bone-mottling along my inner arms blurred by the mineral haze. Above it, my shoulders are dry and warm, smelling faintly of cured sinew, wet kelp, and the metallic tang of fresh stone.
+
+If you asked what I am to the valley, I would not have a quick name for it. I tend the tension.
+
+A city hung from living bladders and anchored to unweathered glass is never truly finished; it is only balanced for the afternoon. Every day, the warm water precipitates a little more pale mineral crust onto the reed-pods and the braided bridges, making them heavier by the weight of a fingernail. At the same time, the tethered gas-bladders swell in a warm current or grow sluggish in a cool one, pulling upward with a different strength. If no one listens to the cables, a neighborhood will slowly tilt, or a sinew lashing will saw itself in two against a razor-sharp lip of basalt.
+
+So I listen.
+
+I have the long-waisted, supple build of my kind, and the thick, horn-like pads on my knuckles and fingertips that let me handle raw kelp-fiber and volcanic glass without opening a vein. In the morning—if you can call the slight brightening of the bruised-amber ceiling morning—I compress the gas-sacs behind my ribs and sink silently below the rim of my platform. No kick, no ripple. Just a slow settling through oil.
+
+I swim with my hands, sliding a calloused palm along the main span-cable that crosses the valley. When I pluck it—just once, with the side of a knuckled finger—the tremor doesn’t make a sound you could hear with ears. It travels through the water as a low, heavy pulse that I feel against my sternum. Too slack. Somewhere across the gorge, a slate anchor has shifted a fraction of an inch on the fresh rock, or a cluster of bladders has sprung a pinhole leak.
+
+I follow the cable out into the gloom, my large pale-amber eyes wide in the permanent dusk. Around me, the leathery fronds hang motionless as curtains, the color of bruised plums. A pale grazer drifts past my elbow—calf-sized, milky-skinned, its internal ribs glowing faintly through its hide—and I pause, holding onto a braided stem with one hand, letting it pass. Its stony tongue rasps softly against a mineral-crusted frond, cleaning it for me. We do not hurry each other.
+
+Out near the ridge, where the cable meets a dry-stacked retaining wall, I find the trouble: a newly formed lobe of glassy obsidian has cooled and fractured overnight with one of those muted, sharp *ticks* that echo down the valley, and a sliver of it is pressing against the lower lashing.
+
+I slide my third eyelids sideways—translucent and heavy—to guard my eyes against the heat-shimmer rising from the seam, and I go to work. From the netted pouch at my waist, I draw a wedge of waterlogged root-wood and a short, cold-hammered copper chisel. With patient, small movements, I lever the cable free of the glass edge, wrap the chafed fiber in a fresh strip of soaked sinew, and bind it tight. As the sinew dries in the hours to come—or cures under a dome—it will shrink, gripping the cable like a fist.
+
+Before I leave the ridge, I brace my feet against the raw slate and press my chest close to the rock, sending a long, deep hum vibrating out through the water—three low notes, spaced wide apart. Far down on the lower terraces, a stone-knapper pauses between blows; up in the canopy, a kin-group tending their bladder-orchards feels the tremor in their floorboards. *The line is sound. The weight is even.*
+
+By the time I drift back to my own pod, the faint pearlescent crust of silica is a little thicker in the creases behind my shoulders and along the ridges of my spine. I know that if I live long enough, I will grow as pale and mineral-heavy as the elders who sit on the lower shelves, looking as though the valley carved them out of its own cooling foam.
+
+I don’t mind the thought. Up under my dome, I rise back through the meniscus, shaking the warm water from my hairless crown. I take a bone needle and a length of stripped fiber in my dry, horn-padded fingers, and while the valley settles around me with the slow *bloop* of rising gas and the faint *creak* of a shifting bridge, I mend a torn net—one small, patient stitch in a city that is still rising out of the stone.

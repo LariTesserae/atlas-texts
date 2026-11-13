@@ -1,0 +1,47 @@
+They do not call it darkness, because darkness implies an absence, and nothing here is absent. To those who live in the basin, the air is simply *thick*—heavy with wet heat, mineral grit, and sound so dense you can lean against it.
+
+You would not hear them coming, even if the valley went quiet for a breath. They move the way water finds a crack: low, unhurried until the moment they must be fast, and always in contact with the stone.
+
+If you caught one in the brief, greenish smear of a rotting stalk, you would see a body built less like a runner’s and more like a climber’s—compact, broad-shouldered, scarred across the shins and forearms with old, pale welts where the basalt bit through. Their skin is the color of wet ash, slick with a bitter, pungent oil pressed from tuber-roots; without it, the dampness softens the skin until it tears like wet paper, and the tiny, blind mites that ride the warm updrafts burrow into every crease. Their hair, where they keep any at all, is cropped close to the skull or plastered down with mineral mud so nothing flying can tangle in it.
+
+Their eyes are large, pale-ringed, and mostly useless for distance. They keep them half-shut against the drifting soot and the sudden, stinging spray of bursting seed-pods, opening them wide only when they crouch beside an amber vapor-seam to knap a fresh blade or inspect a wound. What they actually *see* with is the skin of their jawlines, the soles of their wrapped feet, and the small, cupped bones of their ears—ears tuned not to hear a sound, because everything is sound, but to hear the *shape* of the noise changing.
+
+A human voice is a liability here. It carries wrong—too soft to cut through the throat-sac booms, yet strange enough in its cadence to make a canopy-stalker pause and tilt its sensory pits downward. So they rarely speak. In the dark, a group of four or five moves linked by touch: a knuckle tapped against the back of a calf means *step up, fresh slate*; two fingers pressed hard into the hollow of a shoulder means *vent flaring, drop flat*. When they must separate by more than an arm’s reach—to flank a roosting thicket or search a scree-slope for dropped pods—they use the notched seed-pod rattles. A dry *skritch-tick-tick* carried through the roar sounds like nothing more than another chitinous leg scraping a frond, yet to a trained ear, the rhythm is as clear as a shouted name.
+
+***
+
+They live in the margins of a hundred other hungers, and they know every one of them by its weight on the air.
+
+Down in the razor-edged scree, where the moisture pools in shallow basalt bowls, live the **drum-bellies**—squat, broad-footed amphibians the size of millstones, with hides like wet, pebbled slate. They wedge themselves into the fault-cracks with hooked foreclaws so the rockslides cannot dislodge them, and every few minutes they inflate their pale, copper-veined throat-sacs until the skin stretches tight as a blister. The boom they release is not a call; it is a pulse. It shakes the loose grit off the ledges and rolls up the valley walls, and by the echo that returns, the drum-belly knows if the slope above it is about to give way. The people listen to them the way sailors listen to buoys. When a drum-belly’s rhythm stutters and drops a half-tone, the bedrock is shifting; you have perhaps six heartbeats to get off the scree before the slate slides.
+
+Above, clinging in shivering, overlapping shingles to the undersides of the giant fronds, are the **tin-wings**. They are neither bat nor beetle, though they have the leathery stretch of the one and the jointed, clicking palps of the other. They are blind, pale-bellied things that hunt the smaller gnats and sap-flies swarming around the hour-long blossoms. To fly, they snap their mandibles together fifty times a second, filling the upper canopy with that continuous, metallic hail. When a swarm of them panics—spooked by a sudden plume of geothermal steam—they drop from the leaves like a torn curtain, hundreds of sharp, panicked bodies colliding in the dark.
+
+This is when the people hunt. They do not chase; chasing in a jungle of razor-rock and fast-rotting vines is a way to break an ankle and feed the pale scavengers. Instead, they wait at the edges of the warm vents with weighted lengths of braided plant-fiber—a grooved basalt pebble tied to each end—and hurl them upward into the screaming cloud. A tangled tin-wing drops heavy and thrashing. A bone gaff hooks it before it can crawl into a fissure, a copper-tipped skewer finishes it between the thorax plates, and within seconds the hunter is already moving, stuffing the warm, still-twitching catch into a fiber sling before the smell of cracked carapace draws something larger.
+
+Because there *is* always something larger.
+
+In the middle tier, where the black-barked trunks twist together like braided muscle, move the **hinge-jaws**. Long-limbed, hairless, and mottled in bruised violet and soot-black, they bridge the gaps between trees with six-foot strides, their pale, eyeless heads swinging from side to side like pendulums. Along their snouts run rows of deep, wet pits that read heat the way an eye reads light. To a hinge-jaw, the valley is a map of cold basalt, warm rotting pulp, and the bright, burning silhouettes of living blood.
+
+Against them, the people use the valley’s own heat. They smear themselves with cold mineral clay from the deepest hollows, masking their warmth until they look, to a heat-pit, like just another wet rock. And if a hinge-jaw corners them anyway—if the clay has washed off in the sweat-drip and the long, clicking stride is closing in—that is when a hunter finally risks the resin-daubed torch.
+
+You do not strike fire here to see. You strike it to *blind*. A sudden, spitting flare of resin in a world that has never known noon is a physical blow; the hinge-jaw recoils from the blinding wave of heat, the tin-wings shriek and scatter in madness, and in the three seconds of chaos that follow, the hunter vanishes backward into the dark, already dropping the torch into a mineral puddle before the roar can turn back toward the light.
+
+***
+
+Because nothing in the valley lasts—not the vines that flower and melt into slime in a single week, not the slopes that crack and slide, not even the trails that are swallowed by fast-creeping roots overnight—the people own almost nothing they cannot carry on a belt.
+
+They do not have villages. They have **roosts** and **caches**.
+
+A cache is nothing more than a dryish notch beneath an overhang, plugged with a wedged stone to keep the pale scavengers out. Inside might sit a spare bundle of braided line, a fist-sized lump of raw, hammered copper pried from a fault-seam, and a handful of obsidian blanks knocked from a glassy vein. They do not bother carrying finished knives across the whole basin; stone is everywhere, and a sharp edge can be struck in four blows whenever you pause to catch your breath. You flake what you need, slice the tough tendon from a drum-belly’s leg or scrape the bitter pith from a vine-pod, and leave the crescent-shaped chips behind when the ground rumbles and tells you to move.
+
+When they must sleep, they do not lie on the ground. The ground belongs to the segmented, pale things that pour out of the scree at the scent of stillness. Instead, they climb into the high, tough crotches of the black-barked trunks—above the rockslides, below the densest tin-wing roosts—and sling narrow hammocks of knotted fiber. They wrap themselves in broad, waxy fronds to shed the slow, warm drip from the canopy above, and sleep in shallow, watchful bouts of two hours at a time. One person always stays awake, sitting upright with one bare heel pressed against the trunk and a hand resting lightly on the knotted cord of their companions' hammocks.
+
+Through the wood, they feel the valley’s pulse: the distant *tock* of splitting slate, the low shudder of a vent clearing its throat, the sudden, frantic vibration of a vine-cluster shooting upward toward a pocket of warm air.
+
+To an outsider, it would seem a desperate, hunted existence—a life spent crouching in the dark, listening for teeth, eating pulp and grubs and bitter marrow before it rots in your hands.
+
+But watch them when a giant vine-cluster hits its hour-long bloom.
+
+Word—or rather, *scent*, a heavy, musky wave of sulfur and sweet rot—rolls through the basin, and from three different ridges, small knots of the ash-skinned people converge through the murk. They move with an eerie, effortless grace through the deafening surf of noise. They know which rocks will hold their weight and which will slide; they know the exact second a tin-wing cloud will veer left around a steam-plume; they tap their rattles in a low, steady counterpoint to the drum-bellies, weaving themselves right into the valley’s roar until the valley itself cannot tell them apart from its own teeth and roots.
+
+They harvest the heavy pods before they fall, crack the mineral-rich nuts against their chitin shin-guards, and drink the warm, sweet sap straight from the cut stem. For ten minutes, in the bruised, sweating dark, there is no fear at all—only the furious, shared abundance of a place that grows too fast to mourn anything it loses. Then the flowers blacken, the first pale scavengers begin to boil up from the scree, and without a word, the people slip back into the shadows between the trunks, leaving only a few fresh flakes of obsidian cooling on the wet stone.

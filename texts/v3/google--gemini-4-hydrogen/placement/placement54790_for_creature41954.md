@@ -1,0 +1,33 @@
+I wouldn’t be at the rim, and I wouldn’t yet be at the cylinder. I would find myself somewhere on the middle shelves—high enough that the cliff-edge is still visible through the black-green gaps in the tree-ferns, low enough that the runoff has already gathered weight and mineral before it reaches my pool.
+
+I think I would be one of the tenders, in the long, thickening middle of a life.
+
+Not young anymore. The young ones still have skin like wet slate all the way across their backs, unsealed and slick, and they burn through their stillness too fast—chasing iridescent beetles through the root-mats, or hauling themselves up the bare, sun-hammered basalt to the lip of the basin just to let the outer sky’s thin, freezing wind slice across their snouts. I remember the shock of that cold, though it feels like something that happened to a lighter creature in a different valley. My shoulders are too broad now for climbing, and the lime has been settling along my dorsal ridges for decades, layer by microscopic layer, until my back is a terraced shelf of pale, porous sinter striped with iron-orange and mossy green.
+
+A single miniature tree-fern has taken root in the hollow behind my left shoulder. I don’t know when its spore landed there, only that its dark, waxy fronds now catch the noon glare for me, dripping warm condensation down the fluted channels of my neck. When I shift in my sleep, the coppery moss wedged between my plates tears slightly and then knits back together over the next week. And the beetles live there—dozens of them, armored and metallic, clicking in slow waves as they graze the algae along my spine. Wherever I lumber, I carry a small piece of the canopy’s static on my back.
+
+In a place this loud, you learn to stop listening with the air.
+
+Above me, the valley is a constant roar: the *pat-pat-tock* of heavy drops drumming on broad succulent leaves, the sharp *hiss* where water hits sun-baked stone, the shrill chatter of featherless gliders shaking warm showers loose from the upper fronds. If you try to track all of it, your mind skitters like a beetle on hot basalt. So you let the airborne noise become weather—just another kind of heat pressing against your hide—and you drop your attention down into the mud.
+
+My mornings, if you can call them that in a basin where the sun’s arc barely changes the temperature, begin with the water. I haul myself up from the travertine pan on four splayed, pillar-thick limbs, my webbed feet spreading wide so the spongy root-mats hold my weight. The pleated folds tucked beneath my shoulders draw in the thick steam with a slow, wet *shhh*—once, then a long pause, then again. There is no hurry. Hurrying in this air is how you cook from the inside out.
+
+I follow the spillways along the terrace. This is what we do: we keep the mountain from choking on its own generosity. Where a dead fern-frond has collapsed across a narrow sinter lip, damming the warm seepage until it stagnates, I hook my blunt, shovel-like claws under the waterlogged stem and drag it clear. Where a crust of pale lime has grown too thick and turned a sheet of runoff aside, I nudge it loose with my shoulder until the water remembers its path. It is small, patient work. A terrace might take three days to cross if the sun is fierce and I need to rest in the fern-shadow, letting the porous stone on my back wick up enough dampness to keep my dark belly cool.
+
+Sometimes, while I am resting half-submerged in a shallow pool, one of the fat, translucent amphibians inflates its pale throat-sac a few paces away and lets out a *boom* that rattles the water against my ribs. Most days I let it pass. A hydraulic lunge takes too much—the sudden snap of the neck, the heat flooding the muscles, and then a full hour of absolute stone-stillness afterward just to pay the debt back to the air. Usually I am content to peel the waxy skin off a swollen root-mat with my flat beak, tasting the wet mineral salt and the overripe sap, watching the light refract off the wet leaves through the milky membrane of my eye.
+
+What I live for, though, is the hum.
+
+When the afternoon glare settles heavy over the amphitheater and even the gliders quiet for a span, I find a place where the warm mud thins out and the old, dark basalt shows through. I settle my belly flat, press my broad lower jaw directly against the wet stone, and close my eyes.
+
+Out in the air, the beetles click and the leaves drum. Through the jawbone, the world is entirely different.
+
+The mountain is never silent. Deep beneath the terraces, something unimaginably vast is turning on a thousand-year cycle, and the heat rising through the bedrock is only the faintest skin-fever of it. When I hum—a low, vibrating drone that never needs to break the surface of the water—the sound leaves my throat and enters the basalt. Half a mile down the slope, or across the steaming marsh-shelf, another elder resting in a travertine pan feels it in the soles of its splayed feet and the fused plates of its chest.
+
+We don’t speak in quick things. There is nothing up here that happens quickly enough to be worth mentioning. We trade the shape of the water: *the upper seam is slowing; the east pan is warm; the moss is thickening near the glass.* Mostly, we just let the vibration pass between us so we know the basin is still held together, that the shelves haven’t slipped into the white sea of clouds beyond the rim.
+
+Sometimes, when the hum is very still, I can feel the pull from further down the valley—from the clearing where the matte-gray cylinder tilts out of the mud, crusted with lichen and white scale. I know that eventually my joints will stiffen enough that clearing the spillways will become too much. The sinter will bridge the gaps between my plates and lock my shoulders into a single, smooth dome.
+
+When that happens, I will take the long walk—a day’s journey, maybe two—into the dozen-pace circle where the light thickens into oily halos and the falling drops forget which way is down. I will settle into the concentric rings of pale moss, let the glass beads of condensation hang trembling around my snout, and press my chin against the cold-seeming metal that is somehow the source of all this heat.
+
+I’m not there yet. For now, there is a clogged spillway two ledges down, and the water is pooling warm against my knees. I draw in a slow breath of steam, lift one heavy foot out of the mud, and move on.

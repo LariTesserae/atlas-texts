@@ -1,0 +1,40 @@
+Visiting this place is less like going for a swim and more like zero-gravity mountaineering inside a submerged, electrified clockwork terrarium. Because there is no open water, no dirt, and no forgiveness in the architecture, standard recreational dive preparation will actively get you into trouble here.
+
+Here is how an ordinary human should prepare to enter, survive, and leave the tank intact.
+
+---
+
+### 1. The Threshold: Insertion and Pressure
+* **Gear Up Before You Cross:** If you are arriving via a portal or transit point directly into the interior, **have your mask sealed, your regulator in your mouth, and your buoyancy compensator partially inflated before you step through.** There is no air pocket at the top of the tank—it is filled to the very apex of the skylights.
+* **Equalize Immediately:** A cathedral-sized tank is likely 15 to 25 meters (50 to 80 feet) deep. If you materialize near the lower grates, the water pressure will hit your eardrums instantly. Be ready to pinch your nose and equalize the moment you feel the warmth.
+* **Mind the Outside Air (If Using a Hatch):** If you are entering or exiting physically from the mountain ridge outside, remember the brutal contrast. The air outside is thin, freezing, and sharp; the water inside is a bath-warm 30°C (86°F). Do not dive and immediately ascend into high-altitude mountain air, or you risk severe decompression sickness ("the bends") exacerbated by low atmospheric pressure. If you exit onto the ridge, bring high-altitude cold-weather gear in a dry-bag, a portable oxygen canister, and plan to spend hours off-gassing at the surface—or better yet, use a pressurized transit method.
+
+### 2. Breathing: Ditch the Standard Scuba Tank
+* **No Back-Mounted Tanks:** A standard aluminum tank strapped to your back will turn you into a turtle wedged between stainless-steel pipes and bronze gears. You will snag on the kelp curtains and scrape against the concrete formwork.
+* **Use a Low-Profile Sidemount or a Closed-Circuit Rebreather (CCR):** You want your profile as flat and narrow as a human torso. A **rebreather** is the absolute gold standard here: not only is it compact, but it produces no exhaust bubbles. In a silent, equilibrium-bound tank where even the plants release oxygen in single, measured beads, a roaring stream of scuba bubbles feels like a vandalism—and practically speaking, rising bubbles can dislodge the delicate, mercury-like gas pockets clinging to the catwalks or stir up loose root filaments into your mask.
+* **If Using Open-Circuit:** Tuck every single hose, gauge, and strap tight against your body with bungees. Nothing can dangle.
+
+### 3. Armor Against Heat and Razors
+The environment presents a tricky paradox: the water is too warm for insulation, yet too sharp for bare skin.
+* **Skip the Wetsuit:** At 30°C, even a thin 3mm neoprene wetsuit will cause you to overheat within twenty minutes of pulling yourself through the dense vegetation. Hyperthermia underwater is disorienting and dangerous.
+* **Wear a Cut-Resistant Dive Skin:** Opt for a full-body, form-fitting rash guard or dive skin reinforced with **Dyneema or Kevlar**. Everything in this tank is brand-new and unworn. The glass baffles have razor-sharp bevels, the cast-bronze gear teeth haven't been dulled by time, and even the mortar and poured concrete retain crisp, abrasive edges.
+* **Heavy-Duty Gloves:** This is non-negotiable. Wear flexible, puncture- and cut-resistant gloves (like spectra-lined dive gloves). You will be using your hands constantly to pull yourself along iron catwalks and part thick, rubbery kelp fronds. More importantly, the leaves with veins of deposited **pure copper and silver** can have surprisingly sharp, metallic edges.
+* **Boots, Not Fins:** Leave your diving fins behind. There is nowhere to kick, and fins will only shred the moss mats, tangle in the hair-thin roots, or snap against the machinery. Instead, wear **soft-soled, high-traction dive boots** with reinforced toe caps. You will be braced against glazed white ceramic tiles (which are slick) and riveted iron grates, climbing in three dimensions.
+
+### 4. Electrical and Chemical Precautions
+The water is charged with dissolved minerals and a steady, low-voltage direct current from the submerged induction coils. It won't electrocute you on contact, but it *will* punish carelessness.
+* **Insulate Your Gear:** Avoid exposed, unsealed metals on your person. Dissimilar metals in warm, mineral-rich, electrified water will undergo rapid galvanic corrosion—your cheap steel clips or zippers could literally start pitting or seizing within hours. Use titanium, marine-grade polymer, or coated brass hardware.
+* **Do Not Bridge the Circuit:** Stay well clear of the **copper busbars** and the **submerged junction boxes**. Never touch a metallic-veined plant with one hand and an iron catwalk with the other; you do not want your body becoming the path of least resistance for a DC current, even a low-voltage one.
+* **Protect Electronics:** Keep cameras, dive computers, and flashlights strictly in sealed, non-conductive housings. Be prepared for minor electromagnetic interference (compasses will likely spin uselessly near the induction coils, and unshielded screens might flicker).
+* **Don't Cut the Plants:** Carry a ceramic-bladed line cutter (non-conductive, won't rust) strictly for emergencies if you get tangled in standard root filaments. **Do not** slice through the metal-veined leaves or the pulsing air-bladders. You risk shorting a local biological circuit, getting a sharp shock through your blade, or releasing concentrated pockets of oxygen. Part the curtains gently; don't hack through them.
+
+### 5. Movement, Buoyancy, and Sight
+* **Dial In Neutral Buoyancy:** Because the water is rich in dissolved minerals, it is denser than freshwater. Test your weighting carefully. You want to be effortlessly neutral so you can hover motionless while unthreading yourself from a tight pipe cluster, rather than sinking onto a bronze ratchet or bobbing into the glass skylights.
+* **Bring a Compact, Focused Light:** The high-altitude sunlight piercing the skylights is blindingly bright in the upper shafts, creating brutal contrast. The shadows beneath the dense iron catwalks and thick kelp curtains will be pitch-black. Bring a small, wrist-mounted, narrow-beam LED light to check clearances before you reach your hand into a dark manifold.
+* **Anti-Fog and Tinted Lenses:** Consider a slightly tinted mask lens if you plan to look upward; the unfiltered mountain sun refracting through the vaulted glass can be punishing on the eyes.
+
+### 6. Psychological Readiness: The Tyranny of Patience
+The greatest danger in the tank isn't a predator—there isn't a single animal here. The danger is **complacency and claustrophobia**.
+* **Respect the Slowness:** The machinery moves at a glacial pace. It is terrifyingly easy to wedge your arm, your hose, or your harness into a gap between a hydraulic cylinder and a bronze flywheel because it *looks* completely stationary. Remember that it isn't. If a weighted brass ratchet advances by one tooth every ten minutes, it does so with unstoppable torque. Never place a limb or a life-support hose inside a gear train or pinch point, no matter how frozen it appears.
+* **Manage the Hush:** Underwater, the heavy velvet silence—broken only by the low electrical thrum and the rare, distant *tock*—can induce a hypnotic, meditative trance. Set a vibrating timer on your dive computer every 15 minutes to force yourself to check your air, your depth, your orientation, and your entanglement status.
+* **Leave No Trace:** The tank exists in an immaculate, unblemished equilibrium. Nothing decays here, which means any plastic wrapper you drop, any ceramic tile you crack, or any kelp curtain you tear won't be eaten by scavengers or rotted away. It will just sit there, pristine and broken, in the warm light forever. Move slowly, touch lightly, and match the patience of the machine.

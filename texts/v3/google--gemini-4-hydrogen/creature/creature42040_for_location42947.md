@@ -1,0 +1,29 @@
+You do not see them until they choose to uncurl from the stone.
+
+In the eastern alcoves, where the wind eddies into a tight, whining spiral rather than a gale, the shadows of the slate domes have a way of detaching themselves from the rock. There are perhaps seven or eight of them—never many, for a hundred paces of stone can only feed so many mouths—and they move with the low, deliberate economy of things that have learned never to offer a flat surface to the sky.
+
+They are built like the flora here: lean, fibrous, and entirely without water. To touch one would be like touching cured vellum stretched over bundles of dry willow, warm from the fissures and faintly humming with trapped static. Their skin is the color of weathered basalt, mottled at the joints with pale, calloused plates where the silica dust has worn them thick, and always—no matter how carefully they brush themselves—dusted in the creases with a fine, golden sheen of spores.
+
+They have no use for the open sky. Their shoulders are broad and perpetually hunched, their center of gravity slung low between wide, splayed feet whose soles are as hard and grooved as ironwood. When a crosswind spills over the rim and sends a dust-devil spinning across the floor, they do not run for cover; they simply drop to one knee, hook their long, double-jointed fingers into the pits of the polished stone, and let the gale sheer over their curved backs like water over a river-pebble.
+
+If they have a voice, it is not one the air can carry. A shout in this basin is torn to shreds before it leaves the throat. Instead, their throats are narrow, ridged with cartilage that produces only a dry, rasping click when they are startled. They speak in touch, in posture, and in the *bone-hum*.
+
+They have no external ears—nothing fragile enough to be battered by the constant *clatter-clack* of the rattle-reeds. Beneath the tight, papery skin of their temples and along the ridge of their collarbones lie dense, resonant plates of bone. To listen to the basin, they press a bare palm, a heel, or the flat of a jaw against the fluted stone walls. Through the rock, the roaring turbulence sorts itself into a clear, readable map: the deep bass of the organ-pipes tells them which rim the wind is spilling over; the high, frantic vibration of the reeds tells them where the drum-crabs are swarming. When they gather inside the three low domes at the end of a cycle, they sit in a tight circle with their knees or foreheads touching, sharing a low, rhythmic clicking through their teeth—a quiet conversation conducted entirely through skull and bone, safe from the roar outside.
+
+Their eyes are set deep beneath heavy brow-ridges, veiled almost constantly by a second, translucent lid of smoked horn. In the bruised twilight of the bowl, these inner lids filter out the blinding sting of flying silica while still letting in the pale shafts of sunlight and the sharp, blue crackle of the wire-grass. They never weep, and they never sweat. Whatever moisture their bodies require is locked away in a thick, waxy marrow, replenished only by the oily, tallow-rich meat of the drum-crabs and the dense, nutty cakes they press from golden spores and bake on the flat stones above the geothermal vents.
+
+Watch one of them at work, and you see how thoroughly they belong to the machine of the wind.
+
+The one who left the copper scraper wedged beneath the flat stone is an elder—though age here is measured not in gray hair, which none of them have, but in the copper-green tint of their knuckles and the thickness of the horn-plates along their forearms. She moves out onto the open ironstone with a trailing cord of braided wire-grass tied to her ankle, dragging behind her on the rock to bleed off the fierce electrostatic charge that builds in her dry skin. Without it, a brush of her hand against the slate domes would throw a spark sharp enough to numb her arm.
+
+Still, they know how to keep the lightning when they want it. The half-finished basket beneath the stone is woven tightly enough to hold a charge; when she lifts it, the fine, copper-tinted hairs along her spine lift toward the weave, and she can snap a pale-blue spark from her thumb to signal a companion across the gloom of an alcove.
+
+With the copper scraper—beaten cold over generations from nodules culled out of the wire-grass ash—she works the lee of a boulder. She is not hunting crabs today, nor harvesting spores. She is scraping the calcified silica from the joints of dead rattle-reeds, peeling away the mica-thin layers to get at the dry, sweet pith inside, which they chew to keep their gums from cracking. Every few moments, she pauses, tilts her head, and touches her knuckles to the ground.
+
+Outside the eastern domes, the taut line of bone and hollow crab-shells begins to chatter faster. The organ-notes in the stone drop an octave—a deep, vibrating shudder that travels straight up through her shins and into her teeth.
+
+She does not hurry back to the shelters. That drop in pitch is not a warning to hide; it is the basin drawing breath.
+
+From the other two domes, the rest of her kin emerge, unfolding from the low doorways like insects from beneath bark. They carry wide, shallow nets of knotted plant-fiber and weighted pouches of slate. Down in the fissures, the bellows-blooms are swelling in unison, their leathery bladders stretched tight, ready to exhale a sudden, blinding storm of gold. Above them, the six-winged skimmers are already dropping lower in the thermal columns, their metallic whine rising to meet the deeper bass of the stone.
+
+The dwellers spread out across the polished floor, low and silent, grounding cords hissing softly behind them over the ironstone. When the gusts hit and the whole small, waterless world spins a little faster, they do not brace against it. They lean into the gale, open their nets, and let the wind lift them just enough to run.

@@ -1,0 +1,23 @@
+If I woke into this world, I would not be up on the plateau. Even the thought of that bleached, sun-hammered stone makes my eyes ache. Nor would I be perched on the highest cane balconies, right under the weaver-birds, where the amber light is sharpest and the wind from the rim blows chaff into your teeth. 
+
+I would drift downward, rung by bone rung, past the sweet-sour steam of the kitchen-ovens and the steady *thock-thock* of mallets, until the light thinned to the color of old beeswax and the air turned cool.
+
+Down here on the lowest tier—just above the talcum-fine dust of the pit floor—the four stories of woven cane above feel less like a ceiling and more like a lid on a well-packed jar. It is the quietest part of the hollow. Up above, voices have to stay low out of manners; down here, they stay low because the stone itself seems to absorb them, leaving only the dry rustle of beetles in the thatch and the faint, wet *drip* of sap-jars filling somewhere in the gloom.
+
+I don't think I would be a Tap-Keeper. My balance isn't made for crawling out onto the iron-hard tangle of the roof before dawn, trusting brittle branches over a four-story drop. And I don't have the quick, darting nerve to rob a weaver-bird's nest or pin a forearm-length centipede with a forked stick. 
+
+Instead, I find myself sitting on a narrow, plaster-smoothed ledge where the concave wall meets the floor-dust, with my back against the cool rock and my knees drawn up to leave room for the traffic of the hyraxes. 
+
+My hands are dusty with mineral grit and stained dark at the knuckles from tree-gum and boiled chitin. That tells me what I am: I am one of the ones who mend what breaks and seal what leaks. 
+
+In a place where every drop of moisture is locked inside a plant or a body, nothing can be allowed to seep away wasted. People bring me their cracked clay jars, their split gourds, their bone needles gone rough at the eye. I mix the fine floor-dust with euphorbia mucilage in a shallow stone dish until it turns into a thick, pale paste, and I press it into the hairline fractures of the walls and the ovens, smoothing it with the ball of my thumb until it dries hard as shell. I melt beeswax and resin over a tiny pinch of ember-fed dung to re-seal the sap-jugs. 
+
+And when the Tap-Keepers climb down from the sun-warmed crown of the canopy carrying the clean, dry bones of someone who died a month ago, some of those bones come to my ledge.
+
+It is slow work, and it suits me. I take a rib—still faintly smelling of dry wind and carrion beetles—and I score it with a flaked chert knife, then rub it for hours with floor-grit and a dab of beetle-oil until the rough edges vanish and the bone takes on the glossy, smoked-tallow sheen of a finished strigil. While I work, I listen to the hollow above me. You can read the whole town from the bottom tier without ever looking up. You hear the quick, uneven *thock-thock* on the third tier that means two neighbors are angry with each other, and you hear it gradually slow and soften as their shoulders tire and the quarrel burns itself out. You hear the sudden *hiss* of a spilled pot on the kitchen-ledge, followed by the sharp, clipped murmur of someone checking for sparks. You hear the heavy *whuff* of the fruit bats dropping through the roof at dusk.
+
+Because I sit so low and stay so still, the small things of the hollow mostly forget I am there. A pale gecko will creep right over my calloused toes to snap at a moth, its belly cool as a river pebble. One of the collar-ringed weasels—a fierce little sliver of muscle with a carved hyrax-bone hoop around its neck—sometimes curls up behind my storage-baskets during the hottest part of the afternoon, trusting the smell of resin and old bone on my skin. I leave it a scrap of roasted beetle-fat now and then, not to tame it—nothing here is tame—just to keep the truce.
+
+At night, when the embers are banked and the upper tiers sway gently in their sinew hammocks, I stay awake a little longer than the rest. Down here, close to the pit floor, the darkness is almost complete. Now and then, from the hairline fissures where the ancient taproots plunge toward the deep aquifers, one of the pale, blind centipedes will slide out onto the dust, tasting the air with its antennae. 
+
+I never reach for a forked stick. I just sit very still on my ledge, holding a half-finished rib-strigil in my lap, and watch it pass. It belongs to the stone, and to the deep, unseen water far beneath us—the same water that keeps the roof green, and keeps the sun out, and keeps all three hundred of us pressed warmly together in the dark.

@@ -1,0 +1,21 @@
+The basin is no wider than a small town, a shallow, low-lying depression rimmed by jagged, freshly fractured shelves of dark slate. Beyond the rim, there is nothing to mark a horizon—only a dim, pewter-colored haze that hangs low and motionless, diffusing the cool light until every surface looks faintly dusty and shadowless.
+
+Inside the basin stands a city made without hands, tools, or water.
+
+It is built of a pale, chalky-crystalline substance—dry as bone, sharp as broken porcelain. Because there is no rain to round the corners and no wind strong enough to carry grit, nothing here is worn down. Every buttress, stepped plinth, and narrow spire ends in a crisp, unweathered edge. The architecture is unmistakably urban in its organization: wide, swept-clean avenues intersect at deliberate angles; layered viaducts span empty plazas; hollow, multi-story towers rise in terraced tiers, pierced by rows of identical, arched openings. 
+
+Yet the city is profoundly empty. The towers are mere shells, their interiors vast, cool voids stacked six or eight stories high, connected by thin, tool-less ramps that spiral up the inner walls. Between the clusters of buildings lie broad, barren expanses of dark slate floor, swept clean of rubble. You could walk for minutes down a grand, terraced boulevard and pass nothing at all—only the immense, hollow geometry of the pale walls rising on either side.
+
+And there is no sound. Not a whisper of air in the arches, not the click of a shifting pebble. The silence is total, absorbent, and heavy, as if the porous, chalky stone drinks every vibration before it can travel an inch.
+
+Yet the city is fiercely, relentlessly alive.
+
+At first glance, the movement is easy to miss, because it happens at the pace of dry chemistry and silent biology. Along the upper cornices of the towers, thin, geometric fans of sparse vegetation—dry, papery-white velum-growths—cling to the hairline seams in the masonry. They have no roots in soil and drink no liquid; they feed directly on the mineral salts of the walls and the faintest trace of vapor in the cool air. As they grow, they shed their outer skins: translucent, weightless membranes that peel away from the stone and drift down into the empty avenues on slow, laminar currents of cooling air, settling onto the slate without a rustle.
+
+Moving along the vertical faces of the buildings are the builders themselves. They are rare—you might spot only three or four in the span of an entire plaza—flat, segmented, pale-shelled creatures the size of a spread hand. They move with a slow, deliberate gait on soft, electrostatic pads that make no sound against the chalk. From glands behind their mandibles, they extrude a cool, dense mineral paste, laying it down in precise, overlapping courses. A spire that looks finished is actually rising, millimeter by quiet millimeter, its newest crest slightly darker than the dry, cured stone beneath it before flashing pale in the dim air.
+
+They are not alone. In the hollow, upper galleries, where the velum-growths are thickest, other processes are at work. Slender, blind scavengers—like folded shards of slate—hang motionless beneath the lintels, waiting for a builder to pass below. When they drop, they fall like ash, landing silently on the target’s back. Elsewhere, tiny, burrowing mites tunnel through the older, lower tiers of the city, hollowing out the load-bearing pillars from the inside, turning solid buttresses into delicate, weight-bearing lattices. 
+
+The city is a single, slow-motion engine of construction and excavation. Dust—fine as talc—lifts from the floor in invisible thermal plumes, gathers on the leeward ledges of the viaducts, and slides off in silent, slow-motion avalanches when the weight grows too great. A dry crust of salt-stone fractures under the quiet tension of a growing wall, parting without a crack. 
+
+Nothing here ever rests, and nothing ever speaks. Beneath the dim, cool sky, the empty streets and hollow towers are constantly being raised, hollowed, shed upon, and remade—a whole civilization of dry mineral and silent flesh, turning over in absolute quiet.
