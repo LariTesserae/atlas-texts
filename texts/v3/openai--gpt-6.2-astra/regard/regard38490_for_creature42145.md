@@ -1,0 +1,15 @@
+The power came in the hour of the separate shadow. It could have lifted the tread without spilling a drop. It looked in by the slot.
+
+There was a little clear space between the green of the longer thread and the rough place that held it in the daytime. One could see the rough place quite well now. It was a grain of sand bedded in the clay, with a piece of its round side knocked off. The broken face was turned toward the pipe. Where the thread passed over that face it had a thin place. With the sun coming straight through, the thin place showed yellow.
+
+The power stayed for the night. There was not much to see after the light went, but there was the slow cooling of the water in the back, and, much later, a stirring at the mouth as the keeper drew a jarful from the bath for washing his hands. The threads lifted together and subsided. Neither needed anything then.
+
+In the morning the first bucket made such a noise that the keeper's boy, up by the tank, had to say a thing twice to his father. Under the tread the loop went out as usual. On its way back the thin place found the grain of sand. For a moment all the pull of the water was on that little yellow elbow.
+
+What the power did was to wear down the edge of the grain. It did this while the boy was saying his thing the second time. It left the grain standing as far out of the clay as before, with its round side round and its broken side flat; only, where the two met, it did the work that water with a little fine dust in it would have done in a hundred years. The loop still caught there. But as the pull increased, a little more of the thread paid out over the edge, and the elbow opened.
+
+There was no corresponding work done at the root of the shorter thread. Pressed down as it was in the hot run, it had put out a pale tip overnight. Nor did the power carry either of them in to the handsome empty floor. The light that made the thumbprint so distinct lasted there for less time than it took the keeper to put away his buckets. It was quite another matter at the sill, where a thing could live on it.
+
+In the course of the summer the longer thread came loose. It went on an ordinary afternoon, with no more water coming through than usual. A piece of the blunt green patch went with it. It drifted a little way along the underside of the lip and lodged where the lip turned the corner, in a place one could see from the stairs by sitting two steps up and leaning well over. There too it held. For a week or so a bather putting a heel down into the warm wash would sometimes feel a fine tickle on the skin, too slight to make it worth shifting the foot to find out what was there.
+
+Under the tread the short one continued to grow. Its tip, when the feed was closed, lay sometimes to one side and sometimes to the other of the grain of sand. Once it lay right across. The stone was smooth there.

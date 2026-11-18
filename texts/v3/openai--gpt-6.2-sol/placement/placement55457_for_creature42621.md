@@ -1,0 +1,17 @@
+I think I’d be on the other side of the window, though for a long time I wouldn’t know there was another side.
+
+There’s a table pushed up against it, with one leg on a folded tram ticket. I sit there to mend books. Most of them aren’t worth much. People bring me a cookbook that opens by itself at the dumplings, or a school atlas with a country shaded in a color no one uses for it anymore. They’re more particular about what I leave alone than about what I fix. A woman brings in a dictionary and asks me to keep the bacon rind her father used as a bookmark. I wrap it in paper while I work and put it back under *render*.
+
+The street outside is short and slopes away from the house. When it rains, the children next door sail bits of orange peel down the gutter. They run after them as far as the drain, then come back and ask for another orange. I can hear them from the table if the window is open. The bottom sash sticks, so once I have it up I tend to leave it that way.
+
+That summer I’m working on a ledger from a laundry. It’s too big for the table. Propped open, it cuts off my view of the lower panes, and for weeks I notice nothing except that the paste takes longer to dry toward evening. Then one night, reaching behind the ledger for my scissors, I put my hand down on a wet sill.
+
+Something has left a mark in the dust. I think at first that it’s the breast of a bird, but the mark is too broad and there are no feet. At one end lies a petal from the tree outside. At the other is a grain of brick. I wipe the sill. The next evening there’s another mark, a little to the left, where I haven’t wiped.
+
+I spend some evenings trying to see what makes it. This means sitting without the lamp while there’s still enough light to work, and I don’t keep it up for long. One evening I do see something: not the animal, but a hand with a rag in it. It passes across the bottom pane, slowly, twice, at the height of the sill. I lean forward, expecting to see somebody standing in the street. There are the railings and the tree and, farther down, a boy trying to get his bicycle chain back on. The hand was much nearer than any of them.
+
+After that I have a better look at the sill. The marks are nearly all on the side where a loose curl of paint gives a little shade. I’d been meaning to scrape it off. Instead I move the paste pot, which has been standing there since I got the table.
+
+I don’t think I become the creature’s friend. It keeps its own hours, and by autumn there’s work I can’t do with the window open. On the last warm day I find a snail shell in the groove of the sash, with a chip of brick in it. I set it on the table. Later, when I pull the window down, I see the shallow hollow the shell had been sitting in. There are two more hollows beside it, both empty. The wood is soft enough there to take the print of my thumbnail.
+
+In spring I’ll have to do something about the sill. I know a carpenter who’ll want to replace the whole length, and he’ll be right about what’s rotten and how far back it goes. I think I’ll ask him to show me how much sound wood he needs for a joint. If there’s enough, I’ll keep the end with the three hollows. He’ll have to cut the new piece a little crooked to meet it. He’s good at that. He did it for the stair where the old cat used to sleep.

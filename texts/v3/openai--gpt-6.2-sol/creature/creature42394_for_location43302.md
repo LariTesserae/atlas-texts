@@ -1,0 +1,11 @@
+Something lives in the fan of sand. It is wider than the fan, but so thin that where the sand gives out you can see the white slip through it. A grain falling from the seam will sometimes come to rest on one of its clear margins. There it sits a hair above the floor. That is the easiest way to see the animal by daylight.
+
+When the feeder is running, it holds on with its whole underside. It has no shell, although it keeps one hard thing about it: a pink grain lodged in a fold near its mouth. The grain has worn smooth on one side. With it the animal scrapes the soft part from whatever the current lays across the fan. A green thread is generally too much for it. It eats a short length and lets the rest go, and for a while afterward there is a green dash inside it.
+
+The evening quiet is when it uses its feet. There are seven or eight of them, blunt little pegs that come out along one edge. They do not all reach the clay at once. It gets up the wall by finding a hold with one, then letting the rest of itself follow. Most nights it climbs no higher than the mortar joint. It works along that joint until it comes to the place where the bricklayer took his thumb away. The ridges end there in a little raised lip. Under the lip the animal has laid four eggs.
+
+The first three are cloudy. In the fourth there is already a hard pink point.
+
+The eggs were there the last time someone came down to clear the slots. He stood with his head above water and reached down with a bent piece of wire. In moving his foot he put his heel through the fan. The water went white around his ankle, and he waited for it to clear before going back up. By then the animal had drawn itself into the joint, beside the eggs. It stayed there until the gate was lowered, though for most of the afternoon there was nothing left below it that looked like a place to live.
+
+After the knocking stopped it came down to the floor. It did not try to put the fan back. It went from grain to grain in the scattered sand, feeling each one with the fold of its mouth. It found its own grain on the lowest stair, in the angle where the tread met the wall, and took it home. In the morning, when the first sand came down, it was underneath again.

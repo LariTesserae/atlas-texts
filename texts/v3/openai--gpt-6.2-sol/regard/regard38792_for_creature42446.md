@@ -1,0 +1,13 @@
+The power came in the dry spell and watched the old female lick the ring. When she had finished, she stood with her feet apart as if there were still something to drink. The power waited with her. It could have filled the pan to the ring, or to the top of the slab. The water would have run down into the beds, and the young would have got up and gone elsewhere.
+
+Instead it followed the seam under the pan. A root had grown into it from the downhill side. The root was alive for the length of a finger and dead farther in, where it had swollen into a plug. The power drew the dead part out. Nothing happened for a while. Then a grain of pale sand came out of the seam and traveled down the slope of the pan. It stopped. A second grain went past it.
+
+The old female had already gone. She came back toward evening, not to drink but because there was a strip of grass below the slab she had not finished. She ate it from one end to the other. At the end she lifted her head and took two steps uphill. There was water enough at the low side of the pan for her to drink standing. She swallowed five times and waited. A sixth swallow came after so long that it would have been easy to miss.
+
+That night the long animal brought its young to the pan. They had never seen standing water. The first put a paw into it and shook the paw, and the second put its nose where the paw had been. Their mother drank while they did this. When she went away they went with her, leaving five little prints between them; the stone was too dry to take the others.
+
+The power stayed until the rain. It learned where the old female slept, which was not in one of the beds but out on a slope where she could get her hind feet under her when she rose. It saw her get up with difficulty each morning. On the morning she could not, it lay down on the stone beside her. There was no need for her to see it. It took away the pain in the hip she was lying on, and then, because she was still trying to get her feet beneath her, it took away the pain in the other hip too. She drew one hind foot forward a little. After that she rested.
+
+Toward noon a young grazer came cropping down the slope. It took the grass nearest her muzzle and left the grass beneath her chin. By then she was dead. The power did not move her to make the grass easier to get.
+
+In the rain the pan filled from above, and for several days there was no telling what the seam gave it. Later, when the shelf dried again, there was a little water at the downhill end. The young grazers still came first to the upper end and knelt where they had knelt before. Finding nothing, they walked around the slab. There was room for two to drink standing if one of them put a foot in the pan. They were a long time learning that they could.

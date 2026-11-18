@@ -1,0 +1,11 @@
+The dead leaf has been there long enough for the two living leaves to grow around it. On the underside of each is a shallow crease where the weight has rested. Look from below and there is a third crease, finer than either of those, that goes the length of the dead leaf and stops just short of its tip. That one was made from inside.
+
+There are six or seven pale bodies in the fold. At first they would look like the pith of the leaf, except that the one nearest the tip has drawn itself tight at the sound of your foot. Give it a while. It puts out a clear lip, touches the wall of the fold, and draws a little farther along. The leaf does not stir. Even the thin place where the lip presses is too well braced against the living leaf beneath it.
+
+The smallest ones lie crosswise. They have room to do that. The older ones lie with their heads toward the base, where the dead leaf is still tough and where, for part of the night, the living blades give off a little moisture. There is never enough to make a drop. It softens a patch of brown tissue about the size of a pinhead. By morning the patch has been scraped clean. You can see the old patches when you turn the leaf to the light: a row of tiny windows, some with the cross-veins left in, some no more than cloudy places where a youngster stopped eating.
+
+A leaf that falls to the floor is of no use to them. It dries on both sides. On the shorter plants there are dead leaves still attached at the base, and a few of those have inhabitants, though you would have to ease the grit out grain by grain to see them. The tall plant has held this particular leaf through the growth of three new ones. One of those has come up underneath and is taking some of the weight. Its tip, which ought by now to have straightened, is bent to fit the old fold.
+
+From time to time a young one comes out onto that tip. It stays in the seam between the two leaves and feeds on the tender surface there. The small scar it makes will travel upward as the leaf grows. If the blade lives long enough, the scar will reach the bend; if the blade dies there, another fold may open.
+
+For now the seam is hardly wide enough. The young one backs into the old leaf, feeling its way with the blunt end first. One of the larger bodies draws in to let it pass, and then takes up the space again.

@@ -1,0 +1,11 @@
+From the road I’d think I belonged in the pump house. There’s a dry place to stand just inside the door, and a nail above it for a coat. I can imagine coming down after rain with the key and writing a number in a book. I can also imagine writing the same number three times because the pond has risen between my looking at it and my getting the book open.
+
+But there’s a second well beneath the pump house floor, covered with two short boards. It was once connected to the pond by a pipe. The pipe is stopped now, or nearly stopped. If you lift the boards on a wet day, you can see a bit of cork down there with a brass eye in it. That’s where I’d be.
+
+There used to be a wire through the eye. It went up over a pulley to a counterweight and a pointer that somebody could read without having to get down on their knees. When they took the pointer away, they cut the wire rather than fish me out. A little of it is still twisted through the eye. It’s long enough to touch the side of the well when I turn.
+
+For a long time I’d take the pump for the thing that moved me. I’d hear the click through the floor, feel the wire scratch, and find myself a little higher. Then there would be one of those bright afternoons when the pump stayed off. The boards would warm on top. A woodlouse would come out of the split in one of them. And I’d rise so slowly that the woodlouse could go all the way around a nail head before the wire scratched again.
+
+The old pipe comes into the well at an angle. On days like that, water enters along its upper edge, where there ought to be air. It brings very little with it. Once, a husk so fine it lodged in the brass eye and stayed there until I went under. Once, a clear thread that caught on the end of the wire. I turned for most of an afternoon without getting free of it. When I finally did, there was a bare place on the wire where the rust had come away.
+
+I don’t think there’d be a mouth in the well. The water falls too far in summer. Some years I’d lie on my side for weeks with the brass eye against the floor, and when the water came back it would have to get under me a little at a time. The first thing I’d do wouldn’t be to rise. I’d roll over. For a moment the wire would point straight up, into the narrow light between the boards, as though there were still something at the other end of it.

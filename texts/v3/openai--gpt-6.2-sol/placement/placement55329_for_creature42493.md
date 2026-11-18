@@ -1,0 +1,15 @@
+I would be the one who takes the bucket around on Thursdays. I’d do it after supper, while there was still a little heat in the water from washing the bowls. At the bottom turn I’d pour slowly, so as not to send a warm sheet down the steps into somebody’s room. Then I’d sit on the stair with my feet on either side of the bucket and wait for the wood to give enough to take the wedge.
+
+I don’t think I’d be particularly good at it at first. I’d make the turn wider than it needed to be and be pleased with how easily I could get through carrying the bucket. In the morning someone would find that the little rise where she set her heel was gone. She’d tell me, and I’d say it would grow back, which is the sort of thing you can say about nearly anything in the town if you aren’t the one who has to go without it in the meantime.
+
+I’d sleep under the steps of a court, in a room where you could tell who was coming by which foot they put down hardest. In winter I’d bring the bucket inside at night. In summer I’d leave it out and sometimes find the brown bird standing on the rim. It would fly off before I could see whether it had come for the water or for whatever lived in the wet seam of the handle.
+
+The sisters would ask me, separately, what I thought about opening their passage. One would show me how little room there was left above the saucer. The other would show me the place on her side where the saucer came to rest, a shallow shelf worn pale by years of receiving it. I’d take the wedge along one Thursday and come home with it dry. Later, when there was a bowl of something hot to be carried around, I’d carry it. I’d be careful not to put my thumb inside the rim.
+
+At the upper landing there wouldn’t be anything for me to do for a long time. I’d go up anyway. At first I’d go to look at the stem, and then, after I’d seen it often enough, I’d go because I liked how cold it was on the landing and how you could hear the town behind you without being able to make out any words. I’d have known the old sewing room mostly from the stair. When Mara worked there, she sometimes put her foot out into the light to find a dropped needle on her skirt. From below there would be the sole of one shoe, quite still, and then it would be gone.
+
+By the time there was a floor beyond the landing, I’d have grown used to stopping at the last step. The first time I went out onto it, I’d put the bucket down behind me, though I’d carried it up empty expressly to see if there was room to turn with it. Edrin’s daughter would be sitting on a block with her knees drawn up, looking out through the space she wanted for the window. I’d stand there looking too, until she told me I had to sit or I wouldn’t see what she meant.
+
+From standing, you could see the opposite slope. From where she sat, you could see a little lower, to a place where meltwater came out from under the snow. It went down over the bare rock and disappeared. Then, farther down, there it was again.
+
+I’d bring the bucket up the next Thursday. By then we’d know where the door ought to be. I’d start keeping that bit open before there was much on either side of it to call a wall.

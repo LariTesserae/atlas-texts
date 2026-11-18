@@ -1,0 +1,11 @@
+I think I’d live at the eastern stair, behind the bracket that has no tray. I wouldn’t be the bracket. I’d be the little bit of play in it.
+
+The upper bolt is tight. The lower one was tight once, but its washer sits partly on a weld, and when the bolt was first drawn down the washer bent. You could put a thumbnail under one edge. If you took hold of the bracket and pulled, it would come toward you by less than that. You would feel the movement more distinctly than you could see it. Let go, and the corner would touch the wall again.
+
+For years there was nothing to pull on it. Then the gardener sent its shoots out over the empty bracket. The first few were too slight to matter. The ones that reached the wall and turned back made a sort of handle. With the pumps running, the current drew that handle eastward, and the bracket came off the wall as far as it could. Each afternoon, a little after the ceiling leaves began to rise, it went back. The sound would have disappointed anyone who climbed the tower to hear it. It was about what a teaspoon makes when it touches the inside of a cup already full of water.
+
+From there I couldn’t see the yellow rectangle. The shelf above me cut off the view. I could see the sunlight go through the transparent leaves on the stair, though. A vein would light up on one tread and the next tread would stay dark, and for a little while the stair looked less like something you might climb than like a stack of things somebody had set down to dry.
+
+A root would find its way under the washer eventually. It would get in while the pumps were running, when there was room. That afternoon the bracket would close on it. At first the root would be soft enough to flatten, and for several weeks nothing much would change except the sound. Then the root would thicken. There would come a day when the leaves rose and the stair lit up and the bracket didn’t move at all.
+
+I wouldn’t go far. The root, held fast at the washer, would go on growing along the wall. Just past the edge of the bracket it would have to cross a shallow place where the steel had been ground smooth. It would cross straight rather than dip into it. And there I’d be again: underneath, where a little water could get through, and where, if you put out a finger as you passed, the root would give before it held.

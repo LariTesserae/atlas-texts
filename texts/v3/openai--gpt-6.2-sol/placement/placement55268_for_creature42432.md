@@ -1,0 +1,13 @@
+I would come up looking for a view I remembered. For the last few paces I’d be able to see country on either side of the ridge, and then I’d step down into the hollow and lose it all. I’d think at first that I’d come to the wrong place. I remembered being able to see a road from where we ate.
+
+The cup would be what convinced me. I’d put my finger on the hard knot in the middle, not in the water, and remember a boiled egg going round it. We’d tried to cool the egg in the cup. It had stuck in one place and had to be pushed the rest of the way.
+
+I think I would be the one who held up the slab while the wedges went in. I’d been given the job because it didn’t need doing well so much as it needed doing without stopping. I remembered the weight on the ends of my fingers, the little lift at each blow as the wedge took more of it. I couldn’t have said, on the way up, what the wedges looked like. Now I’d know which one I’d been afraid would split.
+
+I’d sit down too hard. A grain would go ticking into the floor, and something brown would come partway out beneath my knee and go back. I’d take my feet off the stones nearest the seat and set them a little farther away, where there was less room for them. Then I’d sit as still as you do when you’ve shut a door louder than you meant to in a house where somebody might be asleep.
+
+After a while I’d grow tired of being careful. I’d eat. I’d get a bit of eggshell in my mouth and spend some time trying to find it with the tip of my tongue. By then the sun would have reached the slab and the spider would be out on the uphill wedge. It would take me a while to see her there. One of her pale marks would catch the light; the other wouldn’t. Her feet would be planted to either side of a cut I could remember being made, though what I remembered was mostly the sound, and being told to keep my end up a little longer.
+
+I’d put a hand under the downhill end. The stone would be warm there. I’d meant to feel for the place where I’d held it, but of course there would be nothing to find. I’d leave my hand there anyway. It’s a good place to get the warmth back into your fingers.
+
+On the way out I’d turn at the lip, and there would be the road. We must have eaten up there the first time, before there was anywhere to sit. I’d stand looking at it long enough to see something white go a short way along it and disappear. Then I’d go down while there was still light to choose where to put my feet.

@@ -1,0 +1,11 @@
+The hollow is low enough that you could walk across it in a hundred paces without once feeling that you were going downhill. Only at the far edge, where the ground comes up to the height of your shin, would you know you had been in a hollow at all. There is no view beyond it. The darkness begins a little farther away than the things you can touch.
+
+Underfoot is a warm, fine grit, shallow enough that a heel turns it aside and finds stone. The stone is warm too. It has none of the slickness of a shore stone, though its corners are gone. Long ago, when there was enough wind here to carry sand, the exposed lip of the hollow wore down into a series of blunt shelves. The lowest is almost buried. If you run a finger under its edge, you bring away a little flour the color of old brick.
+
+There are plants, but you could cross the hollow and miss them. They grow where the shelves nearly meet the floor, each with a few narrow leaves held close together like the bristles of a worn brush. In the last of the light they are neither green nor brown. Their oldest leaves have set hard around the bases and catch a little grit. Between one plant and the next lies enough bare ground for the eye to stop looking for another.
+
+Nothing has walked between them. There are no droppings, husks, or holes with spoil tipped out beside them. The little channels in the floor are wider than a finger and shallower than a fingernail. They have the shape of places where water ought to go, but a pinch of dust from the bottom is as dry and loose as a pinch from the rim. No white crust marks a former level. The hollow looks less like something that has dried out than something that has never held enough of anything to leave a line.
+
+If you scuff your foot, there is a brief sound of grit against stone. It does not carry. Stand still afterward and you can hear the cloth at your elbow settle. The air against your face is nearly the temperature of your skin; it gives you no sense of which way the open ground lies.
+
+There is one taller plant at the far shelf. Its leaves reach just above the rim, though there seems to be no advantage in it. A dead leaf rests across two living ones. It has not fallen to the ground, and in all the time it takes your eyes to make out the shelf beneath it, it does not stir.

@@ -1,0 +1,11 @@
+There is one more thing to find out, and you find it out by getting tired. Let the weight come a little harder on your knuckle. The note goes soft at once. Ease the flake up again and there it is, with the fine sound riding on it. For a moment it seems you have put a stop to all those feet. But with your other hand against the solid bluff you can feel the tread quite well, as well with the flake down as up. What you have altered is the little room the sound finds in your sleeve.
+
+The power that came to the bluff had a hand there for a long time. It could have gone in as small as the green comma and come out without brushing either wall of the pleat. There was one thing it could not do. It could not see what the grub meant to do with its parcel without letting the grub do it. A thing meant and a thing done were as distinct here as the two edges of the bite.
+
+It took its hand away and let the flake down. This was not quite all it did.
+
+There had been a quantity of white powder in the square nick. A little of it came away on the knuckle, and in setting the flake down the power felt the difference. The two faces came together dry and close and would in time have grown together, as salt will. The next hand would have had to break the flake to lift it. The power tipped its knuckle and let the powder run back. It took less than there was. One grain stayed on the hand, and that was carried away.
+
+Much later somebody did lift the flake again. There was the stair with the mistaken notch in it, and the seventh step just clear of the flying chips. There was the grub on the underside, its head turned out. This visitor had a square-ended tool. It fitted the nick very comfortably. For a while the visitor held it there and listened with an ear against the bluff. Then the tool was laid aside.
+
+Try it yourself, if you come that way. Not the ear against the bluff this time: put the soft part of your finger outside the second step, with a good thickness of salt between. It takes some hunting to find the place. Through the pad you will feel the six little pressures where the grub has hold. Just beyond them, where to the eye there is nothing but smooth pink salt, you can feel the purchase of the foot that is going over the edge. It is quite firm.

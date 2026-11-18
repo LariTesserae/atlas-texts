@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **188** source folders · **201,838** texts
+- **191** source folders · **204,701** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -614,6 +614,18 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `openai--gpt-6.1-terra` | 1,075 | 2026-10-29 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
+## gpt-6.2-astra  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `openai--gpt-6.2-astra` | 1,075 | 2026-11-17 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+
+## gpt-6.2-sol  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `openai--gpt-6.2-sol` | 1,075 | 2026-11-17 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+
 ## grok-3  ·  1,000 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
@@ -1039,6 +1051,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `qwen--qwen3.8-max` | 1,052 | 2026-08-16→2026-09-24 | advisory·55, creature·250, location·250, placement·249, regard·248 | route | event-observed 1,052 |
+
+## qwen4-max  ·  713 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `qwen--qwen4-max` | 713 | 2026-11-17→2026-11-18 | creature·250, location·250, placement·213 | route | event-observed 713 |
 
 ## ring-2.6-1t  ·  1,075 texts
 

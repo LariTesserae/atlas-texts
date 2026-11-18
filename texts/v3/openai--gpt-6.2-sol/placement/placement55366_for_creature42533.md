@@ -1,0 +1,11 @@
+I’d be in the gully, a little uphill from the bees, growing out of a place where the clay had pulled away from a stone.
+
+At first there wouldn’t be much to distinguish me from the thorn. I’d keep my first two leaves flat to the ground. A stitch deer would put a foot down on either side of me, and for a moment I’d have the shade of its whole body. When it moved on, I’d have the shade of one leg, and then nothing.
+
+My roots would have an easier time of it. A finger’s depth down they’d find a seam of black soil with the stems of last year’s grass still soft in it. There is no grass like that in the gully now. I think I’d belong to the valley the bees go to, though I’d have come up on the wrong side of its ground.
+
+On the mornings the bees fly, the lip of the gully would rise above me. For an hour or two I’d be at the bottom of a deep, cool cut, with grass leaning over from both banks. I’d put on most of my height in those hours. This would turn out to be a poor habit. By noon I’d be the tallest thing for several yards, and the wind that crosses the plateau without a sound would have me to catch in.
+
+I’d flower once, low down, after the wind had broken my first stem. The flower would be gray and quite small. For days the bees would pass over it on their way home. Then one would come back late, when the gully had already begun to shallow and there wasn’t time to go where she’d meant to go. She’d drop onto me hard enough to bend me to the clay. I’d have spent all that time growing a flower and there she’d be, standing on it with one foot in the dirt.
+
+The woman in the white building wouldn’t see any of this. Later in the year, coming down to see why the bees had stopped flying, she might find my dry stem, with its little row of empty cups. She might rub one between her fingers. The seeds would already be gone. Most would have fallen where I stood, but one would be lodged in the mud between the toes of a young deer. By then the deer would have crossed the valley without going down into it, and the seed would have made the whole journey thinking it was still in the ground.

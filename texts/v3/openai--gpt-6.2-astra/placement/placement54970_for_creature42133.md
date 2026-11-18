@@ -1,0 +1,21 @@
+I would work in the bench shop under the eastern ticket hall. There is a slot in the floor of the booking office through which a bench can be lowered to me, provided the people upstairs remember to tip it on end. If they forget, I get a useful fall of small change, followed by a period of darkness.
+
+The benches up there are ash, with iron feet. Their trouble used to be that in wet weather they creaked. Lately their trouble is that people have begun sitting on them the other way round. They kneel on the seat, with their elbows on the back, to look through the stationary car at the piece of ground on the far side. The back was not designed to take six people by the elbows. The first time one came down to me with both its end rails split, I made the joints stronger. The second time I went upstairs to see what people were doing.
+
+It was a middling Thursday. There was a peel from somebody's apple on the car floor. It had come off in one piece, and each time anybody got into the car it rolled a little way towards the open doors. What the people on the bench were watching was a mouse. It had come in off the new ground and was taking the white off the inside of the peel, keeping its feet on the moving spiral. A woman with a string bag was trying not to laugh because she had a bad tooth. Every time she put her hand to her cheek the mouse stopped eating.
+
+I put in a broad rail for their elbows, with a hollow short of either end to keep things laid on it from rolling off. I had thought of spectacles. In practice the hollows are generally full of milk teeth, washers, samples of the yellow sand and other things that children want both hands free to examine. There is nearly always a child at either end. Between them the rail has taken on the polish of good furniture.
+
+What takes me out of the shop now is a much smaller job. The florist asked me to make her a step. She wanted to be able to go out of the far door with a saucer of water when the puddle dried. It seemed a little early for a step. I took a piece of ash up one evening and rested one end on the brass sill and the other where the ground appeared to be. It went on down, very slowly, until the sill end came up against my palm. The grass stood a good inch above the wood.
+
+The shunter's girl happened to be there. She took the board out of my hands and tried it on edge, in three places. Then she turned it flat and set it down very gently with her two forefingers under it. We waited. Somewhere behind us the florist put the saucer down on the till, which opened with a bang.
+
+“What are you going by?” I asked the girl.
+
+“My fingers,” she said. “I want them back.”
+
+She got them back. The board stayed where it was. Along its farther edge three or four drops of water came up, though there had been no rain. The girl touched one to her tongue. Then she brought the board inside and stood it up behind the driver's seat. She said she wouldn't put even the little goat out there yet.
+
+I've brought the same piece up on the first evening of every month since. I make a pencil mark on the jamb at the height of the near end when the far end has settled. There is a ragged procession of these marks. They don't go steadily in either direction; November is almost exactly on top of June. Once I had to miss an evening. When I came back there was a line in blue chalk at about the right height, and farther down, level with my knee, another in lipstick. That one proved to be the height of a dog.
+
+You would be most likely to find me there after the last car has gone west, when there is no way across and the new ground can be seen only by leaning out a little from the ticket hall. The florist shuts up the till. The driver has taken the board away with him; in the morning it will come back smelling of brake shoes. Under my elbows the rail is still slightly warm. Across the gap the mouse comes out to the very edge of what will hold it. It eats sitting up, working something round and round in its hands. Even with my shop glasses on I cannot see what it has. I can see the crumbs, though. Some stay by its feet and some fall a long way.

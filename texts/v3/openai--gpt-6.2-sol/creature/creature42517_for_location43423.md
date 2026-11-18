@@ -1,0 +1,13 @@
+The one who lives there has been waiting all afternoon to straighten her left leg. When at last she does, the knee gives a small click. She bends it and straightens it again, but the sound will not repeat. After all that noise from the tree, she had wanted to hear something of her own twice.
+
+She is the size of someone lying down. It would be difficult to say how tall she is. She has never put her whole weight on the soles of her feet, though she knows what feet are for and has been keeping hers clean. At the damp place she rubs one heel with the ball of the other foot. A thin gray roll comes away. She puts it beside her hip, where there are several others, in order of size. In the morning the smallest are gone. She has never caught the mite taking them.
+
+It is her thumbnail that is bruised. Earlier in the afternoon she tried to hold the seam shut. She did not mind the room getting bigger; she minded the noise, which had been coming for so long that she began to make it herself just before it happened. She would lie with her teeth apart and give a little dry *tack*. Then the sheath would split another fraction. In this way she got to be first for much of the afternoon.
+
+She has a sleeve, which ends at the elbow in a row of loose stitches, but no corresponding sleeve on the other arm. She keeps the bare arm against the wall. It is the one with which she found the pebble. For a while she thought it was a tooth. When the green mouth opens she puts a finger to her own teeth and counts them from the middle, first on one side, then on the other. The count agrees. This seems to satisfy her.
+
+The wet spot is the first thing in the room she has seen get smaller. She watches its edges draw in. Just before it goes, she touches it with the tip of her little finger and holds the finger in the air. The coolness lasts a surprising time. She tries the same thing at the damp place, but that moisture will not come away on her skin.
+
+When the mite comes back, it takes its usual few steps and raises its forelegs. She lifts her shoulder a little. The mite goes on, under the space she has made, and stops beside her ear. Its feet make less sound than the loose stitches dragging across the leaf. She lies still until it has gone wherever it goes.
+
+The two leaves aboveground begin to part. Down here she can tell, because there is room now to put both arms over her head. She does so cautiously, expecting the backs of her hands to meet the wall. They meet nothing. After a moment she brings one hand down and lays it flat in the place where her shoulder was, to see if she has left it warm.

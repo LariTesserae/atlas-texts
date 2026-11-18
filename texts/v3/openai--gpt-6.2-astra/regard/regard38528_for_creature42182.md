@@ -1,0 +1,23 @@
+In the night a piece of the bluff comes down. It is not a great fall. An alder goes with it, a young one with the bark still smooth between the eyes of the old side branches. It stands for a time quite upright at the foot of the bluff, some twelve feet lower than it stood before. There is a blue mark on its trunk where the lip of the bank has passed. Then the roots begin to come up on the landward side, very slowly, and by moonrise the alder is down.
+
+It lies across one of the places where the old hen goes to listen. The top is out in deep water. Halfway along the trunk a fork holds the peat ridge under, as a thumb will hold the edge of a wet cloth. When the note comes in the small hours the whole weight of the water on the far side of the mere comes on that fork. The peat gives. What had been a spit with a gravel hump at the end of it is now a hump standing by itself in water.
+
+The hen is on it. There is nothing to prevent her flying to the next. She has in fact been asleep, with her bill laid in the warm place between her shoulders, and does not wake until the water has gone down again. Then she sets out along the spit as usual and comes to the end of it. She puts one foot in. A few grains of gravel run down with the foot and continue to run after she has taken it out.
+
+There is something attending to her there. It has attended as closely to the worm that went down with the strip of alder leaf over it, and to the six that did not. Distance makes no more difference to it than to water passing between two beds in tune. It could put the spit back, to the very crossing of two cranberry runners on which the bird had stood the evening before. It lets the grains run.
+
+By daylight the hen has flown. The new cut has exposed a layer of very old iris roots, black on the outside, the colour of a pared apple within. Little sleeves of silt project from the broken ends. There will be feeding there for a week. On the other side of the cut, however, the gravel has slipped under a sheet of clay and stopped. There is a space beneath the sheet about as high as the thickness of a penny. Water filled it in the night. It is not one of the places that sound.
+
+Three young worms have washed in there. Already they have got as far as they can get, bracing their few bristles against the roof and drawing their clear bodies after them. There is food in the brown skin on the clay. It is a good place in every respect but one. The lip is higher than the back of it. Each time water comes over the lip a little more silt comes in, and nothing goes out. A brown seam has begun to close across the daylight.
+
+The power could take them out separately. For a while it attends to the middle one, in whose body a grain of mica is passing with perceptible difficulty round a bend. Then it attends to the blue sheet, to the load on it, to a white pebble at its lower corner. The pebble has lain on one of its three flat faces since there was ice here. There is another face on which it would lie nearly as well.
+
+It turns the pebble over.
+
+Very little follows, at first. The clay settles at one end and lifts at the other. A thread of brown water escapes sideways over the white stone. By the time the hen comes back there is a small fan on the gravel, beautifully sorted, with the coarse grains at the root of it and the finest out beyond the reach of her toes. She probes it once. The stone turns her bill.
+
+In spring there are holes all along the underside of the sheet. One of the three worms is no longer there. It went out on the second sounding after the fall and was taken, with a mouthful of flat weed, by a teal. Of the other two, one has made a passage so close to the white pebble that in clear water its blood can be seen through the wall, going steadily towards the blind end and coming back. The other has young. They come out by the side opening in the first warm rain, a faint brown whisker laid along the gravel, gone almost before it can be seen.
+
+The power is still about the mere. There are long intervals in which it does nothing that could be told apart from looking. The alder puts out leaves all along the upper side of its trunk. The old hen walks the long way to the new cut, though a bird coming to it for the first time would certainly fly. Where the peat has parted there is now a narrow current even when the beds are quiet. It passes over the white pebble with a sound too slight to carry.
+
+On a still morning the hen stands there with one ear down. After a little she moves a foot nearer.

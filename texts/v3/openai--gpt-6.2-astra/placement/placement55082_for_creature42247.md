@@ -1,0 +1,15 @@
+I would be the woman who comes to collect the dough. I would know where it had gone because there were four white finger-ends on the ladder and because, of all the people in town, the old man was the only one who could get the boy to sit still past supper.
+
+It is a fair nuisance to have taken it from the lump set aside for the morning. I stand by the shelf with my hand out. The old man puts the head into it, and of course I put my thumb just where they have spent all that time getting the nose right.
+
+The boy says something to me that he must have learned from me. We are quiet for a bit. Then the old man begins to laugh, almost without sound, and I have to sit down because the shelf is shaking under my hand.
+
+There is room beside him if I take my apron off; the apron rolled at my waist is what catches on the pole. I have not sat here since he took to his bed. I come six or seven times a day, to bring him something or take something away, and I had supposed I knew what he could see. From the shelf you cannot see the ovens at all. You see the lit hands of whoever is working there, appearing and disappearing around the jut of stone. He says he can tell mine by the way I open the fingers wide after I put a loaf down. I try the movement in the dark. There is an ache between two of the fingers that it eases. I did not know I did it.
+
+The boy wants another piece of dough. Instead I fetch the little pat of clay we keep wrapped in a damp rag for stopping the draught around the oven door. It is gritty stuff. I pick the largest bits out with my nail. This time the boy makes the whole animal, though from the shoulders back he is guessing, and when he has done he gives it to me to bake.
+
+I could tell him that an oven for bread will not fire a pot. Instead I tell him where to set it, high up on the ledge where it will dry without splitting. It stands there on its turned-out feet through the next day's baking. By the third day one of the bakers has hung a twist of thread over its back to keep the thread out of the flour. The boy objects. She takes it off.
+
+Some weeks later, settling a jar that rocks in its hole, I see one of the creatures myself. It is backing into the earth. Of the disputed nose I can see nothing whatever. But the hindquarters are there in good light, and there is a curious fold where the leg goes in, deep enough to hold a black crescent of dirt. I stay on my heels until it is gone. Then I bed the jar with a pinch of fine earth under the low side and go back by way of the warm shelf.
+
+The boy is up on the summit. I take down his animal and turn it about in the old man's hand. With the edge of his nail he shows me where he thinks I mean. A little lower, I say. There. We have no intention of altering the boy's beast without him. We are only trying to keep the place until he comes down.

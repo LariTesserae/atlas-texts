@@ -1,0 +1,17 @@
+The power that had noticed the hollow noticed this coming and going of the sun last of all. It had looked first at the great drop outside, and then at the burr. From some distances a burr and a precipice suggest much the same remedy. It was seeing the little toe let go in its sleep, in perfect security, that brought the power down to the scale of the place.
+
+It waited through the night. Toward morning the pink shoulder acquired a second face, rather darker than the first, and for a little while there were two quite good places for the flake to land. In one it lay nearly level. In the other it stood on edge in a cleft with just its burr showing. The young one woke and shifted its chin. Both places shifted a little too.
+
+There would have been no difficulty in giving the preference to the level place. The power had only to rest its attention there. Already, from having looked at it a little longer than at the cleft, it had brought out flecks of black in the pink which were not to be seen in the stone on either side. But the young one was doing something with its chin. The two pads were feeling along the metal, one above and one below, and where they met a little of the burr came off. The animal rolled it up against its palate. Under its throat a speck of yellow appeared and went slowly down.
+
+The power took its attention off the stone. The cleft came clear again. From its bottom, too far down to catch the sun, came the smell of an old root hair.
+
+What the power did then was to put a part of itself outside the hollow, well below the lip. There was a current of air there going up the face of the mountain. Every so often a tongue of it turned in under the lip and licked the pale floor, without moving so much as the meal inside a leaf. Presently, when the foil began to tip, the power let the current pass between two parts of itself. There was no change in the air that went into the hollow. But anything that came out would come to rest a thumb's length below, on something rather like the inside of a chin pad. It was the one surface the power had seen the mother use for holding a delicate thing without leaving a mark on it.
+
+The flake went into the cleft edge first. There was a tick a good deal louder than one would have expected. For a moment the little foot was actually on the shoulder; the short toe fitted the nick so closely that its nail showed pink. Then foot and shadow drew in together. At the bottom of the cleft the young one went to work on the hair. The foil stood in the opening above it, with a bright narrow space on either side. A second mouth could have got through either space. A third, with a little pressing, could have fed there too.
+
+All afternoon, below the lip, the power held out its soft part. Nothing landed on it. When the sun was cut off it drew the pad carefully back, lest there should be something on it after all, too small to have been felt. There was a single grain of metal in one of its creases. It returned the grain to the rising air.
+
+In the white patch the mother was asleep under her new roof. Several of the young, having found that the back wall of the undercut enlarged whatever was seen through the sac, had arranged themselves with their faces toward it. There was very little to see. A sister a short distance off looked enormous. When she opened her mouth the others opened theirs.
+
+The power went a little way down the mountain. It had learned the sound of a flake letting go and could hear it quite well from there.

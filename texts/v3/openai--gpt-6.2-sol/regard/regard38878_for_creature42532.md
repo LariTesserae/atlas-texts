@@ -1,0 +1,15 @@
+The power put its ear to the rivet and did not draw back. After a while it could hear a small, irregular ticking underneath the rest. It came from the moss carrier. There was a grain of glass under one of its plates. Every time it lowered itself to water the moss, the grain shifted.
+
+The power took the grain out. The carrier went on doing what it had been doing. At the bright end of the scratch it lowered itself, and the sound the plate made against the glass was different.
+
+There was much else the power could have taken out. It could have removed the clear animals from the current. There would then have been, for a time, a great many animals with nothing to catch them. The power watched a clear one let go of its scratch with one hook to catch something, and watched the young hanging from the other hook be swept almost to the slot. It waited until the hook was back in its scratch.
+
+Then it went along the service walk and looked at the mountain. There was water under the snow, some of it moving downhill so slowly that it would not reach the station in the lifetime of the keeper. Farther down, a fallen branch had caught across a runnel. Above the branch was a little bed of gravel, and below it, where the water came through, the gravel was already gone. The power went back to the rivet.
+
+Behind the ceramic bluff there was room. Not much: the spacer had been made a little short, and a washer took up the difference. The power eased the washer back. It opened a passage behind the smallest stone without detaching it, and laid a rough floor in the space beyond. The water that entered there had spent its force on the stone. It came out through three openings, none of them large enough to take an animal that had grown to its full size.
+
+The first thing to arrive was a dead mouth from under the overhang. It lay in the new shallows for a day and part of a night. Several white animals came after it. The first swallowed a ragged piece and the second got hold of the part that stuck out. The third came up too late. It nosed the other two, then went a little farther along the rough floor, where there was nothing at all to eat. It stayed there until the water brought it something.
+
+The power left the lamp alone. It left the copper fingers warm at their tips. Before it went, it caught a drop that was forming under the rivet head and held it against the nickel until the lip stood up again. Then it let the drop fall. It had looked into it first.
+
+By the time the keeper next came along the walk, the old shore was as crowded as ever. The water still tore through the slot. But behind the smallest stone a thread had come loose from the carrier’s back and lodged on the rough floor. There was nobody there to carry it. It lay well below the surface, too deep at first to put up a green tip. In the slow water a little silt collected against it, and the floor began, very slightly, to rise.

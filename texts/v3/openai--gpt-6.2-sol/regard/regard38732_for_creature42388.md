@@ -1,0 +1,11 @@
+The first night, it did nothing. That was how it learned that the little leaf was not stuck to the rock. In the last hour before morning, the rim lifted just enough to take in water. Then the pressure in the wall changed and the rim came down again. To peel it back, even a little, would have been to undo a thing that was working.
+
+The second night it followed the young down the wet stalks to the pump. They did not all go to the torn end of the root. One went back twice; another spent a long time at a bead of water caught under the housing. By morning the bead was gone and so was the animal. The power could not tell whether it had gone back up the stalk or dried in a place too small to see.
+
+There was a splinter of concrete under the tilted slab, with the grain of a board on one face. The power turned it over and set one end beneath the torn root. The other end rested against the rock where the seepage began. Water came up the grain in crooked lines. It took most of the night to reach the root.
+
+The first animal onto the splinter turned back. The second crossed and disappeared into a seam that had looked, until then, like a pencil mark. In the morning there were still two dry commas in the dust. The power had set the splinter too far to one side. It moved it the width of a matchstick.
+
+It came back in the hottest part of the following day. The grain was dry. It came back again that night and found a pale root hair laid across the concrete. By the fourth night there were five. By the time the eggs behind the leaf began to hatch, the splinter could no longer be moved without tearing something.
+
+The power watched one of the hatchlings make its first turn. It folded an edge of itself over, as the broad one did, but the fold caught on the empty skin of its egg. For a while it lay still. Then the wall gave its small pulse, the leaf bowed, and the skin drifted clear. The hatchling finished turning. The crease it left was so short that when the leaf hardened you would have taken it for a vein.

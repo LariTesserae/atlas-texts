@@ -1,0 +1,13 @@
+Plan to visit from above. A person of ordinary size can see nearly the whole country through the window at noon; getting any closer is mostly a matter of keeping your own shadow out of the way.
+
+Choose a fine day in late summer if you can. Take what you would take for a high pass: boots that hold on wet stone, a warm layer, drinking water, and a lunch you can eat without setting anything down. Aim to arrive a little before noon and leave yourself enough daylight for a leisurely descent. The second good hour to be there is in the afternoon, when the western seat has warmed through.
+
+At the top, stow loose things before settling in. Two people fit, but it is better to let one get comfortably seated before the other moves. The place to find out whether you mind the drop is a few paces back from it. Don’t take hold of the juniper peg to lower yourself. Whatever its original purpose, it now holds the only fixed point on the map.
+
+Give your eyes a little time at the window. If you see a grey circle, try watching one spot on its circumference instead of trying to follow it round. When the current changes you may get a perfectly clear look at the black seed in the instant before it goes the other way. The white pear on the horsehair is a good place to find your bearings again. Note which side of it a little scalloped cup is on, eat some lunch, and look again. A cup you took for part of the floor may by then be knocking about under the roof. For the snail, look less for a moving body than for the place where a clean line in the green ends. There is no need to tap the stone to make anything move.
+
+Keep crumbs, fingers, and the ends of straps well back from the water. A crumb scarcely worth brushing off your knee would be a considerable object down there. Leave the knots alone, even if you think you have guessed what they measure.
+
+If your travel arrangements include a means of becoming very small, leave it packed. There is scarcely a finger’s breadth between floor and roof, and jets cross that distance hard enough to spread flat against the stone. A walled pool may be quiet precisely up to the moment a mouth opens inside it. You could neither count on hearing a companion nor on finding the same shelter twice. The afternoon silver patch is not somewhere to breathe.
+
+It is, however, worth waiting for. When the first bubbles roll under the western seat, shift your gaze to the horsehair and sit still. For a little while you can look down into a mountain and see the mountains across the valley. Warn your companion beforehand about the wet popping sound at the end. It would be a pity to spend that minute explaining it, and worse to be startled into standing up.

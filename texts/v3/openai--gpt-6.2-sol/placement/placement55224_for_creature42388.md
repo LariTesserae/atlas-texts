@@ -1,0 +1,11 @@
+I’d come down with a cup. The pale ring on the shelf makes me think there used to be a reason to bring one, and I’d want to know what it was. But the drain cock would be too hot to touch for long, and the drops from the ceiling would keep falling just beyond my reach. I’d put the cup on the shelf. In the dark it would take me two tries to get it into the ring.
+
+I don’t think I’d stay the person who brought it. A person in that room makes a great deal happen just by standing still. Their shadow passes over the lamp. Their breathing moves the tip of a leaf. The little clear foot has to come out afterward and see what they’ve done.
+
+I might be the cup for a while. It would be easy to imagine years of standing there with nothing in me, getting warm all the way through. But I keep going back to the far wall, to the animal turning under the leaf. There must be a moment when it has folded its edge over but hasn’t yet drawn the rest of itself around. For that moment it occupies less of the leaf than it did before, and the leaf puckers into the space it has given up.
+
+I think I’d be that pucker, after the animal has gone on. As the leaf hardens I’d become a short crease, shallow at one end, deep enough at the other to catch the point of a fingernail. I wouldn’t cross a vein. In the morning, when the rim dries fast to the rock, I’d still have a thread of water in me. It would go back and forth a little as the pressure changed behind the wall.
+
+One of the young might come that way. It would have to go along me rather than across me, at least until it got big enough to fold itself. I’d like to think I’d know it by the change in the water, but I’d probably know it by what it ate. A clean streak would appear along one side of me, and by the next morning it would be longer.
+
+The cup would still be on the shelf. Much later, somebody might take it away and find a fine dark line across the pale ring: a root that had got under the cup while it was empty. I wouldn’t be there to see that. By then the leaf would have gone thin enough to show the grain of the stone, and at my deepest end there would still be a little of it the young hadn’t got to.

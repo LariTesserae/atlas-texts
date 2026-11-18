@@ -1,0 +1,19 @@
+I think I should be in the canteen to begin with. I should be the person who had to take the chairs down off the tables in the morning. There is one with a short leg. When you set it down empty it makes scarcely any noise, but put a hand on the near corner of the seat and there is the field, quite loud, in the palm of your hand. I should be a little late getting the others down.
+
+The man who said he would know the step came up once while I was doing this. I asked him to try the chair. He put his hand where mine had been and listened a bit.
+
+‘It's leaving one out,’ he said.
+
+I thought he meant the animal had lost a heel. But a soft foot comes down just as often as a hard one. What he could feel, he said, was a foot which came down every time and could only be heard every other time. He took his hand off and went to get his tea. There was a damp print on the varnish, with the pad at the root of the thumb particularly plain.
+
+I should like to be that pad of the thumb, if it were a question of staying upstairs. It gets a much better account of the field than the ear does. But on the rock behind the loop of cotton there is a small place where the blue flicker is interrupted. I think on the whole that is where I should find myself.
+
+It looks at first as though a bit of the blue had stuck to the rock. When the brown animal moves a little, the flicker goes with it and the bit stays. Through the lens it is a shallow cup, open towards the cotton, with a skin drawn across it that has sagged in the middle. There is a bead in the sag. One can see the skin very nicely by breathing on it, though the electrician only did this once. The weight of the moisture brought the bead down against the bottom of the cup, where it stuck for the better part of an hour.
+
+There would not be much of me besides the cup. I should have a soft rim to keep a hold on the stone and, underneath, a little bag of the stuff the bead is made of. I don't think I should hear the works at all. The cup and the rock it is fastened to go up and down together. What reaches me comes across the small interval of air from the cotton. A foot of the brown animal catches a loose fibre on the downstroke and lets it spring on the upstroke. It takes two such strokes to lift the bead. On the second it clears the skin altogether, turns over, and comes down with its other side uppermost. This is the knock the man feels in his hand. He is right about the step, though it takes two of us to make it.
+
+In the lens the bead would look perfectly round. In fact there is a flat on it, smaller than the working face of a heel. When the flat comes down it lies very snugly on the skin; when it comes uppermost there is room underneath for a little air. Something in the bag requires that little allowance of air, renewed pretty often. During the week off I should have got along poorly. Before the cotton lifted I daresay I got along poorly too.
+
+There is one thing I should be able to do. If the brown animal shifted so far that its foot missed the fibre, I could let go with one small part of my rim at a time and work my way round the rock until the mouth of the cup faced another loose end. It would take most of a shift. Seen from the hatch, the blue place would appear to have kept still and the flicker to have come back to it out of kindness.
+
+Upstairs in the morning there would still be the business of the chairs. Somebody would press the corner of the short one to see whether it wanted a bit of folded card under it. For the duration of that pressure I should have a pad to my thumb about the size of the works canteen. Then the hand would come off, and I should have my own dimensions again, with the bead just clear of the skin and time enough, before it fell, to turn over.

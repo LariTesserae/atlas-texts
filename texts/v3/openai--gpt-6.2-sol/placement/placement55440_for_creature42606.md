@@ -1,0 +1,11 @@
+I would be the cleft animal that went into the socket. The other one, down in the fan of water, would have been easier to see. For a day or two you might have been able to tell the two of us apart.
+
+The socket would be a poor fit at first. A root had torn out of it sideways, leaving a long splinter pointing into the space where I wanted to lie. I would get one section of my rim past it and have to withdraw another. All evening I would be finding out how much of myself I could put there. By morning the splinter would have softened enough to lie flat under me. I would keep the shape of it across my underside for several days.
+
+I wouldn't know the valley from above. An upright would be something that sometimes stopped the wood warming, beginning at one end of my body and proceeding to the other. Rain would arrive first as a change in the fit of the socket. The wood would close a little around me before any water came in. I would lift at the bottom to let it through.
+
+Once, when I was thin, I had lived between two layers that were still growing. There had been a loose thread of wood there that I could draw into my mouth. I ate it a little at a time. When it was gone I could still find the place it had come from, even after the layer above me had come down so far that I could no longer turn. In the socket, with room to turn again, I would go on feeding from one side.
+
+The fall would take longer to happen to me than it took to happen to the rim. For several nights I would put out a section of my edge toward a resting place that used to be there. The first time I reached far enough to find nothing, I would draw back so hard that water came out all around me. Later I would be able to leave a little of myself over the drop. It would be cooler there, except when the wind came up the face carrying the warmth of some terrace below.
+
+By then the two leaves overhead would be passing water between them most afternoons. Very little of it would come my way. Once a drop would run down the torn root and stop against my rim, and something in it would fasten to the wood. I would feel it let go when the next water came. The place where it had held would be no different that I could feel, but I would keep that section of my rim raised. Long after the drop had gone, a little air would still be getting in.

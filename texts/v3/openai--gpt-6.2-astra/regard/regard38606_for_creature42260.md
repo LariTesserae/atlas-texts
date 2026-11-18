@@ -1,0 +1,17 @@
+What first engaged the attention of the power was the dinner going cold on the sill. It had seen men wait at crossings while a load went by, and men who would not step across a chalk line until a bell had rung. Here was a man waiting for something he could quite easily have stepped over. It stayed to see what he was waiting for, and after he had gone down it stayed a little longer.
+
+From under the roof of stone the shelf was a rather different place. The running note was scarcely a sound at all. It was a succession of very small losses of purchase, pleasantly regular, which the foot made good without any particular attention from the snail. The underside of the plank had a taste at the upstream end quite different from its taste at the other. As for the great view, it occurred in one place only, as a disagreeable drying of the lip. The snail folded that much of itself in and turned a little to the left. The power, which could see the brown river quite well from where it was, turned with it.
+
+In the spring an order came up from the works to renew the crossing. The fitter brought up two iron brackets and a tread with holes punched in it to let the wet through. He set these things against the shed and tried the old wood with the point of his knife. The point went in to the haft. It was a wonder the plank had held him in the autumn.
+
+He had meant to take it out in one piece. It would do for the fire in the watch hut, once it had dried. He got his fingers under the sound edge, out of the water, and took the weight of it. On the downstream moss there were five white grains. In the light in which he was working these were perfectly indistinguishable from the grit that lay in hundreds of little bleached heaps all along the ditch.
+
+Here the power did something. It held the sun in the hole between two clouds for about as long as a man takes to change his grip.
+
+The fitter saw the shadow of one grain go up over the shadow of another. He lowered the wood. He went round by the pool, getting his feet thoroughly wet, and sat on the stone on the far side to have a look underneath. Presently he took his rule out. There was room for the tread a foot upstream. Indeed it was a better place for it; the man using it could put his hand on the doorframe as he crossed.
+
+There was a little trouble afterwards about the old material, for which there was a space on the return. He put “Left in water” and the clerk entered it under losses. The tread was a great success. Snow blew through it instead of piling up against the door, and the holes were just too small to admit the heel of a boot.
+
+The plank lasted another eleven years. One end let go first, so that for a summer it lay sloping, and water went over the saw marks where formerly it had gone under them. The big snail went all the way up this new water, cleaning a strip about the width of a barleycorn. At the top it came upon the dry end sticking up in the air, felt it a little on both sides, and came down again. By the time the other end let go there were white grains travelling on the iron bracket. In the wet each grain had a speck of rust on it, quite a handsome colour.
+
+The power came by occasionally. It did not keep the plank from going, nor the white chips from coming off the old shell when at last the shell was empty. One chip lodged in the first hole of the tread. For years after that a man going into the shed would sometimes put his weight on it in just such a way as to make a dry tick under his boot. He seldom heard it. There was a tremendous noise of water.

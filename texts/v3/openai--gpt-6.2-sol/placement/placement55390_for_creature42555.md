@@ -1,0 +1,11 @@
+I’d look first at the dish where the knock used to be. A foot downstream doesn’t seem far until you put your ear to the old shelf. There is still water going through the gravel. You can see a lip lift. If you’ve just come from the middle of the plain, you keep expecting the knock to finish what the lip has begun.
+
+I don’t think I’d be there, though. I’d be on the far side of the rise, under the ledge that drips. Not in the pool. The pool is where you could see a little of me.
+
+I would be brown where there was room to be brown. In one opening, not much wider than the slit in a closed eye, I’d be almost clear. A grain caught there would look as though it were caught in the stone. Farther in, the rock would open around a pillar and I would go around it on both sides. One side would draw well. The other would be a broad fold with very little passing through it. I could live a long time without anything happening to that fold.
+
+There would be a place where I met another skin. From the pool you couldn’t tell which of us was nearer. We’d lie thick against each other, and the water would go around. Then, over a season or two, the other skin would go slack at one corner. I’d take up the space it left. It might be the most growing I did in years: enough to put a crease into a hole where there hadn’t been a crease before. Nothing at the surface would mark it. The drop would fall from the same place.
+
+I like to think there would still be a lip somewhere in me that had once fitted a pebble. The pebble would be long gone. I wouldn’t remember it, but there might be a small curve in the middle of all that flatness, still good for closing around something round. Once in a while a grain would stop there. Most would be too small.
+
+If you lay down at the pool and watched the pale spot, you might think the fall of the drop made me open. After a while you’d see that I was already opening. The ring would pass, and a little later the spot would darken. Some drops would come so close together that you’d lose track of which ring you were following. By then your cheek would have been against the stone long enough that lifting it would feel cold. I’d be drawing water through the fold on the good side of the pillar, where none of the light from the pool gets in.

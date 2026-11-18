@@ -1,0 +1,27 @@
+There was a little dough left on the old man's thumb. In the morning the sparrow with the white feather took it, dealing him a considerably harder peck than was called for, and he had that to tell people as well as the business about the feet.
+
+The power that had taken an interest in the mountain lay for a while with its cheek to the summit. It could feel the mill quite distinctly through the stone. It could feel the much lighter knock of the stick against the wool as the women rolled up the dry screens. Below these went a movement too slow for anybody in the scoop to have noticed it. The lip was settling. A grain would come free inside the rock and go down a crack, bouncing for quite a long time before it lodged. There might be a year between one grain and the next.
+
+The power took a little of the weight on its shoulder to see what would happen. At once the fine ends of the roots under the tiles slackened. In the warm seam a passage no wider than a hair closed up; farther along, just at the back of one of the old people's beds, another began to open. One of the pale animals put its head up out of a run and waited, its front feet held quite still on either side of its face.
+
+Very gently the power let the weight back down.
+
+It went about the underside of the mountain after that. There were things of considerable beauty down there which nobody on the summit would ever see. Midway down the cliff, well below the flight of the vultures, a vein of green stone had broken across. In the afternoon the broken face threw a patch of green light on the belly of an overhang. There was a tuft of grass growing upside down in that light. The power stayed there till the light went off it. It was in no hurry; the lip would be sound for the lives of the people now under it, and for a good many lives after theirs.
+
+What it came back to was the ladder.
+
+The old man had not been on the threshing floor since the birth of the baby who had gone to the parapet in her father's coat. He could get as far as the ladder on his backside, with a folded sack under him, but he could neither descend it nor bear to be carried down it. Once two men had tried. There is a particular sickness in the belly of somebody who is being held rather carefully by people who mean to change their grips, and he had made them put him back.
+
+Near the head of the ladder, behind a stack of short oven wood, there was one of the old door-sockets. The power had felt, when it had its cheek to the stone, what lay beyond that socket. It did not cut steps, or lift the man. In the night it loosened a flake of the daub behind the wood. In the morning, when the baker's daughter took out a stick, a draught came through that blew the ash on its end into her eyes.
+
+She had some bad words to say about this. Then she put her eye to the hole.
+
+It took the better part of a month to clear the old way. There was a great deal of rubbish in it, including eight goat skulls and a nearly serviceable quern. It came out below the ladder with such an easy fall that they must once have brought laden animals through there. Not all of it could be opened to its old width. The roots of the nearest fruit tree had made use of the soft filling, and where there were roots the people left a long bench of earth undisturbed. The boy went ahead of the shovels in that part with his aunt's lamp. Once he held everybody up for most of a morning on account of a bit of eggshell which, by the light they had, really did look very like a face.
+
+The first use of the way was for getting flour to the ovens. The second was made by a hen, which took the turn at the foot too fast and slid a considerable distance on its breast in spilled meal. The old man would not try it with everybody looking. Three evenings later he got the boy to go with him, carrying the folded sack and a stick with a fork at the top that fitted well under his arm.
+
+He had forgotten the size of the threshing floor. From his bed he could hear a grain hit it, and in his mind it had got to be a little round place about as big as the top of a jar. Halfway across he had to sit down. The boy spread the sack for him in the shallow hollow where the first mill had stood.
+
+They were there when the bar of sun came in. It touched the old man's shoes first. He unlaced them and worked them off with the stick and the boy saw, with some surprise, that the toes of a very old person can be quite pink. For a while the old man had the sun up to his knees. By lifting one hand he could put it out of the light into the cool and by lowering it he could warm it again. He did this several times. He did not seem to mind the boy seeing him do it.
+
+Under the bench of earth beside the new way a pale animal was pushing a pellet of soil ahead of it with the flat of its head. It came to a place where the root forked and went left. The earth on that side had the degree of dampness it liked. The power felt it go, and felt the old man lay his hand flat to get the last warmth across all five knuckles. It had nothing to add to either sensation. When the boy went behind the ovens for a cup and came back with the dun lizard clinging to his sleeve, he found the old man sitting in the shade doing up his shoes.

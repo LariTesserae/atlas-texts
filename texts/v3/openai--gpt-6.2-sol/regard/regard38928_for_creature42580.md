@@ -1,0 +1,17 @@
+The power came in a dry week. By Thursday the man on the washing floor had only enough water at closing time to wash one hand with the other. He went home with a line of pulp drying around each wrist.
+
+Out beyond the freight sheds, the last bright pool was going down. The threads had drawn so close together that in some places they looked like a single dark stem. At the shallow end they were still letting go, one at a time, of the sedges. Each sedge came a little straighter when it was released.
+
+There was water under the railway. It had collected in the old ditch on the town side, where the felt workers used to rinse their barrows. From there it could reach the pool through a stone opening under the freight bed, but the opening had been stopped with a wad of felt. A woman whose garden lay below it had put the felt there in winter. She was tired of lifting her potatoes out of mud.
+
+The power could have taken the felt out. Instead it held up the water on the ditch side, a little at a time, until it stood against the crown of the opening. Then it waited. Nothing happened for most of the night. A moth came down to the ditch and walked on the dry part of a stone.
+
+Toward morning a thread came through the felt. It was not the first to try. There were several in the felt already, some long dead, with the grey wool grown into them. This one reached the water and went slack. A little later the ditch was lower by an amount that would not have shown on a rule. On the other side of the railway a sedge that had been standing straight began to bend.
+
+The power kept the water there until the woman came out to look at her potatoes. She was early because the ground was easier to work before the sun got to it. She noticed the ditch first. It stood high at the opening and nowhere else. She went around by the crossing and found, on the far side, a dark patch in the dust below the felt. She put a finger to it. A little way off, in what she had taken for dry ground, there was a ticking of sedge blades against one another.
+
+It took her two days to do anything about it. She had potatoes to get in, and when she asked at the felt works for a strip narrower than the one she had used, they gave her three strips all the same width. In the end she pulled the old wad out and set a piece of broken roofing slate across the bottom of the opening. It took a flat stone under either end to get it high enough. Water could pass over it toward the pool; coming back, it would have to rise nearly to the underside of the rail.
+
+In winter that proved to be too much. Water stood in the freight bed and froze around the ties. The woman and a man from the railway lifted the slate out, argued over which of them had put it there, and set it back lower. The bottom row of her garden was wet again after that. She put the potatoes farther up and grew nothing in the bottom row for a year. Then some roof moss she had thrown there took hold.
+
+The power had let go of the ditch before she fetched the slate. It did not come back to hold the water up in the next dry spell. By then the pool could do a little of that for itself. You could see it best from the crossing, in the hour when the rails had stopped shining but the water had not. The ditch would be dark its whole length except at the opening, where a narrow strip of sky stood on edge. On some evenings it stayed there. On others it thinned slowly from the middle, and a little way beyond the freight bed, among the sedges, the sky appeared again.

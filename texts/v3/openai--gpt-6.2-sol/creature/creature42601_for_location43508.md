@@ -1,0 +1,17 @@
+Something has been sleeping under the white line.
+
+When the pavement lifted, the line stretched without breaking. In the stretch there is room for a thin animal, and in places for two laid one over the other. You can see their backs where the paint has worn down: a row of dull knobs which could be aggregate until one of them works its way past the next. At the broken end of the road a blunt head hangs out in the water. It has been hanging there since before the lamps went dark. The grit wears one side of it smooth.
+
+They are not all thin. There is a broad one in the slot behind the flywheel. On each turn the wheel presses a crease into its side, and on each turn the crease fills out again. Its forefeet are planted on the edges of the slot. A little one shelters between them, in water so still that a scrap of red leaf has hung there all afternoon. The little one keeps putting a foot out into the moving water. Each time, one of the big feet lifts just enough to bring it back.
+
+None of them eats the leaves. They come out when the stone opens and put their mouths against the new faces. Their mouths are soft and square, and leave squares of dull rock, like places where notices have been peeled away. They are deliberate about this even in cuts that open for less than a second. When the faces come together on them there is a slight thickening in the seam. The next time it opens, they are farther down.
+
+The concrete post is where the young gather. At the first post there are none in sight. At the second, they crowd behind the reflector, and you can see the little white star moving as they try to get comfortable. At the third, one waits in the socket with both feet out. Hold the chip near it and it will take the chip from you. It will turn it over several times. What it wants is the blue glass, which is warm from all the bodies behind it. It has not yet learned which way to go.
+
+The broad ones come for the young when the pale front passes. They are hard to see coming. A stretch of leaves turns its white undersides up with all the others, then stays that way a little too long. Beneath it a back goes by, trailing clear roots. The young climb aboard by the roots. Some get only a foot on before the current takes them, and the broad one must turn and make the whole crossing again. From the shed this looks like a fault: one bed after another goes down in order, and then a bed halfway out goes down twice.
+
+As the needle rises, the animals leave the machinery. The broad one draws itself out of the flywheel slot last. It takes the scrap of red leaf with it, caught in a crease that no longer has anything to press it flat.
+
+They settle on the far side of the raised pavement, in the narrow shelter it makes against the sideways grit. The young fit themselves along the line. An adult goes slowly down the row, moving each of them a little, sometimes no more than the width of a foot. Where there is a gap it stops and puts its mouth to the paint. It waits there through the first few strokes after the sound comes back.
+
+At the third post, the one in the socket is still holding the chip. It has got it turned the right way now. It keeps trying to make room for both the chip and itself.

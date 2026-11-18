@@ -1,0 +1,15 @@
+In the dry month the woman who tended the pumps came down with a lamp to measure the water in the sump. There was talk of fitting an engine that could run the water off before the first bead got out of the crooked joint. She was to chalk a line at the lowest level the old engines could maintain. Above that line the brickwork was to be repointed. Below it, according to the sheet on her clipboard, there was nothing but gravel.
+
+The sump had an inspection glass, round and thick, green at the edges. She wiped it with her cuff. There was the usual appearance of weak tea, with a few bright scratches that moved when she moved the lamp and were therefore in the glass. She had put the chalk between her teeth.
+
+What the power did was to hold the light for her.
+
+It went on falling straight through the glass although she had shifted the lamp to her other hand. A little wedge of the gravel stood out very clearly. She saw what looked like a shaving from the end of a bar of soap creep sideways up a stone, stop, and draw a long hair through a number of hands. She took the chalk out of her mouth. By then the light had gone where it ought to go and was shining on her knee.
+
+She had worked in the laundry as a girl. There was a way to look for something small in moving water; you did not follow the thing but chose a spot and waited for it to cross. It had been useful when a pearl button came off in the rinse. She set the lamp down on a stack of old packing rings. After a while she found the stone again. It took rather longer to see the animal. When she did, its front end was hanging over the edge into the tea, and there were two of it. The smaller one let go. For the rest of her shift she saw neither.
+
+The engine went in that winter. There was good reason for it. In a high river the old ones had to run together, and when a belt went, people carried the linen up two flights wet. The new one had a float to tell it when to stop. There were five holes in the arm of the float and the fitter asked her which one. She had by then spent a summer taking levels. She showed him the damp line that remained on the brick in August, when there was no water to be seen anywhere in the square. He put the pin in the second hole. On the back of the sheet she drew the arm with the pin in it, for whoever had the job next.
+
+The new engine had a different beat. For a week or two the people going over the square had the queer sensation that they had left something running at home. Then it was simply the sound down there. The bench no longer ticked. In a good rise there was still time for water to come out upon the pavement, spreading first in the impression of a heel beside the pump housing, then in the shallow sweep of the dish. The figs went on dropping into it, some years a great many more than others.
+
+Under the bench a skin of brown things grew on the face of the mica. The shrimp worked along it until it came to the clean place where its own mouth had begun. It stayed there a little, passing water under its belly. Then one feeler went up and found another stone.

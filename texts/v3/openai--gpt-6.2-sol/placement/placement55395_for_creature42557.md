@@ -1,0 +1,11 @@
+I would come out from under the old one at noon, with somebody else’s foot through the bend in my leg. For a little while we would walk as an animal with too many feet, getting farther from the bowl without getting any better at it. Then one of us would stop and the other would go on. I think I would be the one that stopped.
+
+There is a clear wing caught under the cream plate. One end is buried in dust; the other rises a little every time the conveyor knocks. I would spend my first afternoon trying to eat it. I would turn it over, work along the branching ribs, turn it over again. It would take me a long time to find the small patch at the root that the animal before me had missed.
+
+That is where I would end up living, though not under the wing. Behind the plate there is a place where the rock falls away from the enamel by just enough to take the length of me. I could stand there with my feet on the stone and my back against the plate. The narrow animals would go by underneath. I would know which way they were going by which side of my legs they brushed. Now and then a wing would come through edgewise and I could stop it with one foot.
+
+One day the conveyor would stop between knocks. With my back against the enamel I would feel a much smaller tapping, too irregular to have been there all along. A mother would be walking on the other side of the plate. She would come to the lifted corner and put a foreleg through. There would be room for the leg, and then for the narrow part of her head. The wing I had been feeding on would be in her way. I would feel it turn under my foot and lift my foot to get a better hold.
+
+She would pass. I would get the wing back.
+
+Later, after the conveyor started again, the first of her young would come down the back of the plate. It would be small enough to walk along the raised rib of the wing without bending it. At the root it would put its head down to the place I had been feeding. I would move my foot to the bare stone. In a little while there would be nothing at that end of the wing worth holding on to.

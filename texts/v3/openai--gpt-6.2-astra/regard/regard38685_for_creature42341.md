@@ -1,0 +1,31 @@
+There was one house in which the floor had begun to go wrong. The fault was quite small. Two people testing it in the customary way would have passed it as fit to live in. It was lower down, at the height of a child lying on its face, that a little distance had got in. A cup lying on its side would roll across the floor at a quite even rate, except that between one turn and the next the lip would take a long time to come round.
+
+A power able to attend to such things noticed the cup. At the time, its attention was on the snail. The scrap of leaf to which the snail had been persuaded to attach itself was going round in the backwater beside the sill, and the power had been waiting to see whether the snail would go on eating as it went round. It did. On perhaps its thirtieth circuit the leaf caught against the stone. The snail went on eating. There was no very evident difference to it between a voyage and a meal.
+
+By then the cup had rolled under a person's knee, and the person, who had been asleep, picked it up and set it upright. In the morning the two who had chosen the house would come there to stay. One had already laid by a quantity of leaf for the first few days when neither would care to go out. There was no wedge under any of the stones.
+
+The power put a finger on the roof. That made the floor true at once. It also stopped the narrow seam a little way to the west from singing. Two people feeding at the seam lifted their heads, with their frills still out and the yellow threads hanging from them. The power took its finger off. The note went on from where it had left off; the two put their heads down again.
+
+For the remainder of the night it tried the weight of the roof in different places. It learned a good deal about roofs and about the difficulty of doing any one thing on that plain. Toward dawn it could have set the stone exactly right. In another fifty years or so, as a consequence, a good house in the east would have been out by the breadth of a nail. In the time it had taken to discover this, the sleeping person had got up, folded the leaves into the frill and gone away. It was a little while before the power understood that this person, too, had noticed the cup.
+
+At first light the two came back. One stayed outside. The other, the one who had slept there, lay down on the floor with an ear in one bowl and set the cup rolling out of the other. As it went by they gave it a smart rap with a fingernail. It made a pretty noise, surprisingly deep for so little a thing. The one outside had a hand on the foot of each of the uprights in turn. They did this for most of the morning. Once, when the cup came round with a fleck of purple on its rim, they interrupted the work to find out where that had come from. The snail had got in. They put it out again.
+
+It would have pleased the power to show them what it had learned in the night. There was some vanity in this, as it presently recognized. Neither of them was trying to move the roof. What they wanted to know was where the trouble went when it went out of the house.
+
+Late in the afternoon the one outside got a finger into the hairline at the back of the sill. The other sent the cup across once more. Halfway over, the cup rang without being struck, and out of the hairline, between the finger and the stone, came a bead of perfectly cold water. Both people laughed. They had been expecting nothing of the kind. The one with the finger in the crack said something which even a power with a considerable acquaintance with languages could not make out through the rock.
+
+Here at last was something it could do. It held the sound a little while in the underside of the lintel. When the rain slackened the words came down quite distinctly into the house.
+
+“Fetch the cup.”
+
+The person inside fetched it. The one outside looked up at the lintel. After a moment they said, very quietly, “Again?”
+
+This time the power held the word until the person had gone in and settled in the opposite bowl. *Again?* said the lintel, in that familiar low voice, overhead. The two sat for some time looking at one another. Then one went out to the crack and the work began in earnest.
+
+They did not mend the house that day. They did not mend it the next. They went elsewhere to have their child, to a house so small that in pouring from the roof one was apt to get water in one's eye. But at intervals one or other returned with a cup, and sometimes quite a number of people came. They found that a sliver of lining left to curl in the hairline would draw off the cold water. They found that it mattered which way it curled. They found out what happened at the western seam, and rather later a traveler from the east came to sit with them and had something to say on the subject of wedges. Throughout these proceedings the lintel gave back what was said under the roar, provided the speaker touched it first. There were, after all, things said in the course of fitting two stones together that nobody particularly wanted to hear again.
+
+Much later, when the floor had held good through a whole season of rain, a child was brought there. Not the child for whom the leaves had been put by; that one was out on the plain already and had a taste for the deepest notes. This was a small, rather solemn baby with one foot still creased from its lodging under the frill. It made a circuit of the floor on its stomach. At the sill it stopped. A white snail was making its way along the inner edge, leaving a track so fine that it dried up at one end almost as fast as it was made at the other.
+
+One elder put up a hand to the lintel, meaning to tell the other to look. The other was looking. The hand came down without a word.
+
+The power had stayed, on the whole because it liked the place. It had come to know the feel of fingers on that stone, the firm pressure of a message and the two absent-minded taps with which a person sometimes concluded a difficult bit of work. It had learned to do nothing at all in answer to a caress. Now it attended to the baby, who was following the snail with its nose so close to the floor that every little while the snail touched it with one horn and drew the horn in. They got all the way from one bowl to the other like that. It took a long time, and it took just as long as it took.

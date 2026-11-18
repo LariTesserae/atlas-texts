@@ -1,0 +1,15 @@
+There is an animal in the room that comes apart twice a day.
+
+Most of it lives in the hollows on the far wall. In each hollow there is a row of soft gray knobs, smaller than the heads of the brass bolts. They have the grain of wet brick and are about as cold to the touch, even in the warm water. If you put a finger on one it goes flat. The next one goes flat a little later. Farther along the wall the same thing happens, though by then you have taken your hand away.
+
+For most of the day the knobs feed separately. Each puts out a little lip on the downstream side and takes what settles behind it: a speck of grease, the soft belly of a midge, now and then something too large that it spends an hour trying to swallow and finally lets go. The shrimp pulls these things out of the lips. It has lost one of its small claws doing this, but the new claw has grown in narrow enough to reach farther than the old one.
+
+As the water warms at the change of shift, the knobs let out threads. The ones near the inlet let theirs go first. Some threads are caught almost at once by the next row; others stream all the way to the roof and have to come back. For a few seconds the animal has a shape out in the room. It is wider at the top than at the bottom and full of holes. The blue flake goes through it. Bubbles go through it. Grit lodges at the crossings and makes the threads visible in the green light.
+
+During those seconds a touch anywhere reaches the whole animal. The loose washer strikes a thread near the wall and a lip under the lamp closes on nothing. The shrimp, if it has ventured out, is lifted a little way off its feet. Once the bright curl of wire caught and drew the entire thing crooked. A knob tore free. It traveled up through the iron throat with a surprising length of clean white root behind it.
+
+Then the new current takes hold. The threads break at the wall and go out in a loose bundle. For the rest of the shift, a touch has to travel from knob to knob again.
+
+The missing knob left a patch of brick no bigger than a thumbnail. The shrimp began to go there after feeding. It would stand with its back to the current and work its legs over the pale patch, picking off whatever had collected. In time another knob grew at the edge, and then a second, so close that the shrimp had to turn sideways between them. The animal is slow to occupy a bare place. It is slower still to give one up.
+
+It has never grown over the white mark made by the sounding chain. At the change of shift, just before anything loose begins to rise, the knobs around that mark fold flat. They do it in order, starting at the center and going outward, the way they did when the chain was there. Then they open and put out their threads. The chain was taken away years ago. The shrimp, which was not alive when it was there, knows to wait in the white place until the water turns.

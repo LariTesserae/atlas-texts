@@ -1,0 +1,25 @@
+For a power able to feel a contact on either side of an inch of stone, it was surprisingly difficult to know which of the two had been holding up the headboard. The pressure was precisely equal. It was by attending to what happened after the old man moved the bed that the power came to understand. The animal tried the plaster twice more on succeeding nights, then ceased to try it. The man continued to turn over rather carefully for the rest of his life.
+
+There were a number of things the power might have done for the rim. It had at first been inclined to do something about the dust. By the time it had followed a single grain from the plain, across a windowsill, through a walker and as far as the clean inside of a roll of skin, it had given up this idea altogether. It took particular care, in withdrawing its attention from the grain, to leave it just as appetizing as it had found it.
+
+What it eventually did concerned the old parcel room. This was to be brought back into use. Since the mail train had begun carrying passengers down the face in the mornings, there were a great many more parcels to be kept overnight, particularly things which people had meant to take with them on the train. The new floor was to be supported on a row of short piers set through the first seam into good rock below. There was plenty of room between the piers for an animal to pass. The woman from the engine house had been down with the builder to see to that herself.
+
+There was, however, a peculiarity about the seam which could not be seen from either end. Just here it was two seams. For a distance of about nine feet a flake no thicker than a dinner plate lay between them. The bike racks could go over this flake or under it. It generally went over. The small animal went under, and in the middle, where a foot of the larger animal rested for an instant on the flake, it would put up a foot of its own. The two would stay like that for a little while. Possibly it was teaching the small one to test a roof. Possibly there was some satisfaction in being on the other side of the roof for a change. The power, which could distinguish their separate weights down to that of the dust adhering to a nail, was unable to settle this question.
+
+The middle pier was to go straight through the flake. This would not bring the parcel room down or interrupt the air. It would put an end to something which took place for a little while in the dark and of which there was no other example, so far as the power knew, in nine hundred miles of cliff.
+
+On the morning before the work the woman’s father asked her to fetch a box down from the top of the wardrobe. It had his good cuff links in it, and he wanted to wear them for his grandson’s first trip down the face with passengers. Under the box was a folded sheet of thin paper. The woman put it back on top of the wardrobe.
+
+This was something of a disappointment to the power. It had spent most of the night getting the sheet out from behind the wardrobe, a business requiring the use of the faint current of warm air from the belts downstairs. It would have been quite easy to have put it in her hand. There would then have been, for the remainder of the woman’s life, the difficulty of accounting for a piece of paper which had put itself in her hand.
+
+The old man, doing up his second cuff, asked what the paper was. His daughter got it down again. It was a rubbing he had made as a boy of the brass weight table on the parcel scales. On the reverse, in the square writing of the old station engineer, was a section through the foundations. In those days paper good enough to take a rubbing was not commonly thrown away with one side blank.
+
+“Two floors,” said the woman.
+
+“There were two prices for a crate of fowls, too,” said her father, who was looking at the other side. “According to whether they were still in it.”
+
+She took the section downstairs. By lunch the builder had been into the seam with a light on the end of a rule and had seen the edge of the flake for himself. He moved the middle pier eleven inches towards the scales. It put a slight dogleg in the passage to the sorting bench, a thing which the parcel clerks were to attribute, with considerable justice, to the engine house.
+
+That evening the power attended to the flake. The large foot came down; presently the small one came up. For the first time it noticed that the small one did not put its nail exactly under the other nail. It put it a little to one side, so that the flake rocked. After an interval the large one shifted its weight and rocked it back.
+
+The power stayed for three more evenings. On the fourth it went elsewhere. There was no occasion to stand over them, and at the lower end of the line a quantity of swept-up grit had been put in a dustpan whose sides were rather high.

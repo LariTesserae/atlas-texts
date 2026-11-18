@@ -1,0 +1,15 @@
+The thread runs out within a foot of the hook. There is water a little farther on. Between the two wet places is a scale of stone, sprung up at one end, under which the water goes without showing itself. The animal follows the edge of the scale for a while. Then it goes round the other way. Going round takes it very nearly to the lip. A seed at the back of its roof hangs out over all that air.
+
+What has come to look at the mountain sees the water under the stone. It sees, all at once, the several places where the water will come out, and the old bed half a mile off from which the animal came on a bird's foot. It could put the animal down in that bed with the same side of its roof toward the wind. For a moment this seems the thing to do.
+
+But lying against the scale, the animal has lifted the front of its foot. Two lips of amber, fine enough to be transparent even where one overlaps the other, are feeling along the underside. They find a grain of sand. They let it go and find another. At the third grain the edge of the foot darkens. There is damp there, though not enough to bring away.
+
+The visitor has never had to find water with a foot. It attends for a while to what that is like. Much of what is evident from above is of no account down there. The green stain just beyond the scale might as well be in another valley. On the other hand there is a considerable difference, quite lost to the eye, between the landward and the seaward face of a grain of sand.
+
+It takes hold of the end of the scale. It does not lift it. The stone has been lifting by itself for years, a little more each time the water freezes. Instead it presses down, no harder than a bird settling its weight from one foot to the other. A dark line comes out from under the edge. It lies against the amber lip. The animal stays quite still until there is enough water to go on with. Then the whole foot comes across, the hind end last, drawing after it a bright hem of water that joins the two places.
+
+On the stain it feeds for a long time. The visitor lets the stone go. Nothing remains of the crossing except the thread the animal has made for itself, and that is enough to get back by.
+
+In the course of the next dark the seedling opens. Its first fan is a poor affair, with only one pleat and no joint to speak of. When the others lie down all over the basin it stands straight out from the rock, and the rime on it is so much heavier than the leaf that it bends under the weight. The tip comes to rest on the animal's roof. There is a small confusion when the air slackens and the animal sets off with the leaf still frozen to a seed. The visitor, which has stayed to see the fan open, very nearly puts a hand to it. But already the warm strip is working. The ice gives way. The leaf springs up and sheds a single drop, large in proportion to anything that has grown here yet.
+
+It lands on the bare upper face of the scale. Some of it goes one way and some the other. In time there will be a little writing there, too.

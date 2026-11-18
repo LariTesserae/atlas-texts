@@ -1,0 +1,15 @@
+I think I would come down with the clay. I’d be the one at the back of the load, calling out the steps to the one at the front, who couldn’t see them. At the bottom we’d set our end of the pole on a stool and unwrap just enough of the wet cloth to let a potter put her thumb in. For a while I’d know the city chiefly by what people bought from us. I’d know where the woman who wanted the grey clay lived and where the man lived who bought a lump no bigger than an egg every week. I’d suppose he made very small pots. Much later I’d see him use it to take an impression of his granddaughter’s new tooth.
+
+I’d mean to go back up with the empty cloths. What would delay me, the first time, would be a potter asking me to wait in her house for a man bringing a shelf. She had to go to the market, and the man had already carried the shelf to the wrong house once. It was a long shelf. She didn’t think he would carry it a third time.
+
+While I waited, the house moved. I’d be sitting at the door with my feet on the street, eating something I’d brought down in my pocket. I’d see a little copper hook on the opposite wall go past, slowly enough that I could have walked alongside it. There would be nothing I needed to do, which I would find difficult. I’d get up and move the potter’s drinking jar away from the edge of the table. Then I’d move it back onto the pale ring where she kept it.
+
+The man with the shelf would get there before she did. He would come up behind the house and knock on the back wall with the end of it.
+
+“Did she tell you how to find us?” I’d ask.
+
+“No. I saw you eating.”
+
+I don’t think I’d become particularly good at finding my way. After a year I’d still sometimes walk straight to the place where I last saw a house, though I’d been told over breakfast that it wasn’t there. But I’d become somebody people asked to wait. For the woman who could mend a jar without emptying it. For a daughter coming down the stair who had never been below the first landing. Once in a dark house for a grazer that had gone behind a chest. The child who asked me to wait for it was quite clear that I wasn’t to get it out. I was to tell him which way it went when it came out by itself. It went back the way it had come. He asked me to show him, and I put two fingers on the floor and walked them along the wall. He said it had more feet than that, so we did it together.
+
+My own room would be at the back of a house near the old river, with a door whose bottom corner stuck on wet days. I’d keep meaning to shave it down. On the other side of the wall someone would be learning a tune, and there would be a place in it where they always stopped and went back. On evenings when I got home before they reached that place, I’d leave my sandals on and stand a moment with my hand on the door. In time they’d learn the tune. I’d still be coming home at about that hour, and for a few weeks, without quite knowing why, I’d find myself pausing there anyway.

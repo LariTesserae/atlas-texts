@@ -1,0 +1,9 @@
+The bead fell. It struck the lip of the pool and broke, and the little shrimp went into the dark with one foot still lifted.
+
+The power could have caught her in the air. Instead it held the chipped edge of a grain of bearing grit steady while she found it. She put down the lifted foot. The water pulled her round until she faced into it, and after a while she let go with one hook and reached for the next grain.
+
+There was something wrong with the collector. The power took a long time over this, because much of what a repair would once have put right was now keeping the ravine alive. The ear-shaped pool was a fault. So were the hollows in the ribs, the light that failed to go out, and the slow return of water through the outlet. But the hard snap at the end of each test came from a washer that had gone brittle. The washer had nothing living on it. It could be made soft again.
+
+At the next test the walls flexed. The pool emptied and the red larva held fast to its lip. But the plate did not snap back. Water crept up through the outlet, lifting the smallest grains first, and halfway down the number a narrow shelf stayed wet. The mother stood there with her feet bent. For the first time during a test she could let go with the hindmost one, and she drew it slowly through the eggs.
+
+The power stayed until the foot in the empty socket unfolded. By then the little shrimp had found the spaces between the printed stones. She had also found a strip of film on the underside of a rib. She took it by the loose end and backed away, chewing. It was longer than she was. Twice the current laid it across her eyes, and twice she stopped and waited for it to lift.

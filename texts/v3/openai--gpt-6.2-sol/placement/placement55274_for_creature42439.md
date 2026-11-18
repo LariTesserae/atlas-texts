@@ -1,0 +1,9 @@
+I think I would be upstairs at first, holding the lamp. I would see the person at the bottom open their mouth and, because I couldn’t hear them, assume they were asking for more light. I would lower it until the oil touched the rim. Then they would come up a step and say, quite quietly, “Put it back where it was.”
+
+I wouldn’t be much use in the room itself. I’d want to set something down on the shelf. I’d want to put my thumb in the hollow. If I saw the young going left, I’d move the lamp to see what was on the left, and my hand would be the largest thing that had happened to them all morning.
+
+Farther down, under the higher of the two stones, there might be a grain of fired clay. Not a piece big enough to tell you anything about the pot it came from. Someone swept the chips aside with the heel of a hand before laying the floor, and this one caught in the bed of mortar. It has a blunt end still buried and a fine edge out in the water.
+
+I would be that edge, or what the water does at it. The clear cord would land exactly where it always lands. A little of it would pass through the seam and meet me, and there, on the underside of the stone, it would turn. The turn would be too small to show in the white line. It might be enough to wet the next crease along, or to keep a fleck of soft food from washing out of it. I don’t think I’d get to know whether it had anything to do with the young going left.
+
+One of them goes right. It puts a leg down where there is nothing, draws it back, and tries nearer the stone. For a while it seems to have stopped. From below I could feel the water pause against that one leg, then reach me again.

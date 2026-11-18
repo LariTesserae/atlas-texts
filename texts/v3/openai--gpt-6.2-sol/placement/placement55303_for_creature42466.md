@@ -1,0 +1,13 @@
+I’d come down to change the lamps. For a while I’d think that put me at the far end of the quarry, but there’s very little of the job at the far end. Most of it is carrying a tube there without breaking it.
+
+The first time, I’d walk straight toward the dead lamp. From the stair that would look like the shortest way. I’d get down two shelves and have to come back up one, with the tube in its cardboard sleeve under my arm and both hands wanted for the stone. The woman who reads the gauges would show me the way on her next round. At the standpipe she’d point not toward the lamps but toward a pale cut in the bench to our left. We’d go almost a hundred yards in what looked like the wrong direction before the floor came up to meet us.
+
+I’d get to know that cut. There’s a place where you can put one end of a tube down on dry stone while you get your defenders seated properly. A little farther on there’s a patch that looks just as dry and leaves a dark ring on the cardboard. I’d keep using the wrong patch for a surprisingly long time. Coming back empty-handed, I’d always see the right one.
+
+The wall behind the lamps would disappoint me. I’d expected it to be higher, for one thing. The bottom is cluttered with offcuts that nobody had reason to carry out. When I took the cover off the first lamp I’d find a date inside it, and beneath that another date that somebody had tried to rub away with a thumb. I’d put mine beside them. Back at the stair I’d turn to see how the new tube looked. It would already be impossible to tell which one I’d changed.
+
+After a few visits I’d start bringing my tea. There’s a spot below the pale cut where the bench is low enough to sit on. The stone is cold through work trousers, so I’d flatten an old tube carton and keep it there, folded under an overhang. I wouldn’t be able to hear myself swallow. I’d learn to unscrew the flask cup over my knee because anything I set beside me slowly tilted toward the seam.
+
+That’s where I’d be on a Tuesday when nothing needed changing. The gauge woman would come along above me, taking the route she’d shown me, and I’d see one of her heels from underneath. I wouldn’t have known it was possible to see the sole of a person’s boot from there. In the gap behind the heel there’d be a little green, quite distinct against the black rubber. I’d raise my hand, though she’d already gone by.
+
+The following week I’d sit a foot farther out, where she could see me. She’d stop at the cut and hold up the brush from the standpipe. The string had broken. I’d have a bit of cord in my tool bag, but it would be too thick for the hole in the handle. She’d come down and sit on the other end of the cardboard while I shaved the cord to a point.

@@ -1,0 +1,17 @@
+The animal under the leaf is a female. The black points are eyes, though in that much light she keeps them turned toward the peg. She eats the green scrap from underneath, leaving the upper surface entire. By the time a leaf looks eaten, it is usually empty all the way to its tip.
+
+She can swim. In still water she swims badly, with her hind legs spread and her head a little lower than the rest of her. The straight crossings are somebody else’s work.
+
+There is a second animal in the room, long enough to touch both walls. Most of the time it touches neither. It has a soft, flat body and a stiff white joint at either end, and in the clear part of the water it is nearly impossible to see. Look at the peg through it and one of the knife curls appears to have been cut the other way. Then the animal shifts and the curl is as it was. The joints are easier to see, but they look so much like the flakes coming off the shelf that there is seldom any reason to follow them with your eyes.
+
+When the blow comes, the long animal folds. One joint goes into a seam; the other whips across the room. For a fraction of a second the whole clear middle moves sideways in one piece. The little female knows to let go at the beginning of this. If she holds on until the peg shudders, she loses a leg. She has already lost two on the same side, which accounts for some of the trouble she has in still water.
+
+The long animal does not cause the blows. In the first days it took them wherever it happened to be, and the new corners cut it. Now it spends the intervals fitting one joint and then the other to the walls. It prefers a low step with an overhang. Where there is no step, it keeps its joint spread flat against the stone until a flake lodges along the edge. Another catches on the first. In this way it gets a purchase. Its work is ordinarily good for three or four blows. The little stair was an unusually bad job: each step put the next one just out of reach.
+
+It has better luck with wood. The pegs were driven from outside, when the seam was open wide enough for a hand. Whoever put them there pared the ends down but left the shoulders rough, and the animal can get a grip on them even after the room has shifted. It used the middle one until the grass softened. Now, at the approach of a blow, it slips a joint through the loop and opens it on the far side. The grass takes some of the strain. This is why the loop lasts. The animal could pull it off the peg with very little trouble, but when the blow is over it takes its joint out the way it put it in.
+
+At the lowest peg the female has laid nine eggs in the hollow under a leaf. She goes back after every crossing, making the return trip along the walls, even if that means going the long way over the shelf. Once she came back to find the peg gone. She searched its hole and the fresh face below it until the next blow carried her up to the slit. The long animal had the peg there, pinched across its middle. The far end was wedged against the lip of the room, where the water had begun to bulge into the snow.
+
+She climbed onto the wood. The long animal let the blunt end swing down, felt about for a crack, and pushed it in. The new position was a little higher and the leaf faced the wall. She had to go in backward to reach her eggs. Two had come loose; she ate those and settled over the others.
+
+The animal stayed at the peg until the water drew back. It had found a good crack this time. For the rest of the storm, when the blow came, that end of the room hardly moved.

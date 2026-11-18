@@ -1,0 +1,11 @@
+I think I would live behind the door the two sisters share. I’d be the one whose kitchen you have to cross to get to the baby.
+
+When we put up the partition, my sister asked if I minded losing the window. I said no because I worked nights then and thought a dark room would be useful. I don’t work nights anymore. In the afternoons I sometimes go in to borrow her scissors and stay a while after I’ve found them, looking down at the yard. There’s a driver who gets out of his cab every day at the weighbridge and stands with both hands on his hips while the numbers settle. From upstairs I can’t see the numbers. I can tell when they’ve settled because he takes his hands off his hips.
+
+I mend the gloves the pump crew leave on the bottom of the supper cart. I used to give them back in pairs, but nobody wanted a pair so much as they wanted the left one they’d already worn soft. Now I mark the cuffs before I start. The woman who brings the cart up sometimes sits with me while I work. If she’s had enough of standing she sits well back in the chair; if she’s only stopped to tell me something she sits on the front edge and keeps her apron on. I’ve learned not to clear a place for her until I see which way she sits.
+
+The baby has started coming out on her own. There’s a strip of aluminum under the partition door that she won’t crawl across. She puts a hand on it, lifts the hand, and calls. If I’m in the middle of a stitch I call back and finish it. Some days, by the time I get there, she’s gone over the strip and is halfway to the flour tin. Other days she’s still waiting, sitting squarely on her side with both feet out in front of her.
+
+Last week, when the pump stopped, I heard my sister in there saying my name. I went in thinking she needed me to take the baby. She was lying on the bed with the baby propped against her knees, showing her how to say it. She went on after she saw me. I stood in the doorway with a glove turned inside out over my hand. The baby watched my sister’s mouth very closely, then looked at me and made a small throaty sound that didn’t resemble my name at all.
+
+“Yes,” I said, and she reached for the glove.

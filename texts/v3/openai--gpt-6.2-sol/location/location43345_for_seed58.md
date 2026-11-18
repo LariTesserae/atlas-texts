@@ -1,0 +1,13 @@
+The newest street in the city is below all the others. It runs forty paces from a freight lift to a wall of black rock. It has a gutter, two addresses, and no sky.
+
+The rock was cut so recently that the drill marks still end in little hooks. Along the foot of the wall, flakes of stone lie where they fell, sharp enough to catch the hem of a trouser leg. The masons haven’t swept them up. They’re waiting to see which cracks open when the works come fully on.
+
+There are three floors of machinery in the height of the room, though only the bottom one has a floor you can walk on without turning sideways. Iron stairs thread between ductwork and the brick backs of the two buildings. Their upper windows have been painted white from within to reflect the work lamps, so that from the street it looks as if people are up there keeping late hours. In fact, one building houses the motor windings and the other is mostly full of warm salt.
+
+The heat is worst by the lift, where you still remember the temperature of the air above. Farther in, it becomes possible to tell one kind of heat from another. The brick gives it off evenly. A leaky inspection door breathes it against your ankles. Under the insulated pipes you can stand in a narrow cool strip, provided you don’t lean back.
+
+Most of the gutter is dry. What water there is comes down a disused cable sleeve from a much colder level, one drop at a time. It falls just beyond the lip of the gutter and has made a damp oval in the dust. A few pale fern fronds have come up there. They are the only green on the street, and the shift crews have laid a broken tile beside them so nobody steps on them while reaching for the light switch. Nothing lives in the gutter. There are no wings around the lamps.
+
+At long intervals the whole place changes its posture. A valve opens somewhere behind the salt store; a hanging chain draws taut; the needle on a gauge begins its slow walk back to zero. You hear the metal move, then the click of the gauge, then nothing for long enough to hear the next drop hit the floor. The biggest motors sit on beds of cork. From the street you know they’re running because the white windowpanes tremble faintly in their putty.
+
+There is a bench against the end wall, built before anyone knew quite how hot that wall would get. Nobody sits there now. The chalk line for the next excavation runs straight through the bench and up over its back. Beyond it, the stone is warm and rough and close. Eventually there’s to be a stair through to the lower market. For now, anyone coming down with a parcel has to walk the whole length of the street, read both numbers, and come back the way they came.

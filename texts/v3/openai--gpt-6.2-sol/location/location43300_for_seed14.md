@@ -1,0 +1,9 @@
+The valley lies under a mile of cold water. Its hills have worn so low that you could cross one without knowing you had left the plain. A few ridges still show where the rock was harder, but the current has rounded even those. Their crests are bare and dark; on the sheltered side, the mud comes almost to the top.
+
+There is open ground for miles and hardly a grain of it is still. The current lifts the uppermost layer of silt, carries it a little way, and puts it down again. Along the low ridges it forks and doubles back, making eddies that unravel before they have traveled their own width. A sheet of mud peels from a slope and runs downhill in a broad, slow fold. When it reaches the bottom, the water there is already moving the other way. Clear water comes and goes in narrow seams between the clouds.
+
+Under a light, the water would look crowded enough to touch: mica flakes, fragments of shell, pale scraps fallen from the upper sea. Some have hung here so long that their edges have gone soft. Below them the bed is packed hard. The newest mud is scarcely a skin over layers that have not been disturbed in centuries. The valley can disappear in a storm of its own sediment and come back with the same outline.
+
+Nothing green grows here. There are little colonies of white sponges on the ridges, most of them on the lee side, their rims frequently buried and exposed. Farther out, a brittle star works an arm free of the mud and lays it across the bed. Once in a long while a fish passes low over the plain. It has only to tilt a fin to rise above a rush of sediment; when it settles again, it is in another part of the valley entirely.
+
+For all that movement there is little to hear. The silt is too fine to rattle, and nothing breaks the water into foam. Now and then a loose shell taps against stone. There is a long interval before it taps again, and by then the current has carried it too far for the sound to come from the same place.

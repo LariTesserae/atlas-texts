@@ -1,0 +1,73 @@
+## The Loud Country
+
+From the west, at evening, it looks like a salt flat that has been left alone for a very long time.
+
+The plateau lies five kilometers up, a hundred thousand square kilometers of pale crust so flat that the curvature of the world is visible in it, and so bright that the sky above it goes almost violet from the contrast. There is no haze. There is nothing to make haze with. The air is thin nitrogen with a whisper of carbon dioxide, and it holds no moisture, because moisture here is not a vapor but a mineral, locked in the mica of the deep rock, and it has been locked there since before anything on this plateau learned to want it. At noon the light comes twice: once from above and once from below, off the crust, and things cast no useful shadows. Squinting is the local equivalent of shelter.
+
+Scattered across the whiteness, at intervals of ten or twenty kilometers, stand spires. Some are four hundred meters tall and fluted like the pipes of an organ left out in weather. Some are low mounds, wind-carved, sagging, gone to lace. Perhaps one in nine is alive. You can tell which from a long way off, because the living ones wear a collar of frost at their base even at midday, and because they are the source of the sound.
+
+The sound arrives first through the ground. It is a slow pulse, one beat every forty-one seconds, and it comes up through the salt into the bones of the legs and the small bones of the ear, and only afterward does the air deliver its share: a broadband roar with a floor beneath it, a pressure in the chest, the noise of a very large thing doing something rhythmic and expensive. Standing on the crust, a kilometer from the nearest spire, it is already too loud to speak across. Standing at the spire's foot it is not a sound anymore. It is a substance. It has grain and direction. It pushes.
+
+## The Skin
+
+The spire is not a tower. It is a chimney on a vessel, and the vessel is the plateau.
+
+Beneath the crust — beneath *all* of it, from the escarpment in the west to the long fault-scarp two thousand kilometers east — there is a body. It is a single organism, or a single confederation so old and so plumbed-together that the distinction has stopped meaning anything, and it is pressurized. Inside, six bars. Outside, a little under half of one. The whole living mass is a pressure vessel maintained against a five-and-a-half-bar differential, and its outer skin is a laminate two to four meters thick, hoop-wound in fiber laid down in crossing helices, exactly as a tank is wound, except that no one wound it. It grew that way because everything that grew any other way burst.
+
+The skin is not smooth. It is studded with lenticels like rivet heads, banded with growth-rings that record droughts of light, patched with the pale scar-tissue of old failures. It is pierced by valve banks — thousands of them per kilometer, ranked in rows, each one a lip of horn-colored lignin seated in a socket worn glassy. And the crust of the plain, the blinding white nothing that seems so obviously the bed of a vanished sea, is not a sea bed at all. It is exhalation. Wherever ammonia seeps out and meets the trace carbon dioxide of the thin air, it lays down a white bloom of carbamate, and the bloom seals the leak, and the wind takes the excess and spreads it. A million years of very small leaks, caulked by their own chemistry: that is the salt field. It is scab tissue, kilometers deep in the low places. In the nitrate-rich districts it has gone faintly pink and porous, and it will burn — not with flame but with a slow smoldering decomposition that crawls a few meters a day for weeks, breathing out an orange fog that pools in the hollows and kills the things that shelter there. The organism's response to a burning district is to open a bank of throttling valves and drown it in cold nitrogen.
+
+The valves are where the cool comes from. There is no other refrigeration on the plateau, and there does not need to be: gas driven through a narrow throat and let expand does its own chilling, and the great valve banks frost over white, and rime-flowers grow out of their lips at dawn and sublimate by midmorning. The interior holds itself at eight or nine degrees, cool as a cellar, in a country where the sun is a blowtorch. It cools itself by screaming.
+
+## Inside
+
+Go in through a maintenance throat — there are throats that stand open at the low point of the breath, wide enough to walk into, and they are not defended, because nothing here has ever needed defending against a visitor. The pressure takes the ears and then gives them back. The temperature drops. The light does not.
+
+This is the surprise: it is bright inside. Brighter than seems possible under four meters of wound fiber. The skin is piped through with sun-wells, bundles of drawn cellulose-silica fiber, each strand hair-fine, gathered into cables as thick as a thigh and sealed into their sockets with grown flanges and gaskets of amide rubber. They come down through the roof of the world in shafts and fans and spread. The light they deliver is diffuse and shadowless and very slightly green, and it falls on a landscape that is entirely, absolutely plant, and almost entirely empty.
+
+Four percent solid. That is the fraction. The rest is chamber.
+
+The interior is a foam — a lattice of struts and sheets and cables, a sponge of living wood whose voids range from the width of a finger to halls three kilometers across and four hundred meters high. Everything present is plant: the floor is plant, the columns are plant, the far wall you cannot see the end of is plant, the haze is plant exhalation, the rain is plant solvent, the pale drifting motes are plant gametes, the noise is plant work. And there is *room*. Immense room. A cathedral emptiness repeated for two thousand kilometers, roofed and floored and columned, with weather in it.
+
+The solvent is ammonia. It runs in the wood at six bars and eight degrees, thin as ether, and it carries nitrogen where a wetter world would carry oxygen: amides instead of esters, amines instead of sugars, a chemistry that smells of hot pennies and fish and the sharp blue sting behind the nose. It cycles. Warm ammonia rises off the working floors, meets the cold underside of the skin, and comes back down as rain — sheets of it, in the great halls, in a monsoon that has been falling on schedule since the Eocene of this world. Where the rain strikes sodium-rich dust it flashes an intense, impossible blue, the blue of metal dissolved and its electrons set loose in the liquid, and the blue fades as the drop evaporates, so that a downpour in the right district is a rain of brief blue sparks going out along the floor. Nothing here finds this remarkable.
+
+## The Work
+
+The organism is a factory. It did not become one; it is one in the way a liver is a chemical plant, only more so, and at a scale where the distinction between metabolism and industry has collapsed entirely.
+
+It fixes nitrogen. It has two ways.
+
+The first is the arc halls: chambers lined with grown refractory, silica-loaded wood hard as firebrick, where electrode-tissue — stacked plates of electrocyte, thousands of cells in series, the trick an eel uses scaled up by nine orders of magnitude — strikes and sustains arcs across a nitrogen stream. The arcs are the brightest thing on the plateau, brighter than the sun that feeds them. They are blue-white and they roar at a frequency that makes the teeth ache, and they throw hard shadows out through the lattice for a kilometer, and everything in those kilometers spawns on their schedule. The flash is the mating signal. Whole faunas time their gonads to a furnace.
+
+The second way is the slow beds: catalytic nodules of iron and molybdenum in packed columns, patient, cool, unglamorous, running at the same six bars the body already keeps for other reasons. Where the arcs make in a second what the beds make in a season, the beds have been running for a hundred thousand years without interruption, and they out-produce the arcs by a factor of forty. The country's real industry is not the lightning. It is the columns.
+
+There are compressor lungs the size of hills, and turbine-tissue whose blades are grown horn turning at speeds that put a whine at four kilohertz into every duct within reach. There are counter-current exchangers, plate on plate, so thin they ring. There are fractionation stacks that pull nitrogen out of the thin outside air for smothering fires and for the beds. There are busbars: cords of conductive tissue, copper-analog loaded, running along the struts in bundles, carrying the arcs' current between halls, humming, ticking as they warm. There is scaled production — spore-stock, oil, refractory, fiber, seed — in quantities that alter the albedo of the planet.
+
+And nothing here was made. Not one thing. There is no artifact anywhere on the plateau, no tool, no wall that was placed rather than grown, no fastener that was not laid down by a cell. Every flange, every bearing, every gasket, every tolerance is a phenotype. The industry has no engineers and no drawings and no history of invention. It has only descent, and wear.
+
+## The Crew
+
+The fauna are abundant and they are, almost without exception, deaf.
+
+Ears are useless here; the air is a wall of noise. What the animals have instead are hair-fields and pressure-lines along the flank, organs that read gradient and phase, and they navigate the ducts the way a fish reads a current. They ride the forty-one-second breath. Kite-things with paper wings and no eyes worth mentioning tack up the great halls on the exhalation and fold and drop on the intake, migrating a hundred kilometers a day between the arc halls and the beds, eating gametes, laying eggs in the fouling.
+
+Much of the ecology is maintenance. Bearing-beetles live in the annulus of rotary joints, generations of them, cropping the fouling and polishing the race with their own bodies; the fit of a shaft in its socket is not manufactured to a tolerance, it is *inherited*, worn to a seat by ten thousand generations of beetles doing the same small job. Gasket-slugs seal flanges with a mucus that cures to rubber; they die in place and become the seal, and their young hatch in the seam and take up the margin. Valve-tender herds graze the callus at the valve lips, keeping the seats clean; where they overgraze, the valve leaks, and the leak whistles at a pitch that kills the herd, and the district goes quiet and cold and dies back and is re-grown from the strut outward.
+
+The characteristic disease of this world is not infection. It is scale. Fouling organisms — barnacle-analogs, crusting bryozoan things — clog the ducts and starve the halls, and the body's immune response is a scheduled blowdown: a purge blast that scours a duct with hail of ammonium nitrate at a hundred and fifty meters a second. Everything in the duct at blowdown dies. Everything living in a duct knows the eleven-second warning tone and is out of it, or is descended from things that were not.
+
+And there are the quiet seams. Where duct geometry sets up standing waves, there are nodes — pockets, sometimes only a meter across, sometimes a hall the size of a village, where the roar cancels itself and the air is nearly still. In them you could hear a wing. Whole faunas live there: soft, thin-skinned, ear-bearing things, relics and specialists, breeding in the silence, feeding at its edges. And there is a predator that hunts them by finding the node, hanging at its boundary, and collapsing it — a bladder driven inward, a hammer-blow of sound, a clap that stuns everything soft within thirty meters. Then it walks in and eats in the ringing aftermath. It is the only animal on the plateau that makes noise on purpose.
+
+## Wet Rot
+
+Water is the ore.
+
+There is none free anywhere. The deep roots go down two kilometers into the basement rock and etch hydrated silicates for it, molecule by molecule, and what they win is hoarded in waxy cysts and spent like a trace metal, a few grams a year per hectare, on the reactions that nothing else can do. A water gland is the most valuable organ in the body. A water leak is the worst thing that can happen to a district, because water here is not life's medium but life's solvent in the other sense: it hydrolyzes. Amide bonds go. Tissue turns to soap and stink, a green-black stain that spreads along the strut and smells — in a country of ammonia and hot pennies — obscenely, sweetly of *rot*, of the other kind of world. The response is abscission. The body cuts the district off at the strut, drops it, lets it fall three hundred meters into the dark and be eaten by things that specialize in falling districts, and grows a new strut over the next four hundred years.
+
+## What Rest Sounds Like
+
+The spires on the plain are launch towers. They grow for decades, filling with hydrogen cracked out of ammonia in the arc halls, and when they are ripe they split along a seam and loft a seed-body — a thing like a lacquered bladder the size of a house — into the stratosphere, where it drifts for years and comes down, usually, on nothing, and dies. The failures are the fluted hills. Nine in ten of the presences on the white plain are corpses, dry lattice gone to lace, salt-cemented, and the wind plays them. That is the second voice in the country's sound: under the living roar, a thin high fluting, older, wandering, out of time.
+
+From orbit the plateau is a pale blister with a permanent cloud anchored to it, a standing plume of exhalation and hail that has not dispersed in recorded geology, and the whole mountain range beneath it hums at a forty-one-second period, a seismic signature that has been running without a break since before there were ears anywhere to be deafened by it.
+
+None of this is distress. That is the thing that takes longest to understand. The valves are worn to their seats; the tolerances are perfect because they are old; the monsoon falls on schedule; the beds have not cooled in a hundred millennia; the storm inside the halls is not a storm passing through but the climax state, the settled form, the balance the country arrived at and has held. The turbulence is the equilibrium. The screaming is refrigeration, and the arcs are bread, and the hail is a immune system doing its rounds.
+
+It is deafening, and it is at rest, and there is no contradiction in that at all. It is simply what rest sounds like, in a place with no water and no hands, five kilometers up, in all that light.

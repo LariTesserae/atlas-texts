@@ -1,0 +1,17 @@
+I would be the one who eats elsewhere and comes home to complain of the supper. I had better explain about that. My mother lives three doors down and has lately taken to setting the supper board on its old ledges. The floor has been cut down twice since those ledges were made. Standing up, she can eat off it very comfortably, but a person of my height has the dish just under his chin. She likes the company. By the time I get home I have eaten quite a lot, without ever having had a satisfactory look at what it was. I am apt to look into our dish and say, “Oh, *you* had the good ends,” which is the complaint in question, though I can see how it might wear on a cook.
+
+I make the strips that hang down the houses. It is generally supposed to be hinge work on a larger scale. In fact a hinge should give in the same place every time, and a climbing strip will break if it does. I put a turn into the plait so that the weight goes travelling round it as you climb. There is a boy on the upper street who has learned to make himself revolve slowly all the way down, with his arms folded. I have asked him not to do it in front of customers.
+
+An old strip comes back to me quite changed. There will be a smooth place at the height of a particular hand, and then, well below it, another smooth place where the same hand reached when it was small. People are under the impression that it costs less to have a strip turned end for end than to have a new one. By the time I have picked out the hard plait at the top and worked a new eye in the soft end there is very little in it. But I understand why they ask. In our own strip there is a loop that stands out sideways, quite useless now, which I put in when Tesset had the bad heel. She could hook a knee through and have a rest halfway to bed. Nobody catching a sleeve on that loop has yet suggested I take it out, though a number of other things have been said.
+
+That evening I come along the street with my collar open and hear the sister laughing. From where I stand I can see only four of the six legs. I think for a moment that Tesset is looking for something she has dropped, and that the boy is being, as he so often is, less help than he supposes. Then he calls out from under her, “Which of us is the ant’s head?” and I put down my bundle.
+
+There is a way to do it. When we fit a long strip we go up it in threes, so as to have hands free to work the eye over the peg. Each takes his weight just as the next lets go. I am about to show them when the sister above me lays one finger along the bridge of her nose. It is the sign we use at market for *I should leave that at that price.*
+
+I sit on the bundle. The boy gets a foot of Tesset’s in both hands. She is obliged to hop. They make it the breadth of a paving stone in this fashion, at the end of which he disengages himself, fetches his wax shaving, and rubs out two of the clogs. It was apparently the drawing he wanted to get right, not the walk.
+
+Later, going in, I see what my mother gave me for supper. There is the same little crescent of brown grass skin on the edge of our board; the sister has been three doors down with a dish before I got there.
+
+“Well?” she says.
+
+I take a good end between finger and thumb. It is still warm where it has been lying against the others. There is room on the bench if Tesset moves her paddle, which she does.

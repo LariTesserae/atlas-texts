@@ -1,0 +1,15 @@
+The power did not lift the tongue. It attended instead to the thread drawn across the corner of the porcelain. The thread was so fine that when it tightened it sank a little way into the old glaze. It looked a painful place to have to bear upon.
+
+In the course of a winter the power had occasion to feel what went through the thread. There was a wind that came seldom, out of a notch between the next peak and its shoulder. For as long as that wind blew, the two deep slots did not sound together. Most of the green roof went slack. But the tongue had a little motion left in it, and a long way off, under a leaf that was getting nothing at all from either of its neighbors, a hinge opened. The pull came by way of the white corner. Indeed the corner was the only reason it came that far. The porcelain held the thread clear of a dozen nearer hinges that would have taken up the difference on its way.
+
+When the wind changed, the thread rode up out of the glaze again. The power was glad not to have slipped anything soft beneath it.
+
+It stayed for a number of years. There were things about the animal it came to know quite well and one thing in particular it never settled. Some differences went round the basin more than once. On the second circuit a hinge would refuse a pull it had taken on the first, and pass it on. This might have been what it was like for the animal to remember. It might equally have been that a tooth, having fed, took time to settle back into its bed. From inside the thread the two things felt very much alike.
+
+In the end the power did a small piece of work, though not in the basin. Farther along the ridge the old instrument wires came up through the floor of the vanished house. One end was still caught under a brass screw. The other stood up in a hook, just where a woolen glove might catch on it if somebody put a hand down to steady himself. A good tug would not have shifted the porcelain, but it would have turned the winding on its block. The purple blades had no give to speak of in that direction.
+
+There was room in the hole for the hook. On an afternoon when the copper was warm the power laid it back there, in an easy curve, without drawing either wire the length of a leaf. It left the brass screw showing. There was no particular reason why someone walking the ridge should not have the pleasure of finding the place where a house had been.
+
+While it worked, the fleck on the tongue had gone on taking its little meals. At the white corner the thread neither sank nor rose. The work was good in just that respect: not one part of it had to be borne by the thing it was done for.
+
+Afterward the power would sometimes come back for the wind out of the notch. It liked to be there when the pull got through to the far leaf. There was a long interval in which nothing seemed to be coming, even to a power that knew the way it came. Then, under the slack green disk, the two halves of the little gray comb went by each other, and there was a meal where there might very well have been none.

@@ -1,0 +1,13 @@
+I’d be under the gray foot at the back, though it would take me a long time to know there was a foot above me. At first there would just be a place in the leaf where the roof of my tunnel came down. I could pass under it with my legs folded, pushing with the last two joints of my belly. The pith there would be sweet. I’d keep coming back to eat it, and every time I came back the roof would be lower.
+
+Elsewhere I could tell how much leaf was left by biting it. A thick wall took the whole bite. A thin one rang in my jaws. I’d made holes by mistake before. Once, a pool emptied through a hole I’d made and carried me backward down a passage I’d spent most of the winter digging. For a long while afterward I could find food in the silt without having to bite anything at all.
+
+Under the foot the leaf wouldn’t ring, however thin I made it. I’d chew until I could feel the body above me give a little with each stroke. Then, one day, it would lift. The skin I’d left would rise with it. I’d be holding on by my mouth.
+
+That would be my first time in the hollow proper. I’d see very little of it. There would be a black pool below me and, in the pool, a bright oblong I’d take for another hole. I’d reach down. The foot would settle before I touched it, laying me back in my tunnel. After that I’d go on feeding, but I’d leave the thin place alone.
+
+I don’t think I’d stay small enough to live there. The turn just before the foot would be the first I couldn’t get around. I’d widen it and still get stuck; it would take me a while to find out that it was the bend, not the width. By then I’d be leaving the tunnel to feed in the open. I’d go out when the foot lifted and come back by the taste of the patch it had covered. There would be a good many of us doing that. We’d get in one another’s way.
+
+Much later, when the ribbon was gone and there was only the foot in the wall, I’d still sleep in what was left of the tunnel. The entrance would be too shallow to hide my back. New animals would rasp at the other end, where I’d never finished digging. Sometimes I’d wake before any of them stopped. All along my belly I could feel the little roof taking its weight off the floor.
+
+I’d move out of the low place then. Up on the wall there’d be a ridge just broad enough to turn around on. In the time it took the water to come, a smaller animal would usually catch up with me. It would climb over my back, hooking each leg in turn into the joints I could no longer fold flat. I’d wait until it was past. There wasn’t room on the ridge to do anything else.

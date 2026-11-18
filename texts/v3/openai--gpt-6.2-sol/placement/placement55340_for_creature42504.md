@@ -1,0 +1,13 @@
+I think I would be in the building with the bright roof, at the other end of the telephone. Not the man who goes. The person who comes into his room after he has gone and finds the receiver a little crooked on its rest.
+
+I would have heard the children arrive. The smaller one would have started telling him what they wanted before she was quite through the door, and he would have made her say it again, not because he hadn’t heard but because the motor comes up through the floor right there and it’s a bad place to tell anyone anything. I would have gone on with what I was doing. It would only be when I heard him lift a pot off the warm shelf that I’d wonder what he meant to take with him, and by then I’d have to go to the window to see.
+
+My work would be in the room where the leaves are hung. There’s no need for a keeper of those racks, and I wouldn’t be one. I’d work at a long table under the window, making clothes for people I mostly know by the way they grow. The smaller child’s sleeves, for instance, are always too short before the rest of a coat is too small. There’s a good inch turned up inside each cuff of the one she’s wearing. I could have let it down while she was there, if I’d thought of it.
+
+I’d be old enough to have made a coat for the man when he was her size. He would still have it somewhere. You can’t tell the age of a coat by looking at it here, unless it’s been altered. Then there may be a row of little holes above the hem where a person once stopped.
+
+When they had gone I would eat a leaf standing up, with my hand on the back of the empty chair. I’d know what was in the pot by what was missing from the shelf. I wouldn’t know about the blanket until one of the children came back and told me how they had kept the lid dry.
+
+Toward evening I’d pick up the telephone. I’d have some question about the pot, whether it was wanted there overnight, something I could ask without making the old woman get up twice. I’d put the receiver down again before it rang. If the baby was asleep and its mother was asleep, there might be nobody in that room who could cross it with both hands free.
+
+I’d go back to the table and turn on the lamp. There would be enough light in the room to work without it, but from the far end of the avenue you can see the lamp after you’ve stopped being able to see the roof. I’ve come home that way myself. The light doesn’t make the walk any shorter. You can look down for a long time to see where you’re putting your feet, and when you look up, there it is.

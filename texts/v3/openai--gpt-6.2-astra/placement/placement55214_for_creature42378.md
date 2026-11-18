@@ -1,0 +1,19 @@
+I would be the fare-piece under the fourth step.
+
+Not quite under. There is a joint between the tread and the riser, packed with gray dust except where my edge has gone in. Most of me stands out in the air. From the basin district I look like a little shelf put at an inconvenient height; from the drinking district I look like a door left ajar. Neither view shows the hole by which I used to hang on a string. The hole is in the joint. There is still a little string in it.
+
+I was good for one crossing with a load. A person on foot paid nothing. The fare was for the use of two men, one from either district, who could take a load halfway down the steps, put it down, and pick it up again by what had been its bottom. The men had considerable skill. There were jars of lamp oil with a neck at each end which they could bring across with neither stopper wet. Their daughters could do it too, and in the last years quite often did, for the men were getting old together. There was no extra charge for something alive, provided it would keep still.
+
+What I remember of a hand is the inequality of heat between the place where a finger lies flat and the place where it has to bend. I was passed through a great many hands. There is no impression of a head on me; the city did not go in for heads. The sign that I was good was a nick filed into my edge. When the charge for a crossing went up they deepened the nick. This was cheaper than calling in the money and issuing it again, though it set a limit on what could be charged.
+
+The keeper found that nick its first night out on the steps. It put an edge in and opened, as it does on the washer, expecting, perhaps, to find something tender inside. There was nothing. For a long time after that it passed me by. Then the joint widened a little and I leaned out farther. It is possible now, by taking hold of me, to go from the third riser to the drinking district without touching the fourth at all.
+
+This is when I feel the disposition of its weight. First there is the small ordinary pull toward the basin. Then the pull ceases. For an appreciable time there is something holding on to me that weighs nothing in either district, although I can feel how hard it holds. Then it begins to weigh in the other direction. It is a pleasure peculiar to my position, and one that the two men must have known very well, to feel a thing become ready to be let go.
+
+On the return trip the keeper generally takes the long way. Salt makes it stiff and it needs the height of the fourth riser to get itself open. A wet mark dries on my underside in the shape of the part that held me going out. It is smaller than the keeper. So much of the creature can be elsewhere while so little has hold.
+
+Once, when the tooth rocked rather farther than usual, I saw my nick laid out in light on the opposite wall. It was enormous there. A tongue of blue day went through it and ended on a shut door halfway along the upper street. For that moment I could have told you exactly how much it cost, on the last day anybody paid, to carry a thing from one down to the next.
+
+I am coming loose. The string will last a little longer; it is the grit around the string that gives. Each crossing works a grain out, and on quiet mornings after the flue has shut I sometimes hear one arrive in the square below. When I go, I think I shall go toward the basin. I have stood so long on edge that I am curious which face will be underneath.
+
+Meanwhile there are nights when the keeper comes up the steps and misses me, feeling at the height where I used to be. I can do nothing about this. It tries a little lower. There is a faint grating as it finds the nick, followed by that interval without any weight at all. Then the whole fare is taken.

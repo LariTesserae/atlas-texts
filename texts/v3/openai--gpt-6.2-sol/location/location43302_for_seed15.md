@@ -1,0 +1,11 @@
+Below the washhouse floor there is a room full of warm water. You can see into it by lifting one square tile, though from above it looks no deeper than a hand basin. A white stair doubles back under the lip of the opening. The last tread lies a little lower than a standing person’s head.
+
+The whole room is made of fired clay: stair, floor, even the low arch through which the water comes. The bricks were laid only last summer. Their corners are still sharp, and on one wall the mortar bears the fine ridges of a thumb drawn along the joint. Where the water enters, it has begun to pick sand out of a seam. The grains collect directly below in a small, steep fan. It is the only loose ground in the room.
+
+At noon the roof shines. Three broad jars with their bottoms knocked out were built neck to neck through the ceiling; they open into a shallow settling pool in the yard. Light comes down through both bodies of water. You can see the clay’s pale pink where the white slip went on thin, and the faint shadow of each stair on the one below it. If someone sets a bucket in the yard pool, its shadow passes over nearly the whole room. Then the bucket is lifted and the light comes back so suddenly that the far wall seems closer than it did before.
+
+It is loud for so small a place. The feeder runs down a steep trough outside, strikes the bend, and enters sideways. You can hear the bend knocking even with the tile in place. Underwater the knock loses its edge and becomes a steady pressure in the ears. At the opposite wall, water leaves through six narrow clay slots. A reed caught across two of them trembles all day without working itself free.
+
+Nothing swims here. A little green growth holds to the collars of the light jars, thickest on the side that catches the afternoon sun. The deepest wall is bare. From time to time a green thread lets go and crosses that clean expanse of white, slow enough to watch all the way to the slots.
+
+In the evening someone in the yard lowers a wooden gate. The knocking stops first. Then the bright yard pool runs down to the jar mouths and the room goes dim, though it stays full. For a little while the water is still warm enough to fog the underside of the lifted tile. By morning there will be a few more grains at the foot of the wall.

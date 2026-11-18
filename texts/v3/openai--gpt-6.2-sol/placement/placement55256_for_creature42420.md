@@ -1,0 +1,9 @@
+I think I would be the loose end of a sedge root in the moss below the sill. Not the root that found the crack and got the plant established. A newer one that has grown out sideways and found, so far, the underside of a flake.
+
+From above, my sedge would be the one with the blade worn almost through. The pika might pass it on the way to a drier stem. A midge might rest on it and leave without its weight having made any difference. I wouldn't know either of them. I would know the flake by how far I could swell against it when the seep came up.
+
+At first I wanted to be the flake. There is something appealing about lying still while the water tries its three ways down the slope. But I would want to have some small business with what passed. As a root I could take up water even when there was no longer enough of it to run. The moss would keep some between its stems. I could grow a little on what the valley, from any height at all, had already lost.
+
+One morning the flake would be gone. Ice would have lifted it in the night and the first water would have taken it just far enough that it would never lie over me again. I would have no way to follow it. For a while the tip of the root would be out in the current, with grit knocking against it. Some of the grit would lodge farther in, where the older roots crossed. The tip might die. A branch a little way back would go on growing, this time down.
+
+I don't think I would make much ground. In a good year there might be enough new material under the moss that if you lifted its edge, a little would come up with it instead of washing straight off. You'd have to put the mat back to see where I'd been. Even then you'd probably notice the sedge first: the old blade flat against the stone, the new one standing far enough clear of it to move.

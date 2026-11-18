@@ -1,0 +1,13 @@
+I would be on the underside of the chip, a little way in from the edge. At first you would take me for a grain of the mineral. The difference would show when you put the chip down: the grain would move out from under the weight.
+
+I am one of the white creatures. There is room for me between two plates of a leaf, provided I go in from the torn end. I work with the whole underside of my body. When I have passed over copper it will still take the sun, but it will no longer send back a picture of the thing that stands in front of it. A foot lifted over a finished plate is only a foot. It does not lift another foot half a mile away.
+
+I had been working my way down the stack under the cane. The pieces at the bottom were neatly laid, and I could finish one without having to find the next. Then the young began to feed. Now a piece would arrive doubled over, bright on both sides of the bend, or with one end still in the adult’s mouth. Once I went to work on a strip that had not been put down at all. I came out between two gray toes. The youngster spread them, and I could see all the way back to the bottom of the cane, where another of my kind had begun on the place I had left.
+
+The chip was something new to me. I had never had an edge I could go all the way around and come back to the same place. On the first circuit I stopped several times to make sure. The white notch was beside me each time I came out on top.
+
+Then you lifted it. I kept my place, though for a while the pressure was on the wrong side of me. When the light came back there was a nose at the far edge. In the copper of an unfinished scrap caught underneath the chip I could see the nose again, much smaller, with room beside it for a clean patch of ground. I went over the scrap. The second nose went away. The first stayed long enough to breathe on me.
+
+You set the chip down a little crooked. One of its clear teeth rested on the lip of the notch, leaving a space beneath that was high enough for me and not for a gray foot. Later the youngster came back with a blade it had tried to eat. It worried the blade against the chip until a single plate came loose. The plate slipped into the space, and the youngster dug after it. I felt the tooth shift on the lip. Then the adult made its small sound from the cane fork, and the foot withdrew.
+
+That is where I would live. I would finish the plate and go back to the stack when there was work there. Coming home, I would know the chip by the one tooth that had dulled where the young one rubbed it. From underneath I could see three little prints and, beside them, the shallow scuff where it had stood trying to get its supper back. In time the scuff would be as familiar to me as the notch. I would have no reason to smooth it.

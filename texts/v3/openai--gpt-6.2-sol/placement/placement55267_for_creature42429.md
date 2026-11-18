@@ -1,0 +1,13 @@
+I’d work at the receiving end of one of the municipal test channels. There’s a moment after a mason sends a stone through when somebody has to put a hand on the catch tray and decide whether that was the stone or just the tray jumping. I’d be good at it. I’d know which stones came through with a knock and which made the tray ring, and which one, with the hole in it, usually had to be fetched out of the bend with a spoon.
+
+At first I’d think this meant I belonged underground. Then one afternoon a stone wouldn’t come and I’d go up to find the mason. His deck would have moved. I’d knock on the door of the building now opposite the channel mouth and find myself telling a woman with flour up both arms that somewhere in her premises I had reason to expect a small black stone. She’d look down at her dough. I’d have to say no, not necessarily *in* the premises.
+
+I think I’d spend more and more of my time up there.
+
+There must be a municipal way of finding out where something was meant to go. I’d become useful at finding out where it went instead. A floor would be entered in the book as delivered, and I’d find it still hanging over the street, with two men on it finishing their lunch because there was nowhere to set it down. I’d learn to ask the person who’d tied the rope, not the person who’d filled in the book. Eventually people would start asking me about things the city had never undertaken to deliver: a borrowed pan, a sister on a late shift, a dog that had figured out the freight decks before its owner had.
+
+I’d come to Senn’s the first time with a bathhouse key I’d found in the catch tray. She’d take one look and tell me it was a sardine key. I’d been carrying it wrapped in a handkerchief so it wouldn’t mark the other things in my pocket. She’d give me back the handkerchief and, on my second crossing of the tiles, a towel.
+
+On the day of the shell-yard rain I’d be there again, trying to dry a page of my book without drying it shut. I’d hear the porter ask about the elm. I’d know something about it, or think I did: a pot answering to that description had been put on a deck with a cracked washbasin and two lengths of brass rail. I’d have an entry for the deck. I’d be halfway to opening the book before it occurred to me that the entry didn’t say whether the tree had been in the pot.
+
+So I’d go with them when the water went down. At the surveyors’ office I’d let him ask. My part would be smaller: if the surveyor pointed and said *over there*, I’d ask whether she meant where the deck was now or where it had been that morning. Then we’d have somewhere to start. And if the boy wanted to stop on the way and look into a yard that couldn’t possibly be the right one, I hope by then I’d have learned to stop too.

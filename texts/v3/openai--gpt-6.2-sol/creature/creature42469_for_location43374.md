@@ -1,0 +1,17 @@
+Something lives under the bench, though the bench is the last place in the valley it comes to.
+
+In dry weather it is scattered. A little of it is in each of the lidded jars. More lies in the sockets above the orange stains, and a long piece of it, no wider than a shoelace, lies beneath the bridge where the thread of water crosses the lane. If you put your ear against the stone there, the thread goes on running. It is the other thing that goes quiet.
+
+It can be seen best in a basin with a shallow place at one end. A skin of water comes across the floor and closes over a chip. On the upper side of the chip there remains a bright, dry crescent. It holds there much longer than it should. Then it lets go, slips down the slope against the current, and takes up a position on the upper side of the next chip. It will do this even when the current is scarcely enough to move a grain of powder. The people who laid the basins used to leave a little stair of chips for it. The ones that appear to have fallen farthest from the work are the ones they put there.
+
+It has no objection to water so long as it can keep a surface between itself and the wet. It spends whole afternoons on the undersides of the slates. There, as the beads swell, it draws itself thin between them. Sometimes two beads touch and fall and leave a clear patch the size of a palm. Before another bead gathers, a faint puckering passes across that patch, as if something had flexed a hand after keeping it shut.
+
+The people who live along the rim know it mostly by the jobs it makes for them. In a hard rain a jar will begin ticking with its mouth a foot underwater. Someone has to go down and tip the lid. They send children on this errand in the shallower courts, with an adult watching from the steps. The first time a child lifts a lid, there is a temptation to put an eye to the opening. What comes out is cold enough to make the eye water. It moves up the wet sleeve and the child, who was told not to jerk away, jerks away. Nothing is hurt. At supper the child will insist it had weight.
+
+It is not often all in one place. The sun empties the outer dishes as fast as a light rain fills them, and every one that dries gives it somewhere to go back to. It takes several days of weather with no bright interval to bring the whole of it downhill. On the last day the jars are silent. The little bridge can be heard from the lane.
+
+By then someone generally goes to sit on the bench. There is no duty attached to it. An old woman who used to go every time said the bench was a good place to mend a cuff: the white courts gave her enough light to see the black thread, even with the sun off her hands.
+
+The water reaches the four feet and goes between them. Just under the seat it stops rising. There is a dark finger’s breadth there, dry from end to end, although the paving all around has disappeared. It stays dry through the night. In the morning, if the sitter has gone home and the rain is still falling, you can lay a palm flat on the seat and feel, very far apart, two small movements, each followed by a pause long enough to make you think there will not be another.
+
+The bench was made with four feet so the water could pass. The underside was left rough for something to hold on to.

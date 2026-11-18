@@ -1,0 +1,13 @@
+From the rim I’d have picked a room with a view. Once I was in the city I think I’d have picked the room where someone turned the stone green side up.
+
+It would take me a long time to leave that room. Not because I was small. I’d be big enough that the one who brought my meals had to fold herself nearly double to get past me. I liked the moment before she put the stone down, when its weight bowed her edge and the water came in over it. I knew her by that little wash. When somebody else brought a stone I would eat, but not until they had gone.
+
+Eventually I’d be the one bringing the stones. There’s a stretch of gutter just below the square where the small round ones grow a good coat on only one side. I’d use that stretch until I knew the stones even when they were bare. I’d know which one felt round until you tried to carry it and which one had a hollow that would take a pad. In the dry world I would have said they were all the same size.
+
+I’d take one to an old body in the square. Roots would have grown over her so far that I’d have to put the stone down in exactly the right place. The first time I got it wrong I’d wait quite a while for her to eat. Then I’d feel her trying to turn it. It wouldn’t move. I’d been so intent on getting the green side up that I’d put the food just beyond the bit of her that could still reach.
+
+Some afternoons they’d leave a youngster beside us. I’d be in the way, so I’d flatten myself against the wall with the stone still tucked under me. The old one would set its pads going. The youngster would practise a turn, then the short, uneven reach between two footholds. Once, in the middle of this, it would make the awkward fold I make to get past a root on my way to the stone gutter. I wouldn’t have known the old one could feel me going there. I’d thought I was bringing her something from a place she didn’t know.
+
+After that I’d notice how much of her day I spent out of the water. Not really out of it, but on the gutter side that sent no clear knock to the pool. I’d been taking that side because it was easier with a load. I’d begin to come home along the other wall. It would cost me a stone now and then. I’d feel it go and have to go back for it, and somewhere below me a youngster would learn the little backward motion you make when you’ve dropped something you mean to keep.
+
+I don’t think I’d ever get a garden on my back. I’d stay red and keep moving. But late in the day, after I’d brought the last stone, I’d put an edge into the pool beside the old one. There would be room. I’d wait there until I felt somebody coming down the wall side of a street I knew, taking the turn a little wide to allow for something they weren’t carrying yet.

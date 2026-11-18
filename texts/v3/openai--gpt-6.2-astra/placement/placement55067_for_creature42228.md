@@ -1,0 +1,19 @@
+I would have been on the hair once already when Et saw me. It was on the strength of her seeing me that I went up again, which was a mistake. She had gone off to bind a landing. Coming down is the part I should have liked her to see. Almost anything on the ridge will go up a wet hair, including the scum off a cup of wash water. To come down I have to open along one side.
+
+I have much the shape of a mouth after it has eaten something sour. My edges meet, and there is a pucker at either end. When the hair is wet I can close myself about it and go to sleep. Water climbing between my edges will carry me quite a way in this condition. But I can also put out the lower pucker, take a little hold, open, and bring the rest of myself down. It is slow and rather private work, like getting out of a damp sleeve. Et's brother is the first person who has ever troubled to distinguish the two proceedings. I could have wished him a less restless wrist.
+
+Going down to the hollow he holds the cup against his stomach. I get a very good impression of the weave of his shirt. Then there is blue between the threads and a colder air than I have known, and I am on my way round the rim on a run of spilled water. A finger comes down flat ahead of me. I run into the whorl of it and stay there. It is the other boy's finger. He has made the mistake everyone makes, of thinking that to pick up something very small you must do something very delicate. All that is necessary is to be a little damp.
+
+They sit for a while with their heels in the new part of the hollow and the finger held up between them. There is no light from above. The light from below shows the finger pink for a considerable distance in, so that I appear to be sitting on a great deal more of myself. The brother unwinds his hair and lays it across the whorl, one end in the cup. I have had enough of going up. What interests me now is a smell coming from the place where the two lots of felt meet. It is the smell of something shut away wet which has nevertheless managed to sweeten. I open and come down.
+
+Neither of them says anything until I am clear of the hair.
+
+“It left a track,” says the boy who sleeps there.
+
+The brother hadn't seen that before. I hadn't either. By daylight, with green on all sides and the shine on the hair, there is no seeing what a body leaves. Here, against the blue, there is a fine interrupted redness, a little where I held and none where I opened. The boy turns the hair to see whether the marks go all the way round. His heel goes deeper into the thumbful of new ground. He will have some explaining to do in the morning.
+
+In the join there are others like me. I should not have recognized them by their appearance. Folded dry, we have a point and two little nicks exactly like the leaves the children skim off the water in their cups. It is by the way the first one opens to let me by, without otherwise disturbing herself, that I know her. Beyond her there is a good deal of room. The old woman works her clay in from the edges with the balls of her thumbs and a pleat is apt to be left quite loose in the middle. There is a nap to the felt there still, laid all one way by the spoon. I go in against it until it holds me comfortably on both sides.
+
+This is where I would live, a little short of the newest earth. Not out at the edge, where even asleep one would be occupied in holding on, nor quite in the mountain, where I understand things eventually ring. From here I can get to the boy's cup in a morning, going mostly downhill. When the two of them wake they find me on its wet lip. The brother puts out the hair but does not put it under me. He has learned something in the night about offering it a little way off.
+
+I do go up on this occasion. I go up dry, which neither boy had thought of looking for.

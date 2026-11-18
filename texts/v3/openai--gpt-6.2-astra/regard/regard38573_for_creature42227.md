@@ -1,0 +1,17 @@
+The power came on a falling tide. It had meant to lift the iron a little. From the slipway the torn edge looked very close to the stone, and underneath there was a creature with young. It seemed a small thing to give her the height of another finger.
+
+Seen from below, there was room. She could turn over with a young one on her back and not so much as wet the young one's feet in the drops on the iron. Besides, the shade ended just there. Beyond it the stone was already dry enough to take the print of a thumb in the snail paste. The power left the iron at its old height.
+
+It stayed for the tick. One of the young ones was crossing a clean track when the rod went up. At the sound it let go at the wrong end. For a moment it stood almost upright on its forelegs, with the hind ones working away at nothing. It came down a quarter of a turn round from where it had been, on a morsel of worm quite as good as any its mother had got. The power, which had put out something very like a hand, drew it back again.
+
+There was one thing it did for the pocket. Farther down the slip, on the dry side of the wall, a cast-iron washer had been rusting into a bed of old mortar. It belonged to the bolt that held the dipping sheet of roof. The head of the bolt was still round and black and looked good for another century. Behind the head, where no rain ever washed the salt away, the washer had gone to leaves. When a boat went down the slip on its little hard wheels, the leaves moved on one another. Each time this happened a grain or two of mortar came out. There was a teaspoonful on the ground already.
+
+The power waited for a boat. The sheet gave a jump too small to trouble the bright rows of air beneath it. All the same, the bolt came out a little way and did not go all the way back.
+
+In the repair shed, when there had been a repair shed, a man had kept a drawer which would not quite shut. Behind it lay the things that had dropped over its back in forty years. They were still there, although the drawer was gone: three short screws without slots, a nut with a screw broken off in it, and a thick square washer cut out of plate by somebody who had not thought it worth while to round off the corners.
+
+The power used that one. It took the weight of the iron while it worked, so that the holes in the iron did not move over the dimples in the stone. There was a square of sound mortar a little way back from the crumbled place. The new washer bore on it by two corners, which was plenty. The old one came off on the tip of the power's finger in the shape of a very dark rose. It put the pieces behind the wall, out of the water.
+
+That was all the work. It stayed some time longer. It had begun to be able to tell the mother from a neighboring woodlouse of much the same breadth, even when both were powdered over with grit. On the mother's third plate there was a white nick, and in turning a corner she brought the front half of herself round first and waited a perceptible time for the rest. Once, while the power was watching for the nick, a snail put out its horns and went straight over her lengthwise. She reached up after it with both brushes. A clean stripe appeared down her back.
+
+In the night there was rain. For a while the square washer showed light against the wall; then it got wet and was the color of everything else. Under the roof a drop grew heavy enough to fall. It found the other drop. The young went in, and after a little the brushes came out.

@@ -1,0 +1,13 @@
+Something sleeps under the roof slab. You can put your hand into the dry patch and not touch it. It sleeps against the underside of the stone, with its belly drawn up and its four feet spread, so that what looks like a flake about to come loose is an ear.
+
+At dusk it comes down headfirst. On the ground it is about the size of a hare, though there is very little hare in the way it goes. It walks without lifting its belly clear of the grass, and stops every few steps to put its narrow muzzle down among the roots. It eats beetles, the soft ends of fern stalks, and something very small that it gets out of the moss by sucking. This last takes patience. Now and then it sits back and works its tongue around its teeth. In daylight you would see that the tongue is yellow.
+
+It is an old female. There is a notch in her left ear and a place on her haunch where the hair has grown back white. The marmots know her. The first time her head appears over the gutter there may be a whistle, but nobody goes in. She drinks with one forefoot in the water. The current parts around the foot and joins again, a little muddier, on the other side.
+
+She has one young this year. It is already almost as long as she is, but when it comes out from under the slab it still tries to walk beneath her. She puts up with this on the way to the ledge. There she steps out from over it and goes down.
+
+Below the pale stones the cliff is black, and the grass gives way to scattered knobs of saxifrage. She moves faster there than she does on the meadow. Her feet, which look too large and rather soft on turf, fold neatly over the little edges. She knows which tufts will take her weight. The young one knows only the first three. At the third it flattens itself and makes a noise you could mistake for water getting into a hollow stem.
+
+She does not come back for it. She settles a little way below, with her head turned uphill, and waits. When the updraft pushes the fall against the cliff, they both shut their eyes. Water runs off the end of the young one's nose. As soon as the gust lets go, the old female shifts one foot, uncovering a pale nick in the rock. The young one puts its foot there. It has been doing this for several evenings. Tonight, for the first time, it takes the next step while she is still moving.
+
+There is another patch of grass below, not much wider than the shelter roof. From above you would take it for a stain. The two of them feed there until dark. The old one leaves the flowers alone, but the young one eats the heads off several and sneezes. Then it noses its way back to her, pushing so close that she has to move a foot to make room.

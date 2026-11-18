@@ -1,0 +1,9 @@
+I think I’d come down on Thursdays with the boy. At first I’d be there to carry something for him, probably his schoolbag, which he’d take back at the foot of the stairs because he knew where to put it and I didn’t. I’d stand in the main road until June asked me to move. Then I’d stand in Number One Lane, which was where she’d been trying to go.
+
+There wouldn’t be much use for another person who could read the gauges. I might learn to do it anyway. I’d be more useful taking things up: the empty milk bottles, a coat that wouldn’t dry below, a question Bassi wanted answered by somebody in the yard. I’d get in the habit of stopping on the top step to read the question again. It was easy, after the pumps, to mistake the relief of being able to hear for having understood something.
+
+After a while I’d be trusted with the handcart. Empty, it would be worse going up than full coming down, because it would jump a little at every tread. One day I’d get it all the way to the top and find June’s grandson waiting there. He’d have grown tall enough to take the lower handle without stooping. We’d carry it between us after that, and I’d wonder how long he’d been tall enough.
+
+But I don’t think I’d live down there. I’d be the person Nell sometimes found on the landing when she came out for her last round. There’d be a bag of onions beside me, or a dry coat across my knees. Some nights there wouldn’t be anything. I’d have come down thinking I had news, and by the time I’d waited for her to put a hand on both pumps I’d have found that I only wanted to ask her to come up for a minute.
+
+I’d usually ask. Sometimes she’d say no. Once she’d come up in her slippers, thinking we were only going as far as the service door, and we’d stand by the railings until she noticed her feet were wet. For a long time afterward, whenever I came down without anything in my hands, she’d look at my shoes first, to see what sort of night it was.

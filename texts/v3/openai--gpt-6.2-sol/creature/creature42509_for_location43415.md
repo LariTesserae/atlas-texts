@@ -1,0 +1,21 @@
+There is an animal here that can live for forty years without getting wet. It has to be born on a wet day.
+
+At first it is small enough to fit inside one of the bubbles in the leaf bed. It enters folded in three, through the tear that lets the air in, and plugs the tear with its tail. The bed grows over the tail. By the time the animal needs to move, there is no way out in the direction it came.
+
+If you cut one free, which is difficult to do without killing it, you find something the color of a pear seed, with six short feet all on one side. The other side is smooth except for a little raised rim. There is no trace of an eye. In a dish it walks round and round the edge of a drop, feeling for a place to put the smooth side down. If there is a second drop close enough, it will go on walking between them even as the drops shrink. A dry dish will not do. It needs water on both sides to find the dry way through.
+
+In the leaf bed it travels by putting that smooth side against the wall of its bubble and drawing itself inward. This pulls the leaves apart a little ahead of it. Its feet catch the newly opened edges and bring the rest of it along. The slit closes behind, with a noise much too small to hear under the rain. What looked like a bubble trapped in the slope is now a bubble going somewhere at the speed of a root.
+
+It eats the clear leaves. There is very little left in them, so it has to eat a great many, and where several animals have fed you sometimes find a ledge several feet wide with nothing beneath it but a thin white mesh. The ledge can stay like that for years. Roots come through the roof and stop in the air. Their tips thicken and turn yellow. When at last the roof goes down, all those tips touch earth at once.
+
+Most of the animals travel uphill. The young ones go wrong on steep grades, mistaking the upward growth of the leaves for the downward passage of water. They make little loops, some scarcely wider than a thumb. The old ones go almost straight. There is a ridge so white and narrow that it seems nothing could cross it without coming out into the rain, but on either side you can find the high, dry galleries of the same old animals. They got across when the stone was still under leaves. Now, on the bare crest, you can put a finger into the empty ends of their tunnels.
+
+They meet at the heights. There is no season for it that you could tell from the weather. One night an animal comes to a place where another has stopped with its head against a stem. It stops too. By morning there may be a dozen there, each with its head against the same stem, at different levels in the bed. They stay until the stem grows thick enough to press against them all. Then, very slowly, they turn their smooth sides toward it.
+
+What passes between them has never been seen. What can be seen, a few weeks later, is a row of young animals under the skin of the stem, head to tail, with their feet working. The stem carries them out over the slope. It may grow for a whole season before it splits. On a fine day the young remain in the split. When rain comes, they let themselves fall. Almost all land on a leaf that is already wet through, curl up at once, and die. A few land where the first heavy drops have just torn the surface and driven air into the bed. There they have time to get their heads in.
+
+Below the place where the hillside is lifting, an old one has come to the end of its gallery. It is as long as a hand now. Its front feet are white with wear, and one is missing. All day the water outside has run past the thin partition at its head. It has had much the same sound for the last eleven years.
+
+Toward evening the water stops. The animal waits, with its mouth on the partition. Then water touches it from the other side of the stem, a side from which water has never come. The animal backs up. It cannot turn in the space it has made, so it goes a long way backward, passing old meals and the places where roots once hung down in front of it, until it comes to a fork that it dug and did not use when it was young.
+
+It takes the fork. By morning there will be a small dry place under the new bank. Nothing on the surface will show where it is, except that for a little while the twin leaves above it will stand farther apart.

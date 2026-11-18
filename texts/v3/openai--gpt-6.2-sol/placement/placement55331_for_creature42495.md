@@ -1,0 +1,17 @@
+I think I’d start under the bed, on the side where the floor has sunk. There’s room there for a folded cloth, a few white chips, and an animal with its wings shut. I’d be the animal. I wouldn’t know yet that I belonged on the roof.
+
+The girl would find me when she came to change the stone under the bed. She’d lie on her belly and reach in with the new stone, and I’d step onto the back of her hand. I’d be good at that already. My feet would close on a little fold of her skin without hurting her. Then she’d turn her hand over to see what was on it, and for the first time since I fell I’d have something over my head to hang from.
+
+She’d try me on the rim of a cup. I wouldn’t drink. She’d tip the cup until the water touched my bill, and I’d pull away so hard I’d strike the sill with one wing. After that she’d leave me alone. In the night I’d drink from a wet line on the underside of the bed where somebody’s cloth had been hung to dry. By morning I’d have walked its whole length. In the middle there’d be a place where a sleeper’s weight brought the boards close enough together for the water to go on from one to the next.
+
+I’d get to the roof by way of the door. The woman would leave the slab propped out while she worked on its peg, and I’d climb the rough edge, which nobody had ever needed to smooth. Near the top I’d open my wings. That first flight would be short and mostly sideways. I’d catch the roof with one foot and hang there beating the air long after I had a good hold.
+
+From up there I’d know the plain by some things a person walking it wouldn’t notice. The dry stone above a pool would be cold on my feet. The roof over a good crossing might be bare for fifty paces, and I’d have to fly it or go round by a darker place where the stone had little knobs on it. I’d know the shelter by a bit of wool caught on one of those knobs. Every time the woman shook out the bedding it would stir, though the roof was too far up for her to see it.
+
+Water would take me farther from the shelter in the dry weeks. I’d walk with my bill just clear of the stone, looking for the thin shine that runs ahead of a drop. Once I’d follow it into a shaft far enough to see a narrow piece of the sky. Rain would be passing across the opening without coming in. I’d stay until some came in, and find out how little use my feet were on stone with that much water going over it.
+
+In time I’d go back to the shelter to lay. Not in the shelter itself: there’d be a pocket in the roof above the door, shallow enough that I could back into it and keep my head out. Below me the slab would move a little closer to its old place each time the woman took a peg out. I’d hear her tapping it home. Some days I’d hear an answering tick from far out on the plain, and she and I would both wait, each with a different piece of stone underfoot.
+
+When my young began to walk, I’d take them to the wool. It would be a good place to practice. They could get their feet tangled in it and hang there squabbling till they worked themselves loose. One would go too far. I’d hear its wings open and look down in time to see it make for the rim of a cup the girl had set out on the sill. It would miss the rim altogether and catch the underside of her wrist.
+
+She’d be taller by then. I don’t suppose I’d know her. But she’d hold her hand still.

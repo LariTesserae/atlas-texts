@@ -1,0 +1,63 @@
+## Nothing here has ever been wet.
+
+That is the first law, and the place is built out of it. The Floor is a basin so wide that its rim lies past weather, past the last lamp-tower, past the point where distance stops meaning anything; a made plain of interlocking plates, ceramic and pressed heartwood, laid down in a pattern that repeats every eleven bays and has repeated, by the wear-marks, for something on the order of an age. It is low ground. Everything in the world is low ground. There is no up to go to except the tiers, and the tiers are not elevation, they are only more floor, stacked.
+
+Under the plates there are more plates. This has been checked. Shafts have been sunk through nine hundred courses of decking and found nothing but decking, each layer older, each layer's seams packed with the same grey dust, each layer bearing the same stamped glyph at the same offset from the same bolt. The Floor is a bottom that does not bottom. It is the lowest place in a world that has no other kind of place.
+
+And rising from it, filling it, occupying every cubic handspan from the plates to the lamp-canopy eleven hundred meters up: the Stand.
+
+## The chemistry is oil.
+
+The sap runs thin and pale and cold, a distillate somewhere between naphtha and perfume, and it moves through the Stand at a pressure you can feel as a hum in a handrail. It does not wet. A drop of it on your palm beads and rolls and leaves nothing, not even a coolness — it takes no heat with it when it goes, because it does not go, it *returns*, drawn back down through the felt mats by capillary wick and pumped home. Nothing evaporates here in the way you'd expect. Nothing rusts. There is no rot, no mildew, no damp, no swelling of wood, no rain, no river, no cloud that has ever held a gram of moisture. The air's dryness is absolute and has a taste: a clean mineral flatness at the back of the throat, like the inside of a bell.
+
+Every hatch, every junction box, every grown door bears a hazard glyph — a droplet inside a struck circle — for a substance that does not exist on this continent. It is the oldest mark in the Stand. It has been recast so many times that the droplet has worn to a dot, and the dot to a dimple, and in the deep bays the warning is only a smooth place where a warning used to be, and the machinery there still flinches from it.
+
+Because the solvent is oil, the plants burn cold and think in terpenes. Their metabolism is a long slow cracking of hydrocarbons, and its exhaust is scent. Whole galleries smell of cut stem and turpentine; others of hot brass, of crushed pepper, of the sweet burnt note that means a bearing is failing three tiers down. Scent is the local language. A press-line under load announces itself for a kilometer as a change in the air's perfume, and the Stand reads it and reroutes.
+
+## The light is made, and it is cold.
+
+There is no sun. There is the Lamp Layer: a grown canopy at the top of the world, a single continuous organ of pale tissue veined with oil-capillary, and it glows because it is *paid* to glow — pumped full of distillate, it runs a chemiluminescence so efficient that it produces almost no heat at all. That is why the world is bright as a noon overcast and cold as a cellar in autumn. The light does not warm the plates. The plates stay at the temperature of a stone step in October, and the air moves over them and stays there, and the whole vast brightness has no temperature to speak of, which is the first thing about it that feels wrong.
+
+The second thing is that it has no direction. Shadows in the Stand are soft, doubled, and occasionally point the wrong way — toward the brighter bay rather than away. You can stand in an aisle at shift-noon and turn a full circle and never find the source. Look up and the canopy is there, seamless, luminous, closer than it was, and it is not clear that looking up is what brought it closer.
+
+Day is a schedule. The Lamp Layer is fed in zones, and dawn is a physical object: a wall of brightness a hundred meters high that crosses the Floor at a fast walking pace, preceded by a pressure change and a smell of scorched sugar. You can outrun it if you're carrying nothing. If you're carrying something, it catches you. Shifts are not measured in hours here but in the passage of that wall between fixed marks, and the marks are grown into the columns, and the columns have been recast so often that the marks have drifted, and the shift is now eleven minutes longer than it was when the world was young.
+
+## Everything is the Stand, and the Stand is a factory.
+
+There is no natural substrate anywhere. The columns are lignified to a hardness that turns a drill; the beams are grown to their spans in one piece, with the grain running along the load path like a thought that has been thought all the way through. Belts are cellulose, endless, woven by the beam itself as it thickens. Gears are heartwood, brass-colored, cut by the tree that made them and shed when their teeth wear past tolerance. Piston-housings are gourds. Compressors are seedpods that have been persuaded, over ten thousand generations, to close faster than they open.
+
+The tiers stack nine deep, and between them the aisles are narrow — shoulder-width, then hand-width, then a gap you go through sideways with the felt of the muffler-moss brushing both cheeks. Density here is not a crowd; it is a solid with holes in it. The world is a lung. Vistas exist, but they are rare and scheduled: every few hundred kilometers the layout opens into a settling hall, and there you can see three kilometers of glowing column-forest receding into a haze of pollen, tier above tier above tier, all of it moving very slightly, all of it working, and the sight of it does something to the chest that the Stand has no use for and does not correct.
+
+It is electrified. Current runs in the phloem — the Stand generates it across the membranes of its own wick-tissue, a few millivolts per junction, and there are more junctions in a cubic meter than there are grains in a handful of dust. Summed, tiered, bussed through copper-colored vine, it lights the local lamps, drives the small motors, and fires the ignition galleries where the oil is cracked for scent-signaling. In the deep bays the static is so heavy that the dust stands up on end and the hairs of the moss lean all one way, and a spark walks along a handrail ahead of you at your own pace, keeping you company.
+
+## It is very quiet, and the quiet is engineered.
+
+Noise was bred out. It is a waste product; it costs; the Pattern does not allow it. Every impact surface is felted, every bearing runs in an oil film, every exhaust vents through a labyrinth of grown wool. The presses — and there are presses the size of hills — strike with a sound like a book closed in another room. The belts sigh. The dust makes no sound at all when it moves.
+
+What sound there is arrives through the structure rather than the air. You hear the world with your feet: a slow triple thump, a long grinding sigh, the tick of lignin cooling as the dawn wall passes off. And sometimes the order is wrong. In the low bays near the Truing Halls, the press is heard before it strikes — a full second before, sometimes two — and the sound comes from behind you when the press is ahead, and no one has ever found the fault, because there is no fault, because the machinery is within tolerance, because the tolerance is the thing that has moved.
+
+## The wear is the mystery.
+
+Nothing erodes here in the ordinary way. There is no water to cut a channel, no frost to split a stone. What wears the world is dust and touch. The pollen is abrasive — a fine siliceous flour shed by the ignition galleries — and the standing winds carry it in fixed circuits determined by the layout, so that every corner in the Stand has been sandblasted round over the centuries, every edge softened, every glyph blurred to a suggestion. The world is *settled*. It has arrived at its own shape and stays there: the growth rate of the Stand and the consumption rate of the Stand have been equal for so long that the dimensions of the aisles have not changed by a finger's width in living memory. It is a made thing in balance, an engine that has become a landscape, a factory that has stopped being a factory in the sense of producing anything other than its own continuation.
+
+But there is polish at hand-height on every rail.
+
+There is a groove worn in the sill of every hatch, of the kind a foot makes, ten million times. There are benches — grown benches, unmistakably benches — with a warm depression in them, and the depression is not from any part of the Stand, because the Stand does not sit. There are places in the dust where the dust has been disturbed in a shape that goes away from you. The world is used. It is used constantly, comprehensively, worn smooth by traffic. And the aisles, when you stand in them, are empty.
+
+## Life, such as it is.
+
+Fauna is a rumor with a budget. There is a pale slow grazer, hand-sized, that eats the muffler-moss and is itself mostly moss — a mobile bud, a walking cutting, and it may not count. There is the seed-tick, which rides the belts and is a seed with legs it will shed on arrival. Once a cycle, in the settling halls, something large crosses the far end of the vista at a height that suggests it is walking on the air, and the Stand dims the lamps in that zone for eleven seconds, and afterward the pollen there is arranged in a pattern.
+
+The real predation is between systems. Strangler lines — feral vine, escaped from a decommissioned bus-route — hunt failing press-lines, wrap them, ground their current, and digest the fittings. Decomposer mats creep up the columns at a meter a year and take the worn gears back into stock. Parasite galleries exist that produce nothing, consume oil, and forge the scent-signature of a working bay; they have been doing this so long that some of them are now load-bearing, and killing them would drop a tier. The ecology has no bottom and no top. It is all middle. It is all one organism's worth of parts pretending to be separate, and the pretending is what makes it go.
+
+## Weather.
+
+The world makes its own. Warm oil-vapor rises off the press districts, cools against the Lamp Layer, and comes down as a dry fog that beads on everything and wets nothing — a rain of little rolling spheres that vanish into scent. Dust devils stand in the settling halls for days, silent, luminous with static. There are pressure tides twice a shift that make the felt walls breathe in and out by a centimeter. And once per long cycle the pollen monsoon comes: a front of gold flour a kilometer high, moving at the pace of the dawn wall but against it, and where the two meet there is a light so bright it has a texture, and everything downstream is buried to the ankles in the abrasive gold that will, over the next century, wear all the corners round again.
+
+## And the world is still being made.
+
+This is the part the labels won't say. The output of the Stand is not oil, not gears, not scent. Those are internal. The output is *space*. Down the chutes at the base of the great columns, past the last plate, the works produce more world — additional bay, additional aisle, additional kilometer of low bright Floor — and it is inserted into the middle of the continent, quietly, at the seams, while nobody is looking. This is why the corridors lengthen when you carry nothing and shorten when you carry a load: the new space goes where the need is thinnest. This is why bay 4,411 and bay 4,412 are identical except for one bolt, and bay 4,413 is identical to both except that the bolt is on the other side, and the difference between them is the wear on the mold.
+
+And when the drift accumulates past tolerance, the Truing comes. It arrives as a change in the smell — a flatness, a lack — and a stillness in the belts, and then a region several kilometers across is gently reconciled to the Pattern: the corners re-rounded to the correct radius, the glyphs re-cut to the correct blur, the benches re-worn to the correct depression. Whatever does not match is not destroyed. It is simply found to have always been the other way, and the dust settles into the shape it should have had, and the press is heard a second before it strikes.
+
+Then the dawn wall comes over the rim of the tier, cold and enormous, smelling of scorched sugar, and the Stand takes up its load with a sigh you feel in the soles of your feet, and eleven hundred meters of grown lamp burns without heat above a floor that has no underside, and the handrails go on being polished by nothing at all.

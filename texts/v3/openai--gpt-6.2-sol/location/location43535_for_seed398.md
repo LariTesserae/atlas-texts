@@ -1,0 +1,17 @@
+The city’s lowest room is nineteen kilometers above the sea.
+
+It lies inside the point of a mountain that hasn’t finished rising. The mountain’s outer faces are black and sharp enough to part the high clouds without making a plume; inside, the stone is the pale violet of a fresh fracture. Nothing has had time to round it. Where a fault crosses the room, the two sides fit so precisely that you can follow a single white inclusion across the gap and see the instant at which it broke.
+
+The room is small enough to touch opposite walls if you put your back into it. It is nevertheless a municipal place. A street number is set into the threshold. Beneath a removable strip in the floor are conduits belonging to three different districts, one of which no longer lies on this mountain. A narrow recess beside the entrance is marked for deliveries. The recess has been empty for so long that the stone behind it has advanced half a finger’s width around its frame.
+
+It is hot in the room, though not evenly. Your shins feel the heat first. Then you lean over the fault and feel it across your teeth. The air is almost dry, but now and then a draft comes through the stone smelling of rain on a much lower street. A handrail clouds over. Drops gather along its underside and hang there, several centimeters apart. They never get big enough to fall. When the draft passes, they dwindle in place, leaving tiny fans of salt with one side more heavily feathered than the other. Nothing grows on them. The oldest fan has been mistaken for an arrow and carefully painted around.
+
+Most of the light comes from a line sunk into the threshold. It is not quite enough to see the ceiling. If you stand still for a while, you can make out a second, much fainter line far overhead. That is the same threshold seen from the upper district. The maintenance crews could shorten the distance between the two views, but the water office has asked them not to: for a few minutes each night the arrangement lets a little vapor through, and several streets depend on it. Here, a leak has an address on both sides.
+
+What looks like a bench in the back of the room is a piece of old pavement. There are worn places where people used to step up from the gutter, and a shallow trough left by the wheels of a market stall. The pavement is older than the mountain. As the summit rises, the city brings its streets in one at a time, turns them on edge, and beds them in the new rock. Sometimes it brings a street with the weather still on it. There is a warm square at the end of the bench that never quite dries.
+
+Nothing enters while you wait. No wings in the ducts, no minute feet in the salt. There is a small tick when the rail cools. Much later, you hear the same note from inside the floor and realize the first one was not the rail.
+
+Toward evening the room gets narrower. A faint red dash on either wall records how much narrower it is allowed to get. The dashes have been repainted many times; there is a little buildup at their edges, the homely work of someone painting over a mark they can’t afford to lose. The stone stops just short of them. Down in the fault, a sliver of fresh violet goes dark.
+
+Then the room widens by less than the thickness of a drop. The handrail mists. Somewhere a long way below, a gutter begins to run, and for a few seconds you can hear the rain reaching it from here.

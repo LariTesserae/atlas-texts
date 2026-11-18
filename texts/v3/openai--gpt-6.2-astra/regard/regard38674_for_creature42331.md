@@ -1,0 +1,19 @@
+Bet could feel through the bracket the little knocks the man was giving the peg. When he had done he climbed down and she took her hand away. The gutter held. She opened her other hand and found the last fare so deeply printed in it that for a moment, after she put the coin in her pocket, she could have read its back by looking at her palm.
+
+There was a power at the bend that evening that could have held the two houses just so. It could feel them both, down to the foot of the shortest pile, as Bet had felt the bracket. But the man had left a little play at the peg this time, and there was no occasion.
+
+What kept its attention after the people had gone in was a spring that had not yet come out. It was a good way down. The water had been feeling along the underside of a bed of shells and had got as far as the ground beneath the potter’s room. There it divided. A little went on toward the inlet. The rest turned back under the houses and had nowhere in particular to go.
+
+The power went along with the little that went on. There was an old rush stem in the clay, pitched downward, its lower end no farther from the open air than the thickness of a bowl. At one time, before the bank came up, a very small animal had lived inside it. Some of the partitions were gone and there was a way nearly through.
+
+By morning the water had got through. It came out on the seaward side of the landing, about a hand’s breadth below the two holes for the posts. Bet, going down with her sailcloth, saw a shrimp flick into the salt water from a spot where there ought not to have been water enough to cover a shrimp. She put her hand there. It filled up slowly, and she tasted it.
+
+They had no great need of another spring just then. Still, it was a convenient height for anybody in a boat. Bet cut a piece of bark and set it there before her second crossing. She made it short enough that a boat coming in hard would not break it off. At half tide you could put your mouth to it without shipping the oars. Higher than that, you had to know where it was.
+
+For a time the girl tried to find out where this water had come from. She went through the rooms putting her ear to the floors, which afforded her several views of the undersides of beds and a little brass hook nobody remembered losing. She had an idea it was the thread they had stopped at the gutter. Bet said she thought the amount was about right but could not see how it would have got across the lane. They left the question there.
+
+All that summer the clay under the potter’s room went on bearing the weight of the room. The shelf over the bed stayed level. A bowl set down at one end of it stayed at that end. This was the whole of a considerable piece of work, though there was nothing in it that a person would think to remark on. In the autumn, when the water found a wider way through the shells, the spring at the landing went off as others had done. Bet took the bark out. It was still good for something.
+
+Once before it stopped, the old man had come down after his haircut with one fine white clipping stuck in the wet corner of his eye. It tormented him, and his daughter had tried to get it out on the steps, but each time he saw her finger coming he shut his eye. Bet took him out a stroke or two and brought the boat in sideways under the spring. He washed his face in his hands. Then he sat with his eyes shut a little longer, drying in the wind, while his daughter waited above them to be sure he was comfortable.
+
+From where the boat lay he could see, when he opened his eyes, under the forward edge of the landing. The two round holes went all the way through. He had often stood beside them and had supposed they had bottoms. Through one he could see daylight, and through the other the moving blue of his daughter’s skirt. He told her to stand still a minute, and she did, though from up there she could not imagine what he wanted to look at.

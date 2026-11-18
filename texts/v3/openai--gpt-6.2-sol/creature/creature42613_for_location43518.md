@@ -1,0 +1,13 @@
+Something lives under the fern bank. Now and then, on a windless day, the fronds lift from beneath, one after another, as if a long animal were making its way uphill. If you part them you find wet stone, the black stems of the ferns, and sometimes a loose root with a bright tip. The root is growing into the stone rather than away from it. There is nothing you could put a hand around.
+
+At the first silence of the afternoon, look at the water at your feet. A narrow crease goes across it toward the wall. It goes against the run of the water, but so slowly that you can judge its progress by the blades of grass: the reflection of one blade bends, straightens, and then the reflection of the next blade bends. When the crease reaches bare rock it is still visible for a little way. It looks like the line left in a cloth when a fold has just been opened.
+
+The frog knows when this is about to happen. It gets out of the water.
+
+There used to be another frog at the upper end, in the clay under the smallest tree. For two summers they called back and forth. A little water collected at that tree, though there was no channel that led to it. In the third summer the pocket dried. The moss went pale on the lower branches, and the upper frog was gone before the leaves began to fall. The one at the seam still calls at the hour when the other used to come out. It faces uphill to do it.
+
+Whatever is under the ferns was smaller then. It could quiet the water on only one side of the wall. You could stand with rain in one ear and the sound of your own breathing in the other. Since then it has gone down through the shallow cracks, passing under the bare stretches where there seems to be nothing to live on. On the driest days the rock over those stretches stays a little darker than the rest. Once, when the clay split at the foot of a tree, you could see several inches of something the color of the inside of a fern stem. It drew back from the daylight. By evening the crack had filled with water.
+
+Most afternoons the silence lasts no longer than it takes the frog to climb onto a stone. But late in the summer, when the sun reaches the seam, it sometimes lasts long enough for the frog to call. You can hear, then, how little of the knock comes from the frog itself. There is the small first sound, hardly more than a click, and the fuller sound the hollow makes of it.
+
+This year the fern halfway up the wall has put out a frond on the far side of its crack. Beneath it, a runnel no wider than the edge of the slate leads toward the smallest tree. It ends a handspan short of the clay. By dusk there is a bead of water at the end of it. The bead hangs there until it is too heavy and falls back down the wall. The next afternoon it forms a little farther on.

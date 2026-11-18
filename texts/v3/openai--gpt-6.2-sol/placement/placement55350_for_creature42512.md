@@ -1,0 +1,13 @@
+At first I thought I’d be the person who came down to read the meters. I liked the idea of the clipboard on my head, both hands occupied, the square getting a good look at me before I could get a look at it. But the meter reader goes home with a number. I kept thinking about the little door she passes on her way to the stairs.
+
+I wouldn’t be the door, either. I’d be the weight behind it.
+
+There are two of us on separate runs. The other one is for the upper gate, and in the morning it gets an inch of sun through the stair grille. I know this because the man who oils our pulleys once said, “At least you get a bit of sun,” to the other one. To me he said, “What have you got in there?” and took out a long, bleached root that had grown into the groove. It had been brushing my side for months. I’d thought it was part of the apparatus.
+
+When someone opens my gate, I go up. If they prop it open, I stay up. Most people don’t know they’ve lifted anything. The cobbler does, because he brings his leather down under one arm and has to open the gate with his shoulder. On the way home he sometimes catches it behind him with his heel. I can tell when he’s made a good day of it by how little trouble he takes over that last inch.
+
+There was a time when I thought I’d like the little door left open. I could see a strip of paving from there, and if I was all the way up I could see the toe of whoever was holding the gate. Then one Friday the man with the oil left it open while he went for a part. All I saw for three hours was the edge of his toolbox. Meanwhile somebody came down the stairs one tread at a time, opened the gate a little, stopped, opened it farther. There was a long pause before they let go. I’d have missed all that if I’d been looking at their shoes.
+
+The baker is the one who holds me up longest. Coming down, she puts the loaf on the stair and changes hands. Going back, she has both hands free, but she stands in the opening anyway. Sometimes she remembers something she meant to tell the cobbler and calls it back across the square. He doesn’t always catch it. He comes out from behind his curtain and she has to say it again, louder, though it’s usually a thing that didn’t need saying even once: the river’s high, or there’s flour on the bottom of the loaf.
+
+When she lets go, I come down. Near the bottom there’s a worn place in the guide where I can lean a little toward the square without touching either side. That’s where I’d find myself most nights. The gate shut, the stairs empty, and enough play left in the cable that if somebody put a hand on the gate from either side, I’d feel it before they pushed.

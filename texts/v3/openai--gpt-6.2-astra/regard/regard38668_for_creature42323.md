@@ -1,0 +1,17 @@
+The power came on a day when a man from the roads department was taking the loose bricks out of the parapet. He had a length of red chalk behind his ear. Wherever he found a joint that would take the point of his trowel he made a cross, and by dinner time the landward face of the pump house was quite a sight. There was to be a new cover on the culvert, too. On his sheet the old discharge arch was down to be closed with blockwork. This would save coming up again to do it when there were men and mortar on the spot.
+
+The man ate his dinner on the step. He had seen the dipper often enough. He called it the water ouzel, the name his father had used, and thought there was one of it. It went round the corner with something in its mouth. A moment later, as it seemed to him, it was back on the wheel housing wiping its beak.
+
+It would have been easy for the power to make him fond of the bird. He was quite fond of it already. What he had never done was sit on the other side of the ditch. From the step you could see the birds arrive and go away but the mouth of the arch was directly under you, a little way back between your heels.
+
+There was a small difficulty about moving him. He had worked since seven, his knees hurt, and this was the one place on the premises where he could sit down in the sun with his back against something warm. The power, which had time, sat with him. The two of them saw the island with the fence posts come into view, stern first, if such a thing could be said to have a stern. One gull stood on the highest post. All the others were facing it with their heads down into the wind, giving the appearance of a meeting disgracefully attended to.
+
+When the man got up he left his chalk on the step. It was square in section and would ordinarily have stayed where he put it. The power rolled it over once. It dropped into the shallow water on the far side of the ditch and lay there showing a beautiful clear red.
+
+He went round by the culvert, knelt, and had just got two fingers on it when the bird came under his arm. He felt the air of it against his cuff. It lit on the clean brick, went into the moss, and the man heard, at very close quarters, the sound that the wall made. While he was still down on one knee the other bird appeared with its mouth full and had to wait. For several seconds he had them both in view, one on the brick and one on a root that went slowly down under its weight until its toes were awash.
+
+He picked up the chalk. On the sheet, against the item for blockwork, he wrote *Omit*. The arch had stood open for sixty years. If anyone wanted a better reason than that they could come up and put a knee in the ditch themselves.
+
+They did the parapet in June. For two days there was a board over the rut and the dipper went elsewhere for its bootlace grubs. The new culvert cover made no appreciable difference to the water. When the wind held in the west it was still possible for a man to leave his boots on dry rock in the morning and pour water out of them at noon.
+
+That was the extent of the alteration, apart from a little red on the first two fingers of the man's right hand. The power stayed on for a while. In particular it wanted another look at the shrimp which, when the dipper put its head into the roots, let go in time. From the step the little creature appeared to row at random. Seen from below, against the light, it steered a very pretty course indeed.

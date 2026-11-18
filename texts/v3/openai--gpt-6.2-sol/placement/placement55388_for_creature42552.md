@@ -1,0 +1,13 @@
+I would be just below the sill, on the side of the stair that has no wall. From inside the room you could reach me with one finger, but you would have to lie down among the flat animals and put your hand out farther than there was anything to rest it on.
+
+At first I think I would be the little one being carried. There is something about its feet continuing to walk after the brick is gone. But it lets go. I would be lower down, in one of the places it tries on the way back up: a hole that takes a foot readily in one direction and holds it in the other.
+
+The hole is the impression of a knot. The basket makers tucked the ends in badly on this side. When the wicker went, it left a short passage with a turn in it, and that is where most of me would live. I would have a hard part no bigger than a lentil, and a soft part I could send out around the turn. The hard part would be the younger of the two. Every so often I would grow another one, and push the old one out and hear it strike the step below.
+
+Nearly everything I ate would have been thrown away by the animals above me. Their grit would come down in little lots, with long intervals in which there was nothing to do but keep my mouth out of my own way. I would catch a grain, turn it until I found the soft bit, and let it go. The angular grains would lodge in the hole. The round ones would keep falling. Over a long time I would make a small alteration in the shape of the stair, too small to see unless you were looking for the knot.
+
+The large hanging animal would pass me on its warm days. The first thing I knew of it would be that the loose grains stopped falling. Then some would go up. I would take in my soft part, which was not strong enough to be of any use to either of us if it caught. Once, as the animal rolled, the red grain in its band would strike the clay beside my hole. It would make nearly the same sound as one of my old shells striking the step. For a long while afterward I would put my mouth out at that sound, even when it was a sound I had made myself.
+
+And one day there would be the foot. It would come in at the wrong angle, almost to the turn, and go on trying to walk. I could not get out past it. I would draw back until the foot had room to bend, which would be what freed it. The little animal would climb on. A little farther up it would put a foot down on another animal and there would be a blue light. From where I was, I would see only the light on the underside of the sill.
+
+I think that is where I would stay. Not at the edge waiting for something to come up, but just underneath, where a surprising number of things that are on their way somewhere else have to stop and get their feet in order.

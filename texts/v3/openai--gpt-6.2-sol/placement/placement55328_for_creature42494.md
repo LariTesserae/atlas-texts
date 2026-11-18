@@ -1,0 +1,11 @@
+I’d find myself on the downhill side of the good flat scraper. Not under it, where the animal can feel a footstep, but at the edge where a person would put a thumb to lift it.
+
+At first I thought I’d be the scraper. I like that it has a use nobody has put it to. But I think I’d be the little bed of grit it fits into. If somebody took the slate away, you could still see how it had lain: a deep seat at one end, three coarse grains holding up the other. In the bottom there would be a pale root with a crook in it where it had grown around the weight.
+
+I wouldn’t know much about the hollow. I’d know the animal by the pressure it put on me from below, and visitors by the pressure they put on me from above. I might have the two confused for most of a winter. A person standing quite still, trying to decide whether that was a tooth they’d touched, would have no idea how much they were doing at the entrance. They’d be driving one sharp grain very slowly into a soft one. The mark would outlast their visit.
+
+One day someone would take the scraper. I think I’d fare badly in the first rain. The finer part of me would go straight down among the rowan roots, and the three coarse grains would stay where they were, looking too large for the place. Some of me would lodge in the animal’s fold. I’d be there long enough for the crayfish to come back.
+
+I don’t think I’d become the crayfish at that point, though I’d be tempted. I’d like to know what the path up the heap is like from underneath a claw, whether there’s a bad step the crayfish has learned to take sideways. But I’d be a grain it puts down at the top, and I’d roll. It might retrieve me once. The second time I’d find a place halfway down the slope, against another grain about my size.
+
+The scraper could be a long way down the mountain by then, in somebody’s coat pocket, knocking against a key. And the next person to come into the hollow might stop at the entrance and put a finger in the empty seat it left. There’d be nothing there to pick up. But if they pressed at the deep end and waited, the animal would feel it. And by the time they took their finger away, the pale root might have lifted a little into the space above it.

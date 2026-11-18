@@ -1,0 +1,25 @@
+At the northern works there is a tenth volume, not generally kept with the nine. It gives the sea as it was meant to be. There are the grades, and the finished heights of the dams, and a section through each of the footings, with a space below for the initials of the man who saw it poured. From time to time soundings are laid over these drawings on a sheet of thin paper. At first the two lines ran so close together that one could not tell, looking through the paper, which was the ink line and which the pencil. There is room now, in places, to write a word between them.
+
+A good deal of work follows from a word put in such a space. Against the old dividing dam someone had written *silt*. The grab was to spend three nights there after it had finished clearing the mouths of the northern works. It was already working at the mouths. Its lamps came on in the late afternoon, four very small white lights that could be seen to open out into a square when the pontoon came about.
+
+The power that had taken an interest in the sea could have held the grab shut. For that matter it could have given every sole on the bank a place of equal safety somewhere else. Neither seemed quite the thing. There was a diver at the northern works whose living depended on being able to get out through a mouth by the way he had gone in. The deposit outside the mouths was soft, and a man's movements brought it up about him till he could not see the face of his own watch. The power had an interest in him too. It let the grab work.
+
+What it did was to give the woman at the post feet a sounding. This was on a Thursday. She had finished with the bottles and was putting the lid on her supper tin when she felt, through the soles of her boots, the slight double knock the brass messenger made on arriving. She looked down. The messenger was in its clip beside her knee. The knock came again. It was quite distinct and had come, she was now sure, from the landing itself.
+
+She put a hand on the grating. For a little while she could feel the whole length of the post. There was the iron, warmer on one side than the other, and below the iron the great spreading foot, and beyond the foot the floor running away on either hand. It was rather like having hold of the spanner while someone at the other end of a pipe taps to find out which pipe it is. She felt the two blows of the grab shutting, a long way off. Much nearer there was something so slight that she had to take her weight off her wrist to make it out. It went a few inches and stopped. All along one side of the dam, for as far as she could feel, there were these small departures and arrivals.
+
+She took her hand away. A swallow flew in under the landing and made two attempts to get up through the grating with a winged fly in its bill before it remembered the way round. The woman stayed where she was until it had gone. Then she took the launch over to the dam.
+
+She had no apparatus for taking a bottom sample. She had the supper tin, however, which was of the old sort with a hinged lid and a wire catch. In the morning there was a little water on the desk at the northern works. The man in charge of the grab stood looking down into the tin. Where he had expected to see mud there were pieces of shell, a red worm drawn into three or four tight turns, and a fish. As he watched, a second pair of eyes came up through the grit. He moved his head. Both pairs went down again.
+
+“Is it like that the whole way?” he asked.
+
+She said she had only taken the one tinful.
+
+They sent the diver out, and it was he who found where the bank ended. It fell short of the nearest mouth by a good quarter mile. He came up with an empty scallop shell which he had intended to show them as a specimen of the bottom; while he was getting his helmet off, a small sole came out of it and went down through a scupper. They could see it for some distance, turning first the pink side and then the white side to the light as it went.
+
+On the thin paper the man rubbed out *silt*. He put in the end of the bank where the diver had found it and wrote *shell* in the space. The pontoon went on working at the mouths, and on the fourth night its lights were seen going north instead of south. There was plenty for it to do.
+
+The woman went on taking the bottles out. Once or twice she laid her hand flat on the landing, but all she got was the ordinary tremor of the works and, in rough weather, a drumming from below as the waves struck the hollow post. She was not particularly disappointed. She had wondered, on the Thursday, how she was ever going to sleep again if she had to feel every little fish that moved.
+
+The power had thought of that. It had given her only the length of time it takes for a brass weight, let go at the surface, to reach a bottle fifty feet down. On its own part it went on attending. Late that winter, in the dark interval before the northern works took hold, a piece of shell went over the crest of the dam and slid a little way down the clean face. There was nobody on the landing. The sound it made was a very small one, but it was heard.

@@ -1,0 +1,9 @@
+I would start on the step. I’d sit sideways so as not to have to decide whether I’d come in, with one heel getting wet and the other warming on the slab. From there I’d count four crossings and three animals. For most of the afternoon I’d think there must be a fourth adult that was better than the others at keeping out of sight.
+
+It would take lying down to see the young one. I’d have put my cheek to the slab to look for whatever kept the broken corner from falling. Instead there would be a belly with a dark bit of supper in it, and a foot reaching down in its sleep. I think I’d move back a little then. Not far enough to lose the view, only far enough that my breath wouldn’t stir the loose eye covers in the pile.
+
+I don’t think I’d stay a visitor. After a while I’d be the root that runs out from under the fern and ends just short of the bench. There’s no soil there, but there is a shallow runnel you can’t see until the evening water comes through it. I’d grow along that, badly at first, putting out fine hairs on the side that dries first and losing them. One of the animals would take me in its mouth in the heat of the day. I’d know it by the warmth arriving all at once along a length of me that usually warms from the stone upward.
+
+The young one would be heavy enough, by then, to cross without stopping to gather itself. It would still stop at me. For a few evenings it would try to get me loose for the bench, walking backward with my tip in its mouth. Each time it let go I’d land a little differently. Once I’d land across its forefeet, and it would sit down and peel them free, one at a time.
+
+Eventually I’d find the runnel. I imagine that would be the largest change in my life there. The next morning, from the step, you wouldn’t be able to tell anything had happened. You’d have to get down with your cheek against the slab to see the new white hairs, all on the wet side.

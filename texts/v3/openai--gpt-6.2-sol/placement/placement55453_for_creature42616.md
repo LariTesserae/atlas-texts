@@ -1,0 +1,9 @@
+I’d start at the open end with a notebook. I’d have come up to find out how far the square slab moves at noon. From the bench it looks like something you could settle with a pencil mark, although I’d lose the first noon waiting for the sound to die down enough to begin.
+
+On the second day I’d tear a narrow strip from a page and lay it across the joint. I’d put a pebble on either end. Before noon one pebble would roll off and the paper would lift straight out of the garden. I’d stay to watch the slab anyway. It would move less than the width of my pencil line.
+
+I think that’s where I’d stop being the person on the bench. I’d be the strip, coming back along the foot of the wall with the pencil line broken across three different faces. I wouldn’t know where I’d been. For a while I’d lie with one point ticking against a paving stone. Then a mouth would take hold of that point and pull.
+
+The first animal to try me wouldn’t be able to get me into the lip. I’d be a little too wide. It would go away, and I’d think that was the end of it, but it would come back and pull from the other corner. Once inside I’d be wedged so close to a full packet that for a while the young would open that one instead. I’d get warm on one side from the animal sleeping against me. On the other I’d take up oil, slowly enough that the stain would still be spreading after dark.
+
+From the bench there would be nothing to see of this. From where I was, there would be one white foot resting on my crease. Every time its owner woke, the foot would press down and a little oil would come up. By morning the pencil line would be gone where the foot had been, and quite sharp everywhere else.

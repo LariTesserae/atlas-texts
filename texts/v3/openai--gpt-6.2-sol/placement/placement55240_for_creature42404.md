@@ -1,0 +1,11 @@
+At first I’d put myself under the lowest shelf. From there I could see a little of the floor without seeing the rim, and the sound of a foot would reach me through the stone before I had to make anything of the foot itself. I think I’d stay there until I understood that the warmth under the shelf was the same warmth everywhere. There would be no particular reason to stay.
+
+I’d be at the far plant after all, though not inside the fold. I’d be the blade coming up alongside it, the one that hasn’t touched anything yet.
+
+For a while I’d grow straight. The old leaf would be just to one side of me, close enough that I’d lose the last of the light a little before the other blades. Then one night my edge would meet it. Nothing would happen that night. By the next, I’d have grown enough to press against it, and the blade that has been carrying the old leaf would ease upward a little. It would still have the crease. It might keep the crease as long as it lived.
+
+From inside, the change wouldn’t feel like being lifted. The wall would become easier to put a lip against in one place and harder in another. One of the small ones might turn lengthwise sooner than it otherwise would have had to. That would be the first thing I did in the hollow that made a difference to anything but myself, and I wouldn’t know I’d done it.
+
+I might grow past the old leaf. There’s room on that side. I’d come out above the rim and find no better light there. Or my edge might catch, and the part of me still growing would have to come up at an angle. I don’t know which I’d rather be. There must be leaves on that plant that have gone their whole lives without taking any weight, and for most of the night they’d have the same small coolness on their undersides as the leaves that hold the fold.
+
+I think I’d like to be there on the first night of contact, before it’s clear which way I’ll grow. A pale head comes out where the two old surfaces meet. It touches my edge, which wasn’t there the night before. It goes back in. A little later it comes out at the same place.

@@ -1,0 +1,13 @@
+I think I would live in the house with the spoon under it, though I wouldn’t be the one who lost the spoon. I’d be the one who went looking for it years later, having mistaken a story told over supper for a request.
+
+I’d be useful with cloth. I would know how to put a patch in a pool cover without making a stiff place for the wind to get hold of. People would bring me covers folded wet, with the corner stones still in them, and I’d have to go around the house looking for something to set the stones on so they wouldn’t pick up dirt. I would ask, every time, why they hadn’t left the stones at the pool. Sometimes they would tell me. More often they would take one out of the bundle and show me how exactly it fitted the palm.
+
+My place at supper would be close to the door. I like to think this would be because I was the first to notice when someone outside needed letting in. In fact it would be because I had once sat farther back and found I couldn’t get up for a second helping without making three people move.
+
+I’d go down to the river once, with somebody who had been before. All the way down I’d be looking forward to putting my foot in mud. When we got there I’d do it, and then I’d spend an embarrassing amount of time trying to get the mud out from between my toes. What I’d want to bring home, in the end, wouldn’t be mud or a fish or even a good account of the river. It would be the sound of my companion walking ahead of me through dry leaves. I’d never heard anybody coming up behind me or going on ahead at that distance. Down there I could stop to look at something and still know which way she’d gone.
+
+At home I’d sometimes go out to the old shelter with the bit of roof. The walk back from it would be the one I knew best. There’s a place where the quartz feels warm through a thin sole, and another where a tree that looks like two trees begins, from a particular angle, to look like one. I’d know these things better on the way home than on the way out. I don’t think I’d ever know what to make of that.
+
+One evening the woman who lost the spoon would find me lying on the floor with a sliver of wood down the joint. She’d put her hand on my shoulder to get past, though there was room. Then she’d sit down beside me and tell me to try a little to the left. I’d do it. After a while she’d tell me that this was the wrong joint, that she’d known it from the moment she came in. The right one was under the place where I slept.
+
+We’d leave the bedding where it was. I’d ask her what the spoon looked like. She’d hold her finger and thumb apart to show me the length of the handle, then move them farther apart. It had been longer than that. She’d forgotten how much longer.

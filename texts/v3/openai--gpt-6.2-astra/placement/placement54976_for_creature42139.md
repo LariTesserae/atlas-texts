@@ -1,0 +1,25 @@
+For the first week I should be in Nel’s way. There is a nail at the turn of the path where she hangs the small fork, and that is where I should be put, with the fork moved to the next nail along. Her hand would come round the ginger before the rest of her and take hold of me. I am smooth and flat on either face, quite unlike the fork. Even so it takes a week.
+
+I am a little level from the winding house. There used to be a wire cage over my glass, but the cage got crushed and was taken off, leaving four brass stumps, very clean on top and nearly black on the sides. I am short enough to be laid in an apron pocket without sticking out. Held up to the light I have a pale yellow inside, with one piece missing, the shape and brightness of a peeled grape. That is the piece that does the work. It goes uphill.
+
+It is a better place to hang than it seems. From the top step the ginger looks solid, but in among the stalks there is a good deal of traffic: loose ties of bast pulled through by Nel, the spout of the watering can going one way empty and coming back wet. Once the pipit stood on me. It had come in out of weather in which it must have weighed twice its proper weight. It sat for some time with its belly let down over my top edge and when it went there were two little clean fans on the glass where its feet had been.
+
+Nel brings the box out in sections. She carries the longest board with the good handle already screwed to it. That leaves her other hand free for a cup. The wedges have had very different things packed against them. One smells of apples still, when the plane takes a shaving off it; another has a crescent of blue paint in its end grain which comes out blue again however often she pares it.
+
+My part begins when the box is put together, but as yet so light that Nel can lift the deep end with her knee. She lays me along its lip and sees at once that things are worse than she thought. She has made the three descents in the bottom to fit the three steps down to the thickness of a sixpence. What she has forgotten is that each of the steps tips a little towards the drain. She fetches the apple wedge. A shaving, a little lift with the knee, a tap with the handle of the fork. I give her a different answer each time, and presently, without her having done anything at all, I change my mind.
+
+She looks over at the old lamp. The duckweed is just closing up.
+
+After that she waits for the load to come on. She gets me exactly right with the load on, then sits down with her tea and watches me go wrong when it comes off. It is not by much. There are two scratches on my glass to indicate the bounds within which a thing may fairly be called level. There is room between them for both conditions of the mountain. In the end she takes half a shaving off the wedge, working from the thick end and stopping halfway down, a shaving so fine that it stays standing on the plane iron. She pushes the box hard with both hands. It stays put.
+
+They bring the earth up in small lots, in the men’s dinner tins on the return journey. For several days the box smells of onions when the sun gets on it. The pear goes in rather off centre. Nel has stood on the lowest terrace and looked up to see where the wires in the glass will bring the water down. She would like it to fall just clear of the stem. It takes her less time to plant the tree than it took to decide which way round to fit either of the handles. She has a quantity of string ready and three lengths of cane, but the tree stands perfectly well by itself. After a little while she takes the string indoors.
+
+I go back on the first nail. Nel’s hand knows where the fork is now. I might stay there a long time, useful once, with the ginger growing up through the ring on my end, except that she finds something else for me to do.
+
+It concerns the boy. He comes back to see the box and naturally takes hold of a handle. It is rather a disappointment to him that they are not going to move it. Nel lets him loosen the earth with his fingers where the rain has patted it flat; then she takes me down and lays me on the top step and tells him to get his eye close to the glass. She has seen the bead fatten at the brass mouth. In a moment there will be another load.
+
+He waits quite a while. A little of the earth from his fingers comes off on one of my brass stumps. Just when he is going to look up, the clear grape sets out along the glass, travels less than its own length and comes to rest.
+
+‘That was all of us,’ says Nel.
+
+He wants it to happen again. There is no arrangement she can make for that. He must stay to tea, or come another day, or take his chances that a load will be wanted before it is time for him to go down. He elects to stay. Nel goes in behind the ginger and he lies on the warm step with his cheek down, keeping watch. From where he has his eye he can see, upside down and small enough to fit inside me, the pear tree, the far ridge, and a piece of his own sleeve. He takes his sleeve away. There is room now for a great deal of sky.

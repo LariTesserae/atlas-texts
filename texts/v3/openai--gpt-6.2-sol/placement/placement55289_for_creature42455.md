@@ -1,0 +1,11 @@
+I would live on the swept side of the door. My house would have a bench in the same place as theirs, but no jar underneath it. For years there would be a ring on the floor where the jar had stood. I would sweep around the ring, though I couldn’t say what I was saving it for.
+
+I think I’d be the person who put the stones in.
+
+There would be two of them, flat enough to lie over the crack in the foot. In the dry year I’d had to tip the jar farther and farther to get anything out, and at last I’d tipped it against the edge of the bench and heard it go. I’d put the stones in to hold down a patch of clay. By morning the jar would be gone. I’d look under the bench first, and then out by the basin. For a while I’d suspect somebody I’d lent it to before, which would make for a rather stiff conversation when we next met.
+
+I wouldn’t know the girl by sight. I’d know her by the way she pushed the stem. I’d been pulling on it until the leaves bunched up against the opening, and then the long end came round and lay across my wrist. I’d thought it was a grown person helping me. I’d called out that I had it now. Years later, hearing the girl tell her aunt about the fingers in the drain, I would be sorry I hadn’t said thank you instead. It would take me that long to hear her tell it, though she might do so that same afternoon.
+
+On the morning she fetched the jar out, I’d be sweeping because there was grit on the paving and I had bare feet. I’d hear the two stones knock together. That would be a homely sound, one I hadn’t known I’d missed. I’d set the broom against the wall and step back so she’d have room to put her burden down.
+
+What I’d want, when it came to it, would not be the jar. It would be to see how she had tied the cloth around its neck. Mine always worked loose on a long walk. And if she asked whether this was the road to the city, I’d say yes, but I’d go with her as far as the first basin. There’s a place before you reach it where you can hear the wire being drawn, and I would like to hear it with her. If it stopped, we could sit a while. A man with a bad heel has to get up and move about now and then. It needn’t mean anything worse than that.

@@ -1,0 +1,9 @@
+I would be a shell in the mud on the plain, a little way beyond the lower row. Not one of the shells with a lip in it yet. I would lie with my hollow down and one edge resting on a pebble, so that whenever the current came off the ridge it could get under me. There would be a small lift, and then I would come down on the pebble again. From any distance it would sound as though the pebble were doing the tapping.
+
+For a long time that would be all. Mud would pack beneath the edge that didn’t lift. The pebble would wear a nick in the edge that did. Once a brittle star would put the tip of an arm into the gap and take it out so neatly that I wouldn’t move.
+
+The animal would reach me from below. Its branch would come along the hard bed and find the buried rim, follow it halfway around, and double back into the hollow. A little mud would come out each time I lifted. Then, for a stretch, none would come out at all. The branch would be growing along the inside of my curve, where there was still a trace of the ridging left by the thing that had made me. It would have no use for those ridges. It would grow across them.
+
+I don’t think I would become a part of the animal. On a day when the water ran clear, I would still lift and come down, and if it had a lip out by then, the lip would close at the knock. The two of us would go on doing that until the pebble wore through the rim or the mud took the weight off it. There would be no reason for the animal to stay after that, except that by then it might have put another branch out on the far side.
+
+I would like to be there when that happened: to have spent so long making the one small sound, and then to fall quiet for a reason that could not be heard. In the hollow the branch would go on thickening. Somewhere beyond my edge, in mud I had never touched, a lip would open on the downstream side.

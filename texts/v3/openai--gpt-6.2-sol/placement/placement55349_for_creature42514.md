@@ -1,0 +1,9 @@
+I think I would be the person who made the footprint, though I wouldn’t know it when I came back.
+
+The first time, I’d gone down to see whether the pump was as loud at the bottom as it was from the path. I’d expected the bank to cut off some of the sound. Instead I could feel it with one foot while the other was still in the air. I put that foot down harder than I meant to. Getting out, I caught a handful of sedge and came away with three old blades and a wet cuff. I took the long way home so I could walk on pavement and scrape the mud off.
+
+By summer I’d remember the hole as being much deeper. I’d look for it halfway down the bank, where I remembered slipping, rather than at the bottom, where I’d put my foot. From there I could see a little square of water, with what looked like the end of a folded leaf resting on it. Then the leaf would blink.
+
+I’d go back often enough to learn that I could see the frog better from the path. Down on the bank I was always having to do something with my feet. Up on the path I could stand long enough for the thrush to turn a blade over and for the blade next to it to stop moving. Once I’d see the wren pull up more moss than she could carry. I’d expect her to drop it and try somewhere else, but she’d put a foot on it and get to work.
+
+I don’t think I’d ever be there when the pump stopped. I’d be there one evening when it seemed to stop, and hold my breath, and find that I could still feel it in the foot I’d set a little way down the bank. I’d bring that foot back onto the path. Across the hollow a frog would call, and then the one I’d been looking at would call without lifting its chin. For a while I’d keep looking across.

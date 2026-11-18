@@ -1,0 +1,53 @@
+## The High Wet
+
+The fog comes in at walking pace. You can see its edge a long way off, a grey wall two hundred meters high leaning slightly forward, and for a while you can outpace it, and then the ground softens under you and the tussocks close ranks and it takes you the way weather takes anything. Inside it the world reduces to about nine meters: wet green in every direction, the smell of cold iron and crushed moss, and the sound — the only sound — of water arriving on leaves. Not rain. Condensation, gathered by a hundred billion hairs, running down, dripping. It is the loudest thing for a hundred kilometers and it is barely a sound at all.
+
+This is a high country, four thousand meters or near enough, and it does not end. It goes on for two thousand kilometers in every direction, a single tilted shelf of ancient rock, and it makes its own weather because it is large enough to be its own subject. Somewhere out past the last horizon the shelf breaks off and falls away into a dry, hot, low world, but no water from here ever reaches it. The rivers give up before the edge. They sink into fissures, or spread into shallow pans and lift back into the air, and the air carries them inland again and drops them. The same water, ten thousand times. You can taste its age. It is heavy with dissolved everything, faintly metallic, faintly sweet with peat, and it has never once seen the sea.
+
+---
+
+The rock beneath is old in the way that only worn-out mountains are old: no peaks left, no raw faces, nothing younger than sixty million years. It was a range once. Now it is a staircase of low broad terraces, each one a few meters above the next, each edge rounded like a lip, each tread holding a shallow sheet of water that never quite drains. Springs come out at every seam between the strata, thousands of them, and the seams run for hundreds of kilometers without breaking, so from the air — if anything ever saw it from the air — the whole plateau would look faintly striped, dark wet lines ruled across green.
+
+The green is not a forest. It is too high and too cool for that. It is a pelt. Cushion plants the size of hay bales, some of them older than any tree that ever grew here, packed shoulder to shoulder until their edges fuse and you walk on the tops of them like a person crossing a field of sleeping animals. Between the cushions, moss. On the cushions, moss. On that moss, liverworts, and on the liverworts a film of algae, and in the film, ciliates, and in every gram of the whole wet stack, nematodes and mites and springtails in numbers that stop meaning anything. There is no bare ground on this plateau. There is no gap. Every surface is somebody's surface, including the surfaces of the things living on the other surfaces. Rosette plants stand waist-high in wool coats, holding their leaves in tight fists, and their hairs comb the fog so efficiently that each one irrigates its own root crown and a little ring of hangers-on besides. Where a boulder interrupts the mat, the mat has simply grown over the boulder and kept going, and the boulder is a shape under a blanket, and in another century it will not even be that.
+
+It should feel crowded to the point of suffocation. It doesn't, because it's quiet. Moss eats sound. It eats footfall and wingbeat and the crack of a stem; it takes the high frequencies first and then the rest, and what's left is a muffled, padded, underwater sort of silence in which a herd of two-ton animals can pass thirty meters away and register only as a slow rearrangement of the dripping.
+
+---
+
+Here is the thing you notice on the second day, when you have stopped being cold enough to think.
+
+The ground hums. Not audibly. It's in the teeth, in the fillings if you have any, in the fine hairs of the forearm when you crouch. The water tastes of pennies. And at the seams where the springs come out, there are growths.
+
+They rise a meter, two, sometimes four: branching, dendritic, blue-black with a bloom of green where the copper has weathered, hollow, weeping, cold to look at and faintly warm to touch. They are metal. They are not carved and they are not cast and they are not ruins; nothing here was ever built. They grew, the way a stalactite grows, the way a frost-fern grows on a window, only slower and with a current running through them.
+
+Under the peat lie two rock layers that do not agree with each other. Below, an ancient graphite-rich schist, black and conductive and patient. Above, a pale oxidized sandstone loaded with iron and copper salts. Between them, meters of acid, saturated, oxygen-poor peat brine: an electrolyte. The whole shelf is a galvanic cell two thousand kilometers wide. The voltage across it is a fraction of a volt — nothing, a dead battery, less than a beetle's nerve — but the area is continental, and so the current is enormous, and it has been flowing without interruption since before there were mammals.
+
+That is the industry here. Low voltage, immense amperage, geological patience, scaled production. Bacterial mats at the seams reduce dissolved iron and lay it down as metal, one lamina per year, thin as a page. Some of the plates under the moss are eleven meters thick. They are banded like tree rings and they are records: wet centuries and dry ones, ash falls from volcanoes on the far side of the shelf, the year the water table dropped and everything above it starved. Root-mats bridge the strata deliberately, hair-fine filaments of carbonized tissue driving down through the peat to touch the schist, and where they touch, metal beads up along them like sweat. The tussocks plate themselves. Their leaf edges are stiff with iron and cut like a saw, which is why the grazers have iron teeth, which is why the grazers' dung is magnetic, which is why the dung beetles here navigate by a sense no one has bothered to name.
+
+Nothing consumes the output. That's the strange part, the part that takes longest to accept. There is no market, no user, no hands. The metal accumulates, and the water dissolves it, and it accumulates again, and the balance between the two has been held so long and so exactly that the plateau neither gains nor loses a gram in a millennium. It manufactures continuously and its only product is itself, maintained. It is a factory that has been running at capacity for sixty million years and has never shipped anything.
+
+---
+
+The animals are everywhere and you will not see most of them.
+
+Fog-plankton first: midges and small soft mites and drifting spiderlings by the tonne, suspended in the cloud, the aerial crop that the rosette hairs comb out and the small pale birds take with open mouths, flying slow, jaws agape, harvesting weather. Then the moss fauna, which is the real population of this country, an invertebrate nation with a biomass that would embarrass the vertebrates if anyone were counting. Then the grazers: wide-footed, low-slung, moss-backed, plated along the flank in overlapping iron scutes they did not make and cannot stop growing. They carry gardens. Actual gardens — cushions and liverworts and a whole invertebrate community established on their backs, so that a resting herd looks exactly like the ground and a moving herd looks like the ground deciding to move. They crop the metal-rich mats, they follow the seams, they migrate along lines of high current density the way animals elsewhere follow green-up, and they do it without a sound.
+
+They are not mute. They are loud in a band you can't hear. In saturated conductive peat, voltage carries. Every animal here is a low field, a shifting smear of potential, and every other animal reads it — the grazing herds keeping station by mutual repulsion, mothers finding young in fog with zero visibility, disputes settled by a flicker. It is a whole conversation, dense and continuous and completely inaudible, running through the wet ground at the speed of the ions in it.
+
+And there are readers.
+
+They lie flat in the moss for a day at a time, plated, patient, indistinguishable from a hummock, and they do nothing but listen to the fields going by. When something warm and busy comes within four meters they discharge into the ground, and the ground does the rest, because the ground is a wire. The kill happens through the peat, silently, at a distance. This is why the country is quiet: not because sound is dangerous, but because *loudness* is, in the other band, and everything that survived here learned to hold its field still. The young practice it. They fail, and are eaten, and the moss takes the sound of that too.
+
+---
+
+Some rules, if you were ever there.
+
+Never lie down across a seam. Your body would bridge two potentials and the difference would find the shortest path, which is you. Sleep along the contours, not across them. Drink from moving water; the standing pans have had too long to dissolve things. Don't trust a compass — the current makes a liar of it, gently, consistently, by about eleven degrees. Before the afternoon rain your hair will lift, because the plateau bleeds charge continuously into its own cloud and almost never gets lightning, and the near-miss of lightning is a feeling rather than an event here, a permanent condition of the afternoon.
+
+The day runs on a schedule so reliable it feels administrative. Fog until nine. A slow burn-off, then two hours of ordinary hard sunlight — real shadows, blue sky, the whole shelf steaming, every metal comb wearing a collar of vapor because it sits one degree above air temperature and is the only warm thing in the world. Then the convection builds, the dome of cloud closes over, rain at three, and by dusk the fog again, walking in from the east at the pace of a person strolling. Nothing about this is dramatic. It has happened every day for longer than there have been eyes.
+
+The seasons are not thermal. They are electrical. When the water table falls in the dry months the peat's resistance rises and the current changes character, and everything that breeds here breeds to that — not to daylength, not to warmth, but to amperage. The herds calve when the ground gets quieter. The plates lay down their thin dark line. Somewhere a comb fractures in the cold with a crack that carries nine kilometers, the loudest sound in the country, and every field within a hundred meters goes flat and still for a full minute before resuming.
+
+At night, when the fog thins, there are ordinary stars, and below them the seams glow very faintly — bacterial, blue-green, no brighter than a watch face — tracing the striping of the whole shelf out to the limit of sight, which is not the limit of the shelf.
+
+It is all going on. It is all going on quietly. That is how you know the work is going well.

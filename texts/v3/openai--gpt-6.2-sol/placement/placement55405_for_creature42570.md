@@ -1,0 +1,13 @@
+I think I’d be out in the grass, with one knee of my trousers wet, trying to work out what had happened to the middle of a dandelion.
+
+I’d be the person who cuts the grass there. There’s a strip the mower can’t reach without catching a corner of the old stonework, so I go along it with hand shears. That’s how I’d notice. A rabbit will take the whole leaf. Whatever had been here had got its mouth in among the big leaves and torn out the new ones, leaving the flower and even the little white stalk it stood on. I’d put my finger in the gap to see how much room there was. Not much. I’d go back to the shed thinking about the shape a mouth would have to be.
+
+For a long time that would be all I knew of the animal. I wouldn’t know about the steps or the man with his cup. I’d have my own way of telling when the pipe cooled: the cuttings would stop blowing out of the strip. The rest of the grass could be going flat in the wind and there they’d lie, even the light little ends I usually had to pick out of my socks. One afternoon a blade would lift between the open jaws of my shears. It would pull taut. I’d leave the shears open and watch it go, and my first thought would be that I’d nearly cut somebody’s lip.
+
+After that I’d do the strip by hand. Not because I’d decided it was sacred. It would still collect cigarette ends, and there’d be a dock I’d have to dig out twice because the first time I’d be too polite with the root. But I’d learn to leave the short pale grass alone. I’d get to know how little of it was actually taken, and how long it took to grow back.
+
+I’d talk while I worked. The man on the stairs had good night, but I don’t think I’d have a thing I always said. Mostly it would be the ordinary running account you give when you’re doing a job beside someone who can’t see your hands: *That’s the stone. I’ll have to get the other ones. No, wait, I can do it from here.*
+
+And once, late in the year, I’d come back for the shears after putting everything else away. I’d find them where I’d left them, open in the strip. All the grass within reach of the blades would be standing. Just beyond the tips, three or four of the soft new leaves would be gone.
+
+I’d sit down to close the shears so they wouldn’t snap. Then I’d sit a little longer. From underneath, if there was still enough water to have an ear, there’d be nothing much to hear: my sleeve against the stone, a bus changing gear out on the road, then my sleeve again as I reached for the shears and took them home.

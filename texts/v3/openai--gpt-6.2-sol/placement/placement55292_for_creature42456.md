@@ -1,0 +1,9 @@
+I think I would be in the nest, but not one of the young. I would be one of the scales the parent brought up while it could still be bent. It would have laid me hollow-side up, so that for once the wind would have had its way with me and turned me over, if not for the threads.
+
+For most of the season there would be a foot in me. Not always the same foot. The young would jostle in their sleep, and sometimes a set of toes would come down so exactly in the shallow grooves left by another set that I would know the weight had changed only by the warmth. From below I would look like a little patch of shade in a floor full of feet.
+
+But a scale has already finished growing. I think I would be the bit of the ledge that went on fitting itself to the nest: a thin lip of violet stone beneath the outer edge, where the floor bowed under the young and rubbed against me. All season it would take away a little grit. There would be no sound to it from above. Down in the split, where the stone was cold, I would hear the rubbing stop whenever a shadow passed. Even the largest of the young, which had begun to stand with its wings half open and inconvenience everybody, would put its head down then.
+
+At the end I would be under the foot that stayed. The other foot would be curled up against the body, gripping nothing, and the young animal would keep leaning out and drawing back. Each time it drew back the nest would scrape once against me. Then the air would get under the wing, and the scrape I was waiting for would not come.
+
+The nest would stay. In the years when the grove went brass, the wind would work at its loose edge, lifting it high enough at noon to show the stone underneath. By then there would be a pale, smooth place where the floor had rested, and just beyond it a little ridge the floor had never touched. The grit would collect against the ridge. At evening, when the first cold air came down, some of it would go over.

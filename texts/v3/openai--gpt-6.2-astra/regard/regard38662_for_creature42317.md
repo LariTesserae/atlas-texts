@@ -1,0 +1,19 @@
+The power came in time to see the hairs move. It had seen the creature feeding lower down and knew what usually happened to a speck that came within reach of the lips. Here there was one speck, a brown one, and it went past the left lip seven times. On the eighth the animal shut its mouth. The speck went round once more, quite slowly.
+
+There was a little water left in the line below the bead. The animal found it with one toe and went down backwards. The power had been ready to carry it down.
+
+For a long while there was very little for the power to do. Once, when the new skin was still soft, the oval body came loose from the washer. It rolled as far as the end of a dead green thread and stuck there. This was a better place for it than the one it had come from. At another thaw the oldest of the three skins opened under the green. A foot came through first. It took the small animal nearly the whole of the warm time to get out the wrong way round; but it got out. The power was learning what a long time one ought to allow for things in the drawer.
+
+Upstairs, in the twelfth year, a man came to attend to the indicator. He had put his hand over it to shade it from the strip lights and had seen no amber, although he could feel the motor running through the soles of his shoes. He fetched the drawing. On the drawing the glass was the other way up.
+
+This was a difficulty of a different kind. The man needed to know about the current. On certain nights he was the only person in the building. The threads needed the light that did not tell him anything.
+
+The glass button was held in a black collar. Its upper face, nearly flush with the collar, had a little chip at one edge from the day it had been fitted. The power took hold of the chip. It took away less glass than there was rust in the body of the animal, and left a sloping face there, no bigger than the facet on a grain of sugar.
+
+The man had got as far as putting the two screws from the cover in his breast pocket when the motor started. A fine amber stroke appeared at the edge of the black. It was visible from the door. He went to the door twice, once with the strip lights on and once with them off. Then he put the screws back. On the drawing he made a short pencil stroke to show where to look.
+
+Downstairs there was a difference too. On one of the upper welds, where there had always been a spot of light, there was now a spot shaped like a bitten seed. No light had been taken from the washer. The power looked to make sure of this, with the motor cold as well as warm. Then it left the glass alone.
+
+It came back from time to time. There were thaws when it could find no animal, only a grain that became several grains if one looked at it through a certain thickness of folded skin. There was a night when there were five, and the smallest kept fastening its toes to the back of a larger one and being taken somewhere it had not set out for. In the end the scale by the screw broke off. The water lost its turn for a while and spread in a thin bright apron over the steel. The power did not put the scale back. The valley that came after was a little to the west of the first and had two mouths.
+
+The animal in the high bead was not always the same animal. There was no reason it should be. One of them went up only so far as the last of the brown lines; another went past the bead altogether and had to feel about on bare ice before it found the water again. But once, much later, the power saw the small hairs bend just as they had bent the first time. It stayed for the return of the speck. Upstairs the man, passing the door with his coat over his arm, saw the amber stroke and knew he could go home.

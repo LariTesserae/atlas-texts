@@ -1,0 +1,9 @@
+I would come in with the mud on the night the water goes backward. Not far in. By morning most of the mud would be spread in a thin fan across the entrance, but a little would have gone under the tilted kneeling stone. That is where I would be, in the soft part between the weight of the stone and the weight of the water.
+
+At first there might be no telling me from the mud. I would be pale enough to show against it if I straightened out, but I would seldom straighten out. I would eat my way along the underside of the stone, taking in the softer grains and leaving the coarse ones. After a few days there would be a narrow space there that hadn’t been there before. When the water pressed in, I’d draw back into it. When it drew out, I’d put my head where the new silt settled.
+
+The little animals would pass above me on their way to the cup where the seepage came in. I’d know them by what came loose. One would dislodge nothing at all; another, taking the same route a moment later, would send down a grain big enough to stop up my doorway. I’d spend half the evening working around it. By the time I got it out I’d have a second doorway and would hardly use the first.
+
+Once, when the water stood high, one of them would come down the edge of the kneeling stone. A white toe would enter my new opening. It would reach almost as far as I could go back. Then it would bend, get a purchase on the stone, and carry the animal on. A little mud would fall into the space it left. There would be food in that mud. I’d come forward.
+
+I think I’d be a worm, though not one you’d see unless you lifted the stone. On the side that used to take a knee, the shallow hollow would dry between tides. On my side, as the mud thinned, I’d find a vein in the limestone that stood out just enough to hold a line of silt. I’d follow it toward the basin for a while. Then it would turn, and without ever coming out from under the stone I’d find myself headed back toward the flat.

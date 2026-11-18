@@ -1,0 +1,21 @@
+It was the hand with the wet bark in it that first interested the power. There was still a fair part of the roof to do, and the stuff went hard rather quickly. The man let it go hard. When he had heard the last foot go he put the lump in his mouth to soften it again. It tasted of all the things he had touched since morning.
+
+The power stayed in that part of the table for a while. It could feel a weight all the way down to where the mountain took it, which is a way of knowing about a place not much available to those who live there. A child sitting down rather suddenly on the top rung of a ladder could be felt in a ridge of stone a quarter of a mile below. So could the child getting up. The two feelings were quite distinct. It took the power some time to learn how little of what went on in the roots was a matter for concern.
+
+The slant limb, for instance, was slipping. Each summer the fork that held its thick end opened a little further. At first the power thought of closing the fork. But there was a live tip coming through it from below, folded double on itself, with its soft needles all pointing the wrong way. As soon as there was room it would come up between the two arms like a hand out of a sleeve. There were a great many arrangements of this kind in the tables. It was difficult to put a thing back where it had been without finding that something else was on its way there.
+
+By the third summer after the man heard the feet, the thin end hung down into the hollow in his roof even in still weather. There was fresh dust coming out of it. One of the small ones had grown up and made her hole rather far down the limb, where a piece of dead sidewood kept the rain off. Some nights the man heard her at her tapping. It sounded like a person with a very small spoon trying an egg.
+
+The fork let go on a quiet afternoon. There was no first knock. The thick end settled through the arms and the thin end bore down on the roof, and for a moment the plaster held. Underneath, the man was getting up from sleep. His hand went flat against the roof in just the place where a hand might have done some good, if the limb had weighed about a hundredth of what it did.
+
+The power took the weight. It had been feeling the man do that same thing, to the extent of his ability, for three summers. It knew where to put its strength.
+
+For a while the limb lay quite still with no support at either end. The man got out backward through his door. He had a long red mark across his palm from one of the roof sticks. He stood looking up at the gap in the fork, trying to account for the position of the wood. Then the plaster began to come off in flakes and he went to fetch his bowl and his sleeping fur before they were spoiled.
+
+Just downhill of the house the daylight roots made a shallow trough, half full of old needles. The power eased the limb over that way. It went slowly, on account of the little ones. They had come out as far as the lip of the grub run and were looking down, their bare chins in a row. A dead twig trailing underneath wrote a long wavering line in the plaster. When the bark touched the needles the little chins went in. There was scarcely a sound.
+
+For a good many years afterward people going by were shown the line on the roof. It was difficult to see what was remarkable about it unless one had seen the limb before. The man generally finished by getting underneath and putting his hand up, which was the part he remembered best: the instant when the weight went out of his hand, though the wood was still there to touch.
+
+The root wife stayed in the trough. Water collected there after a cloud, and she had only to put her head out to drink. The following summer the live tip stood as high as the empty fork and began to open its needles to the pale. It had a crook in it that never quite came straight.
+
+As for the power, it went on a little below the rim, where it had found the hearing good. A long way out it felt the first lift of the bark. Nearer to hand there was a dry, deliberate tapping, a pause, and then the very small sound of somebody getting what she had come for.

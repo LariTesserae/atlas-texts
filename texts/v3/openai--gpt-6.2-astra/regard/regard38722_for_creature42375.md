@@ -1,0 +1,19 @@
+The power came down the steps and made the mistake of standing on the dry one. The warmth went out from under its heel. It moved up a tread, into the water, and after a while the warmth came back. It spent the rest of that afternoon with its feet wet.
+
+It could have looked through the stones. It preferred to learn what could be learned from above them. In particular it liked the place on the dye works wall where the blister came out. A drop striking it lost its roundness altogether. For an instant there was a little flat star on the wall, clear to the brick at the centre, and then the moss below darkened in the shape of a fan. The power saw this happen eleven times. It had no more idea after the eleventh time than after the first whether the animal liked it.
+
+On the way out it noticed that the bright arc was not of quite even width. For most of its length it was no wider than a pencil stroke. At the end nearest the parcel office it opened out a little. This might have been the work of fifty years. The power put nothing there to mark it, but remembered the shape.
+
+It came back in a wet month. The troughs were all running into one another and there was no distinguishing the separate pours by ear. The mark was the same. It came back when the willow was shedding and found a yellow leaf caught by its point under the strip. The leaf worked loose by itself. It came back in a hard frost, when the cloth bar made a row of short glass teeth and the animal stayed low. Then it could see, against the old grey end of the arc, a fleck of new stone as white as the inside of a chipped cup.
+
+The screw was sound. It was the stone that carried the screw that was going, down at one corner, into a pocket out of which the water had taken nearly all the fine stuff. The brass was beginning to bear on one edge. In time the edge would wear a groove deep enough to catch it. The person who had filed the underside so carefully could hardly have provided for this. When the strip was new the two stones must have lain almost level.
+
+There was quite a temptation to set the paving right. The power could feel how easily the six buildings might be brought back to the levels marked on their walls, how sweetly a new pump would run. But the little falls across the court were all faults in the paving. There had been no falls when it was laid.
+
+Instead it went down into the pocket. There was room there for one small hard thing, about the size of the last joint of a thumb. It tried several shapes. With the first the sett came level but no longer lifted. With the second it lifted, but the water missed the chipped corner and went in a broad sheet down a different joint. The shape it settled on was rather like a back tooth, with a hollow in the crown. The stone could rock on it. It left it there through a filling of the tank, supporting it from beneath, and felt the weight come on and go off again. Then it gave the little thing the hardness of the grey pebbles round about and took its hand away.
+
+From the steps there was nothing to see. Even the white fleck was still there. In the parcel office a load of brown water trembled on a leaf without spilling. Presently the free end of the brass lifted. The pink came through doubled, as before, with room to spare.
+
+There were other things that might one day need doing. There was a bearing in the pump that would not last for ever. The willow had less room on one side of the ellipse than on the other. The power had time enough to come again; it did not put the tree to the trouble of growing round a kindness it would not need for twenty years.
+
+Before it went it sat for a little on the aluminum lip, its feet well clear of the stairs. The tank emptied. For a while the second-floor window was silver from side to side, so that nothing behind it could be seen. Then the curtain came apart into strings. On the brick below, in the last of the good light, the little fan was drying from its edges in.

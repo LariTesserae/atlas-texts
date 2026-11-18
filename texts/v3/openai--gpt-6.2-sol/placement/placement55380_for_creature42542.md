@@ -1,0 +1,15 @@
+I think I’d come up with a clipboard. Someone at the bottom of the path would have told me there were seventeen houses, and I’d have written *17 houses* at the top of a fresh sheet before I started climbing.
+
+I’d be making a plan to go beside the road, so that somebody coming for the first time could find the right door. The woman who works at the care home says there’s no use putting *Ask at Nella’s* on it. Suppose it’s Nella you’re coming for, and suppose it’s three in the morning.
+
+In the square I’d count fourteen doors. The boy would show me two I’d walked past, one because it was under the stairs and one because somebody had hung wool in front of it. The last would turn out to be a door I’d counted already, approached from the other side. I’d have to walk around that house twice more before I could put the door on the correct wall.
+
+I’d have a little wheel on a stick for measuring distances. The boy would want to roll it, and I’d let him. At the deep steps he’d lift it carefully, pleased with himself for not letting it knock. We’d get all the way to the lower lane before I noticed he’d been turning the wheel with his thumb whenever it was in the air. He’d say he thought the steps ought to count. We’d go back and do it again, and this time I’d mark the steps.
+
+Nella’s brother would watch me put in the bench. Then he’d tell me his door was farther along. I’d start to explain what the plan was for, but he’d already know. He’d be telling me because I’d drawn the lane too short. It goes past where his door was, then a little way farther, to a place where you can stand on the rock and reach the outside of the parapet without leaning. He used to shake the crumbs out of the bread cloth there. He’d tell me this last part while I was still drawing, so I’d have to ask him to say it again.
+
+I wouldn’t put the door on the plan. I’d leave the lane full length.
+
+By then I’d have missed the ride I’d arranged down at the road. I could call for another, but there’d be a while to wait. I think that’s when I’d find out where I was in the town. Not at the square, where I’d spent most of the day, or at the notch, where I’d kept thinking I ought to be on my way. I’d be at the far end of the bench, with the folded sacking under one thigh because Nella’s brother had pushed it over without looking. I’d have the plan on my knees and be rubbing out a turn I’d made too sharp.
+
+I’d be back the following week with a proof. He’d put his finger on the lane and follow it all the way to the end. Nella would point out that I’d got her gate swinging the wrong way. And when I took the plan down to the road at last, I’d ask the man putting up the sign to wait while I walked a little way off and came back. I’d want to see it from where a stranger would first see it, with the wall above and no houses yet in sight. The first thing they’d need to know was that the notch was the way in. From below, it hardly looked like room enough.

@@ -1,0 +1,9 @@
+I’d want to be where the gecko stops, though at first I’d mistake that for wanting to be the middle stone. From the steps it looks like a good place to spend a long time. The root does the moving for you, and once every few years there’s a little more room underneath.
+
+But the stone is too big. The place I mean is just in front of her right forefoot, where the dust rises in a low ridge around the print. I’d be a grain there, small enough to roll down into the print without changing its shape. When she comes home, the pad of her foot presses me in among the other grains. When she lifts it, I come loose. Most mornings I end up a little farther down the same slope.
+
+I wouldn’t know her by her eye. I’d know the difference between her coming and going. On the way in, her foot lands and is gone. On the way out, there’s sometimes a long interval between the weight arriving and the weight lifting. A beetle can go by in that interval. Once, a drop lands hard enough outside the stone to send a wet grain all the way into the print. It sticks to me. For the rest of the morning we’re bigger than anything else our size.
+
+Farther back, where the eggs are, there’s dust that never gets stepped on. I might think of that as the place I’m headed. Then one night a foot comes down in the print and hardly reaches the bottom. Three toes touch. They spread, slip a little, and try again. Where the smallest toe slips, it pushes me up over the rim.
+
+In the morning the gecko puts her foot down where she always has. I’m just far enough away that she doesn’t touch me. Up close there isn’t much to see of the new track, only a few grains that have rolled the wrong way. From the steps there’s nothing to see at all. The little gecko is already on the wall.

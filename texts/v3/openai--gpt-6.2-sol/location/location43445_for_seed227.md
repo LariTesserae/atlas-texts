@@ -1,0 +1,13 @@
+From the beach there is nothing to see but a low bank of stones and a strip of fern flattened by the wind. The way in is under the fern. You put one hand on a slab that looks loose and has not moved in anyone’s lifetime, and slide down the length of your own body into the cold.
+
+The hollow is no bigger than a room. It runs inland beneath the bank, and the roof rises just enough at the far end for you to stand without touching it. There is almost nothing in the middle. A single pale pebble lies on the floor, some distance from the wall, and in the faint light from the entrance you keep mistaking it for a much larger stone farther away.
+
+The sea is deafening in here. It doesn’t come in. It strikes the underside of a ledge somewhere beyond the back wall, and the sound comes up through a crack you could barely get two fingers into. The first blow makes you think something has fallen behind you. By the third you can hear the smaller noises inside it: the loose stones rolling back over one another, the hiss as the water draws off the ledge. Between waves, if you speak, you can hear the first few words of what you’re saying.
+
+For all that noise there is very little water. The floor is packed grey grit, dry enough in the middle to take a footprint. Rain works down through the bank and darkens the walls in patches. Along one seam a bead gathers so slowly that you can go away and come back and find it still there, a little longer. Under it, the stone is worn into a shallow cup, usually empty.
+
+Everything green grows within reach of the mouth. Ferns stack their fronds in the few inches of open air beneath the slab. The moss is thick enough to take the shape of a knuckle and hold it for a while. Small round leaves grow out over the lip and turn their pale undersides toward the dark. Farther in there are only roots, a few of them finer than hair, hanging from the joins in the roof. Once in a while a wren slips in among the ferns. You see the fronds move where it lands; there is no chance of hearing it.
+
+Someone laid three flat stones just inside the entrance to make a place to kneel. The middle one has been worn smooth at its near edge. In a dry cleft above it is a wooden peg with knife facets still visible on the sheltered side. Whatever hung there is gone. In winter, when the ferns die back, you can see the peg from the beach if you know which gap to look through.
+
+A hard swell can keep the hollow roaring for days without moving a grain of its floor. What changes it is the rain, and the slow growth at the mouth. The lowest fern has rooted in the joint beside the kneeling stones. One of those stones now sits a little higher than the others. If you kneel there, it rocks once under your weight, then settles.

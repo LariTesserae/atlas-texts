@@ -1,0 +1,11 @@
+I would be a piece of the pot they took away. Not the piece with the crack in it. I would come off later, when the keeper sat on the ramp with the pot between her knees and worked the perch free. I’d be the bit of rim that came away in her hand with the wood.
+
+A piece that size is good for getting dust out of the hollow in the grinding stone. The keeper would use me for that. The curve that once faced into the pot would face up, and her thumb would fit where the perch had been. She’d carry a little meal of brick to a tree and tip it onto a low leaf. Some of it would always stay behind in the notch. At the end of the afternoon she’d knock me once against the bench and leave me there.
+
+So at first I would know the grove from the height of a hand. I’d know which leaves she turned over before feeding them, and which tree she could reach from the bench without getting up. I’d know the back wall mostly by the time she spent there without me.
+
+Then one evening she’d set me down beside the new pot while she went to look for a shaving she’d dropped. She’d find the shaving and forget me. I’d spend the night on my side, with the old curve of the rim sticking up a little from the floor.
+
+Above me the young animal would make its rounds. I don’t think it would climb down onto me. I’d be too low to make any difference to that part of the journey. But after it had found the old animal’s foot and come down, it would put one foot in the notch. The notch would still have dust in it from the stone. In the morning the keeper would find four clear toes there, and off to one side a thin mark where the folded toe had dragged.
+
+She’d take me back to the bench and use me again. That would be my place, most days. But when she went to trim the perches she’d bring me with her, and afterward, if she remembered, she’d set me down by the little pot. She would not always put me at the same angle. The animal, which had never had to look for me when I was part of the rim, would get quite good at finding me in the dark.

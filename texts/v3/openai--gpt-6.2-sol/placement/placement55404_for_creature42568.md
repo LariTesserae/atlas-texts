@@ -1,0 +1,13 @@
+I’d have a bench under the stairs to the upper press room. I’d print the street plans there. To get a new plan flat on the bench I’d have to fold the old one in half, which is how I’d know it was time to take the old ones down.
+
+The trouble with printing the plans would be deciding what counted as a street. At first I’d go out with a tape and measure everything that had a floor. Then a woman from the bearing works would bring me a tray of unfired bushings and ask me to take it upstairs by the route I’d just drawn. I’d get as far as the ladder. She’d wait at the bottom while I worked out that I could carry the tray or climb the ladder, but not both. Then she’d take me to a grating at the back of the shop and knock on a pipe. Somebody above us would lower a basket.
+
+I’d put the basket on the next plan. People would complain that it wasn’t a street. They’d be right, and I’d leave it on.
+
+When Ida was born I’d be working on the two rows of houses at the top. On paper, Mara’s kitchen and her son’s would be farther apart than any other two rooms in town. I’d had to put one of them in a corner of the sheet with a little arrow to show where the stairs continued. This would bother me more once I’d seen Mara pass a cup across without getting up from her chair. Her son had to lean out to take it. Neither of them looked down.
+
+One afternoon he’d ask me to go round and sit with Ida while he fetched the washing. I’d go down the stairs and across the bridge, holding the folded plan I’d meant to show him. Ida would be awake in the drawer. I’d been told not to pick her up unless she cried, and she wouldn’t cry. She’d lie there opening and closing one hand. After a while Mara would ask from her window whether the baby’s feet were covered. I’d say yes. A little later she’d ask me something I couldn’t make out. I’d bring a chair over to the window. What she’d wanted to know was whether I was warm enough.
+
+I don’t think I’d ever get the two kitchens right. But I’d start leaving the bench more often, and not always with the tape. Some weeks I’d still be at the press when the town changed shifts. Other weeks I’d be at somebody’s door saying, “Show me how you get there when you’ve got something in your hands.”
+
+That’s where I’d be most useful, I think. I’d be the person who had to ask. After a while people would start coming down to the bench without waiting for me to get a stair wrong. Someone would set a hinge pin beside my elbow and say that as long as I was going up to Mara’s, would I take her that. And I’d say I wasn’t going up to Mara’s, and finish what I was doing, and take it up.

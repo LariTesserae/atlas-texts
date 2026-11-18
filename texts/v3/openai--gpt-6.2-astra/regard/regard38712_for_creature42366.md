@@ -1,0 +1,17 @@
+For a number of evenings the power did nothing. The shorter animal came a little farther out each time. Its fringe darkened from the ends inward, except for the two hairs nearest the mouth, which stayed the colour of linen. It had the habit, on coming up out of the powder, of turning once quite round in its own length. The larger animal waited for it. There was nothing in this that could have been improved by hurrying either of them.
+
+On the evening they came to the hollow together, the power noticed a change in the low house. A skin was coming off the middle court. It had come free at the bottom first, and there was a space under it about the height of the little animal. The space went some way into the wall. At the back, in the dark, two plum-coloured ends had risen, carrying between them a few ripe seeds.
+
+The larger animal went past this opening. The smaller one turned in. Its fringe made a light sound on the underside of the skin, rather like a brush passing over paper. It got as far as the seeds. Then the skin came free at the top.
+
+The power held it where it was.
+
+For a moment it seemed that a good deal more would have to be done. The little animal had gone in head first; the space was too narrow for its customary turn, and it lay with its white underside pressed to the wall, quite still. The larger one was already on the far side of the court. Its passage could be followed by the little downward movements of the ends it brushed in going by. Presently those movements stopped.
+
+The power had never seen either animal go backwards. Now it saw how it was done. The fringe, which in going forward lay nearly flat, stood out along both sides in a succession of little waves beginning at the mouth. The hairs found purchase in inequalities of the salt too small to see. The white belly came loose a little at a time. It took longer than it had taken to go in, partly because the animal stopped, when nearly out, to do something about a seed sticking to its lip. Once its whole length was clear, the skin dropped. It struck the sloping foot of the wall and broke in two. The larger piece stood up against an upright. The other lay flat.
+
+Neither animal turned at the sound. The little one crossed the court, going rather wide of the track of its companion, and passed under the lintel on which the two ends hung apart. It had a seed caught far back on the left, nearly at the place where the fringe dwindled into the grey of its body. At the courteous bend it went up on its side. When it came down the seed was gone.
+
+There was much else the power could have held in place. Already the top of the solitary white angle was thinner than at first. But on looking underneath, the power found that the two lobes there had joined, and that the plant was drawing mineral from the very part which, from above, one would have judged in want of strengthening. One arm would presently fall. The other would stand the better for it.
+
+By morning there were two tracks on the sill. One went straight out, with its familiar small interruptions. The other went as far as the plain, turned quite round, and came in again. Under the piece of salt which stood against the upright there was just room for a small grey back. The seed dust on it was still undisturbed when the light reached the floor of the court.

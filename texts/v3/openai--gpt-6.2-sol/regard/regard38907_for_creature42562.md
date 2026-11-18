@@ -1,0 +1,13 @@
+The power came in a winter when the herd was late.
+
+In one of the hollows the first hard frost had brought the hair-tenders up through the bedding. They waited on the surface with their feet sunk in the felt. By the third morning there were so many of them that the bedding looked newly black. The herd was standing two hollows away. A calf had put a foot through the ice at the edge of a spent trough, and the adults had stopped around it. In the afternoon the calf could bear weight on the foot. By dusk it could not.
+
+The power could have taken the hurt out of the foot. It waited until the calf lay down and the weight came off it, then felt the little bones settle. None was broken. The calf slept for a while with its nose against the inside of an adult’s leg. Toward morning it woke and tried to rise before it was ready.
+
+There was a place, just below the trough, where the wind came through a break in the shale. The power set a loose slab upright there. It did not close the break. It narrowed it enough that the wind laid down some of what it had been carrying. By the next evening there was a shallow drift on the lee side, and in the night the calf got up and put its foot into the drift. It stood there a long time. When the herd moved, it went with them, taking a short step every fourth step.
+
+They reached the hollow after dark. Some of the hair-tenders had gone back down into the felt. The others climbed the first legs they found, which were the calf’s. In spring, when the herd rose, it had a pad low on one side where no pad usually grew. It had lain on that side most of the winter. There were lodgers in the pad that had never before lived so near the ground.
+
+The power stayed to see what would happen at the break in the shale. For several years the drift came back. A plant took hold there, and a grazer began to visit it from the trough side. Then a thaw took the footing out from under the slab. It fell in the night and broke across the middle. The following winter the wind went through as it had before.
+
+By then the plant had roots on both sides of the break. In dry years the grazer found it from one side only. The other side grew a little farther out, into air that seldom held water. One summer a young grazer came that way and stopped. It put its head down, lifted it, and put it down again a little nearer the stone. The power, which had been about to go, waited until it found the leaves.

@@ -1,0 +1,27 @@
+At the turn the girl stops. There is room for both her feet on the broad end of the step, but with the crock out in front of her she cannot see the one below.
+
+“Put your hand where my head is,” she says.
+
+Her mother lays the lid on the landing and does as she is asked. It is a curious arrangement. There is no weight at all on the hand. The girl goes down under it, one step and then another, and sets the milk in the notch her grandfather has chosen. There are three such notches, cut in the wall at different heights. The back of this one is cold enough to hurt her knuckles.
+
+It is here, with her mother going back for the lid and the girl smelling her wet hand to see if stone has a smell, that the power first sees them. It could see the whole plain at once, which no one standing on the plain can do. But it has had occasion before to find out how little can be seen that way. From a great height the hand on the child's head and a hand holding her back would have looked exactly alike.
+
+It stays through the evening. There is a good deal of discussion at supper about whether a fish can find its way back to a cupboard in the dark. The old man says that he could find his way about the bread room with his eyes shut. This is tried, in a manner of speaking. They shut his eyes for him and ask him where things were, and he points to where the salt was, in a niche well clear of the oven, and where the lamp hung. At the oven mouth he puts his hand out flat and at once turns it over, the old way of trying the heat for loaves. His daughter has forgotten that movement. Seeing it brings back, for the length of a breath, the particular heat on the skin between her fingers. Then the smallest wakes up wanting supper and has to be got out of the drawer.
+
+By now the power knows something for which none of the five has any particular use this evening. Well below the notch where the milk stands, there is a stone which carries the outer end of the turning step. It goes a long way into the wall. The water has found a bed of soft stuff under its far end and has been carrying it away, a few grains in a season. The stone is perfectly steady under a child's weight. Under a woman with a bundle of damp wool it will one day move. After that the most likely thing is that it will stay where it is for another hundred years. But it will have moved the breadth of a hand, quite quickly, with somebody standing on it.
+
+There are any number of things the power might do about this. What it does is to give the stone its settling now.
+
+In the kitchen they hear the sound that a heavy board laid flat on a table makes, though the board is hanging on its peg and the table is under their elbows. The old man puts his spoon down. For a while there is only the little suck and lap that goes on all night under the floor. Then from down the wall comes a running sound like somebody emptying the last of the peas out of a sack.
+
+“That'll be the turn,” he says.
+
+They take the lamp. The milk has not even splashed its lid. Below it the turning step has tipped down at one end to make a little roof, with a very black triangle of nothing under the high side. The old man, who has come as far as the landing in his stockings, gets down with some trouble and puts his cheek to the floor. He is looking along the edge of the stone. Somebody once taught him to do this and he has never found a better way, although it is the very devil getting up again.
+
+They put the stool on its side across the head of the stairs. The older girl is sent round by the back landings to tell the other kitchens. She comes home with half a hot onion cake in a twist of paper and news of two men who can come in the morning. Her grandfather wants to know which two. When she tells him he says that's all right, then, and goes to bed.
+
+The power does not take the water out of the bread room. It would be possible to put the room back as it was, down to the floury print of a thumb on the oven latch. It would be possible to go on in that fashion for ever, making the room ready for a woman who had finished her baking there. Meanwhile there is a fish in it. The little snails are out on their night's journey; the girl going to bed with onion on her breath has been promised the first look under the stone. There is quite a crush of things already here.
+
+In the morning they get the step up on wood blocks. The two men have brought a boy to do the running, but the old man sends him into the kitchen and asks his daughter to bring out the long board with the split. On it, with a heel of chalk, he draws the shape of the piece they will want. He gives the drawing to the boy, board and all. It comes back just before dinner with a piece of sound blue stone on it, cut to the line. There is a white half-moon gone from the onion cake, which the girl had forgotten on the table, and for years afterward they differ as to whether the stone boy or the baby got it.
+
+By evening the turn is fit to walk on. The girls fetch up the empty crock together. Through the pipe hole a bar of late sun goes down green into the cupboard, and quite a long way above the cupboard, in open water, hangs the little dun fish. For once they have a view of the whole of it, tail included. They go upstairs and set their grandfather's fingers the proper distance apart. He looks at the space between them with interest. This time they have made it rather bigger than he would have done himself.

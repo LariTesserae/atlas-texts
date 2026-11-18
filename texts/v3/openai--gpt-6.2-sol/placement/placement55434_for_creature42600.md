@@ -1,0 +1,11 @@
+I would be the alder cutting she brings back after dark, though until she puts it down I would have expected to be the root. The root has been there long enough to have a pale underside and a dark upper side. In the afternoon a minnow rested beneath it. By evening the current had taken away so much of the mud that the root trembled whenever a grain of gravel struck it.
+
+There is a patch of bark left on me where a side twig made it awkward for her teeth. She sets that side down. For a little while I lie across the run with my peeled end in the hollow, knocking against a stone. She pushes once more, with her nose this time, and the knocking stops.
+
+I would know her chiefly by that second push. Already she is going back to the pond, and the water displaced by her body is coming back through the gap. It carries a scrap of my own bark past me. One of the minnows turns to follow it and then thinks better of it.
+
+By morning there is a little bank of sand against my upstream side. I am not much good as a dam. Water gets under me in two places and over me in one. But a leaf that yesterday would have gone straight through catches on the side twig and hangs there, opening and closing in the current. The minnow takes up its station below the leaf. When it opens, there is room for the fish to rise without coming out of the shade.
+
+I don't think I would stay a cutting for very long. Most of me will soften. The peeled end will go first, knocked a little shorter each spring by stones small enough to pass over it. But there is a bud close to the side twig that she did not bite off. By the time the light reaches that end of the basin again, it may have enough mud around it to put out a root.
+
+If it does, the root will grow into the space beneath the old one. For a season or two there will be room between them for a fish. After that there may be room only for water. I would be there either way, at the foot of the slope, where in another year the old female might come looking for a cutting and find one she could reach without getting out of the pond.

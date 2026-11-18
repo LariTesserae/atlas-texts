@@ -1,0 +1,11 @@
+I would come down from the pass as far as the first crest with a door in it. From above I’d taken the door for a break in the white edge of the roots. At eye level there would be a little sill, dark in the middle from the feet that had gone over it. I would lie on my side to look in, and the bird would wait somewhere behind me for me to move.
+
+I thought at first I would be the bird waiting. There is something enviable in knowing which cup is about to tip, especially after a morning spent watching water stand in a thousand apparently identical cups. But I would be looking too often at the one the bird had passed over. I’d want to see whether it tipped by itself, and whether the cup beneath it was ready. By the time I raised my head the bird would be three ridges away.
+
+Under that sill, a little to one side of the place where the nest rests, I would be one of the soft animals eating the old leaves.
+
+There is room there to turn, although I would have no occasion to turn for a long time. The leaf ahead of me is broad and still has its ribs. I eat the thin part first. By the time I come back for a rib, the water has worked on it from both sides. I know when the plate above me is lifting because a loose end of leaf, too far away to touch, begins brushing the side of my head. For a little while I can eat it without going forward.
+
+Once, at the end of a warm day, my passage would open on the face of the crest. I would come to the edge and put out enough of my head to feel the water cooling on it. A young bird would step off the rising roll just then. One of its toes would go into the opening. It wouldn’t reach me. I would feel it drag along the roof and catch briefly on a rib I had left.
+
+Then the weight would go off the toe. The rib would settle back, not quite where it had been, and water would start coming in along its lower edge. I would back up to let the first of it pass. It would be colder than the water already in the passage, and carry a shred of green leaf, too fresh for me to eat. For the rest of the afternoon it would twitch there in the current, just within reach.

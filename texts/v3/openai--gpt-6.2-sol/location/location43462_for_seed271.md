@@ -1,0 +1,11 @@
+At the foot of the bluff is a shelf of red stone, no wider than a cottage and its yard. The bluff leans far enough over it to keep off the noon sun. Beyond the shelf the land falls scarcely a foot into a flat of pale clay. In the shade it is warm enough to sit on the stone without feeling a chill, though the seat of your clothes will be damp when you get up.
+
+A seam at the back of the shelf gives out a little water. It beads under a lip of rock and runs down the face in a dark stripe. At the bottom there is a shallow basin with a rim of chalky deposit, not quite closed on the side where the water spills. The spill is hard to see. It wets a hand’s breadth of clay and goes no farther. In rain the flat beyond it takes on much the same color, and for a day or two the wet patch has no edge.
+
+Three tufts of wiry grass grow where the shelf meets the flat. Their roots have found cracks too fine to admit a fingernail. A crust of gray lichen grows on the outward face of the bluff, stopping short of the seep. Elsewhere the stone shows plainly: red in the dry places, almost brown under the lip, with thin pale beds that continue around the corner. A shallow scallop in the shelf looks newly chipped until you touch it and find the edge as smooth as the rest.
+
+Someone once laid a few flat stones across the clay. There are four left in a row, set at the interval of a short step. The one nearest the shelf has sunk until only a corner shows. They lead to the dry end of the ledge, where there is room to put down a bundle and sit beside it. Nothing marks the way beyond them.
+
+On a still afternoon there is a small sound from the basin. A drop gathers where the lip is chipped, grows heavy, and lets go. Most of the water comes down the rock without a sound. No insects hang over the basin; no tracks cross the clay after rain. Once the drip has faded there is enough quiet to hear the grit move under your own heel.
+
+The place is easiest to see late in the day, when light reflected from the flat reaches under the bluff. For a little while it picks out the basin’s white rim and the backs of the four stones. Then the clay dulls. The seam goes on wetting the same stripe of rock, and the water at its foot keeps to the little opening it has always had.

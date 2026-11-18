@@ -1,0 +1,15 @@
+I think I’d live in a room that became a passage while I was still living in it.
+
+It would be one flight below Sefa’s kitchen, on the long way around. I’d mend baskets there. A basket brought in for a new handle generally needed something done to its bottom as well, and people liked to stay and watch me find this out. I had a stool for them, though with a large basket on my knees there was nowhere for them to put their feet.
+
+The room had a door at the back. I kept my good split reeds upright against it. I knew there had once been a stair on the other side because, when I first took the room, people kept asking if I’d found a shoe back there. It had been a good shoe, apparently. The man who lost it was dead, but his brother still had the other one.
+
+What put the room back in use was a vine. It had thickened behind one of the slabs on the long stair and pushed the top of the slab out of its groove. The mason took the slab down and found that the vine was doing very well. He said it would take him six days to dress a stone that would go around it. Sefa offered to leave her plank down for the water bearers. She made this offer in front of enough people that nobody had to ask her whether she meant it.
+
+So we opened my back door. There was no shoe. There were four steps, and on the third was a little heap of the husks birds leave when they’ve eaten a seed. Maret swept them into her palm. I had thought the stair would need some work before it could be used, but the bottom step was level with my floor. All I had to do was move the stool.
+
+The first bearer through had a full jar. I sat very still as he turned between my knees and the wall. On his way back he stopped, set his hands on either side of the doorframe, and stretched. By evening everyone was doing it. One woman hung there long enough to tell me that the handle I’d put on her sister’s basket was too short. I said her sister had asked for a short handle. She said yes, she knew, but it was too short for *her*.
+
+After the mason put the slab back, I carried the stool out of the corner. That afternoon Sefa came through with a pan under her arm. She’d never been in my room before the stair opened. This time she came in without looking down, stepped around the stool, and asked if I had a thin reed she could use to clear a hole in the pan. Then she went out the back.
+
+I’d keep the door open, I think. Not all the time. There’d be evenings when I wanted to finish a basket without hearing what anyone’s sister thought of it. But I’d move the reeds somewhere else. And on jar days I’d put the stool just beyond the back door, on the broad part of the landing. The bearers wouldn’t sit with a jar, and most of them wouldn’t sit without one. Every so often, though, somebody on the way back would sit down with their hands still curved around what they’d been carrying. I’d leave them a little while before I asked them to pass me something.

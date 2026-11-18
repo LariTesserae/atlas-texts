@@ -1,0 +1,13 @@
+She sets the spoon on the folded end of a dish towel. The pump goes on running. She takes off the boy’s shoes and finds a red place on the back of one heel where the lining has worn through. In the morning she will look for a pair in the cupboard by the lift. People put shoes there when their children outgrow them, with the laces tied together so a pair can be lifted out of the heap by one finger.
+
+By morning there will also be a room in which she can sleep.
+
+It was the dormitory laundry. There is a sink with two boards laid across it, a narrow bed somebody brought up during a strike, and a high window that has been painted shut. The power opens the window. It makes no wind over the harbor; the clouds come in as low and warm as ever. But the air that passes through this one opening is cool. It goes no farther than the room. A person standing in the corridor can put a hand through the doorway and feel the difference at the wrist.
+
+The woman finds it on her way to the shoe cupboard. She stands in the laundry for a little while. Then she brings in the baby, who has a rash in the folds of his neck, and his mother comes after him with a sheet to put over the mattress. The baby lies with his arms up on either side of his head. His mother keeps putting a hand on his chest, because she is used to hearing him breathe.
+
+For the first week the woman sleeps there only twice. People knock on her door to ask whether they can use the room, or whether somebody else is using it, or whether she thinks it would be all right to bring up a man from the quay who has got so hot he can no longer do up his shirt. She says yes to the man and gives him water. While he is drinking it she takes the laundry key off her ring and hangs it on the hook outside the door. One of the sisters puts up a sheet of paper with the hours down one side. The boy draws a box beside each hour, using the edge of a fish-truck tally for a ruler.
+
+At first the woman leaves her own name off. On Thursday she writes it beside two in the afternoon. There is rice to wash at two, and eggs to count. She shows the man who is coming off shift where the rice is kept and tells him how much to use. When he asks about the eggs she tells him that too, and goes upstairs.
+
+The power does not keep the tide from coming in. It comes over the painted lane marker and brings food to the crabs. The eel stays in the cable box. Below the laundry the pump starts, and the woman opens her eyes. She lies still for a while, listening for the spoon. It is on the dish towel where she left it. Downstairs, the man opens the wrong cupboard, shuts it, and opens the right one. She sleeps through both sounds.

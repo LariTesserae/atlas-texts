@@ -1,0 +1,13 @@
+Prepare for a dry, cold walk at altitude. Plan your departure as though the plateau might not agree that you’ve taken one.
+
+**Arrive on open stone well back from the rim.** If your crossing allows it, look through before stepping out. Leave an anchor on the departure side and have someone there keep time. Agree on a short visit and a missed-check-in procedure; if you don’t return, their first move should not be to follow you. Carry a watch, but use it to tell you when to leave, not to prove how long you’ve been gone.
+
+Bring water, food you can eat without cooking, windproof layers, gloves, and boots with good grip. A foam sitting pad is worth its weight if you want to examine the black growths: the cold you feel when you kneel may not all be coming through the stone. Start with a few minutes of easy walking near your arrival point. If you’re already short of breath there, don’t count on doing better halfway through the herd. The white hollows aren’t a water source, and the glass cups are empty. Don’t fill one to see what happens.
+
+**Give yourself permission to stop at the first animal.** The herd seems to make room for a foot once you’ve decided where to put it. That’s a lovely thing to discover on level ground and a poor thing to rely on when you need to get out. Walk slowly, without squeezing or resting a hand on a flank. Look especially low: some of the smallest animals are between the toes of the big ones. If a click makes you turn, stop your feet first. You’re unlikely to learn anything about its source by following it.
+
+You can see what matters in the house from the door. Leave the awl and pebble on the sill, and don’t reach into the chipped bowl. If you want to test what you’re seeing, lift one heel and see whether the sole in the chip moves with yours. That’s enough of an experiment for a first visit. Write down what you saw after you’re home; a note made beside the house may turn out to be no better a record than the dust in your laces.
+
+**Don’t go to the last stone just to get a better look.** Take binoculars and use them sitting down, well back from the edge. There are no visible slopes to help you judge the drop, and the light makes a ridge sixty miles away look as available to the eye as your own hand. Once you recognize the mouth, you’ll want to lean out to find the rest of the head. Decide where you’ll stop before you see it.
+
+Leave while the way back is still familiar. If you pass the house again and the dust has returned to your laces, or the sill is bare exactly where you considered setting your hand, don’t make another circuit to see whether it happens twice. Nothing on the plateau will look impatient for you to go. That’s why you made the decision before you came.

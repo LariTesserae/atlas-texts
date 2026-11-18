@@ -1,0 +1,9 @@
+I’d be under the raised corner of the crooked square. At first I think I’d be the root that lifted it. There’s something satisfying about growing just enough in one good year to leave a piece of the room permanently ajar. But that root has gone hard. I’d be in the space it made, where the finest roots go when the wall dries.
+
+For most of the year there would be no way to tell I was there. Then water would come down the back of the square and stop before it reached the projecting corner. It would touch the limestone on one side and the ceramic on the other. That would be my shape for a while. One face would take the grain of the rock; the other would be as smooth as the bottom of a plate.
+
+I wouldn’t get the extra time stored in the square. A root would. I’d know it first as a slight obstruction, something the water had to go around. Then, as the root took up water, I’d thin first along its length. For a little while I’d have two edges where I’d had one. In a dry month that would be the whole event.
+
+But I don’t think I’d be the water. In a wet year the water could fill the space to the corner and spill. Most of it would go on down the wall without me. I’d be the part that held on as the rest drew away: the join between two surfaces neither of which could hold it in that shape alone.
+
+There might be a winter when grit washed in and lodged under the tile. The next time water came, the join would form a little to one side. A root that had passed through the old wet place for years would stay dry. A finer one, which had never touched the square, would swell against it. Much later, above the tile, there would be a leaf at a joint that had always been bare. From where I was I wouldn’t know about the leaf. I’d know the root had got thick enough that the next water came in on the other side of it. I’d be there instead.

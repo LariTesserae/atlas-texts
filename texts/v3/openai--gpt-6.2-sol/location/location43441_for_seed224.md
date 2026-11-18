@@ -1,0 +1,15 @@
+The highest part of the mountain is inside it.
+
+There is a slit in the summit rock, no wider than a fingernail, and behind the slit a chamber in which you could sit with your knees drawn up. Its floor lies a little higher than the summit. This is not apparent from the entrance. It is apparent from the plumb line.
+
+The line is one of three things left here. A grey filament descends from the ceiling and stops a finger’s breadth above the stone, without a weight. Beside it stands a low ceramic stool with one leg set into the wall. The third thing is a white staple sunk into a seam in the floor. All three have been here long enough for their sharp edges to go soft. The staple is the only one that seems to be working.
+
+The floor is dark mica under a little drift of pale mineral dust. No frost rims the cracks. Nothing here has ever run down a slope and gathered at the bottom. What looks, in the poor light, like a former waterline is the edge of a layer of crushed feldspar. It crosses the chamber at the height of a seated person’s shoulder, dips behind the stool, and comes out on the other side a fraction of a grain lower. The two ends have been shifting past each other for a very long time.
+
+Light enters through the slit, but not from the present sky. The slit admits one thin afternoon that must once have fallen across the mountain. It illuminates a patch of wall the size of a thumb. Now and then the light thins, as if a cloud were crossing far away; whatever cast the shadow has had time to cease to exist.
+
+For the most part there is no sound. You can hear fabric move against your shoulder, and after a while you can hear the difference between that and the room’s one noise: a faint tick from the white staple. The ticks are years apart. A person who hears one is unlikely to hear another. Each marks a minute correction to the elevation of the chamber. Nothing is lifted. The staple adjusts which side of the summit the chamber has always been on.
+
+The dust does not move during a correction. The filament does. It shortens by an amount that would be hard to see even if you were looking straight at it. For a while afterward, the floor holds two sets of shallow hollows beneath the stool: one for the legs as they stand and one for the legs as they stood at the previous altitude. Neither set is quite the right depth. Over the following years the stone wears the difference away, grain by grain, although there is nothing in the chamber that could wear it.
+
+You can put a hand in the drift and leave a print. The dust is cold enough that the bones of your fingers ache before the skin does. Take your hand away and the print will remain, clean and ordinary, until the next tick. Then a little ridge will rise across the palm where the feldspar seam passes underneath. There are older ridges farther back in the drift. In the dimness they look like the traces of fingers drawn together for warmth. There is no reason to suppose they are anything but stone.

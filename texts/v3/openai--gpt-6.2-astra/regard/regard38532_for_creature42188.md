@@ -1,0 +1,13 @@
+The first thing the power felt was the weight coming on. A very little would have served to take it off. There were notches enough in the wall to rest the chip in for as long as the quay stood.
+
+It felt also what happened when the weight went away. The lip against the shred had taken the print of its branching, down to the fork in a fibre too fine for the pelt to catch. The other lip was quite smooth. Between them, for the first time, there was a pinch. It went no farther than the bend of the clear hair. There was a slight thickening there afterwards. The power left the chip on its point.
+
+At the next grumble it went over. It did not go all at once. For a while it stood on an edge of grit, and there was light enough under it from the white thing's window to show the brown shred lying crosswise. Then the grit rolled. The pelt took the corners of the brick very exactly and the last of the light went.
+
+There was more room in the notch than there had seemed to be. There was room for the lips to part. The trouble was farther down, where the clear hair went out from under the roof. It had paid out on the high side of the grain that rolled. It was caught now between the grain and a rough place on the brick. A little way beyond, it lay in an easy loop in the cold, but none of the loop could be drawn in. The next time the lips parted they drew instead on the thick place at the bend. A white speck came into it, like the speck that comes into glass before it flies.
+
+Here the power put forth about as much strength as it takes to turn a husk in water. It bore on the grain, not the brick. The grain had a flat on it. It turned onto the flat, and the hair slipped down beside it, into the score that the mould had left. A little of the loop went under the roof. The speck went clear from the middle out.
+
+Nothing else was shifted. The old sole took its next mouthful late, there having been so much loose grit to get through, and the green stone had its share of the work. Under the chip a narrow strip of the pelt died back. Along that strip the cold found its way in. It came as far as the smooth lip and no farther; the other had hold of the last inward water of the harbour.
+
+Long afterwards there came to the green stone a pinch from a direction from which, until then, pinches had only gone out. It had very little left in it. One hair of the fringe bent down and took up a fleck of the soft stuff that lies in the print of the missing stone. The seam on the green stone shut on it. For two tides there was a dark comma there, visible when the wall was stirred.

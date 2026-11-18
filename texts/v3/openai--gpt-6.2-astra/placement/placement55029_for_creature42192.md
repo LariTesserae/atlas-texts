@@ -1,0 +1,27 @@
+I would be the person at the other end of a slope when a flake is being put under it. Somebody has to be in the house. From the street a roof can look very well indeed, with the water going over in one unbroken fringe, while on the inside there is a drop making its way down a peg towards somebody’s good coat.
+
+I began doing this because I was small enough to get behind a particular cupboard. I have since grown, and the cupboard has had to come a little way out from the wall. Its owner blames this on me, with some justice. Most of what I do could be done by the people in the houses, except that by the time something wants doing they are too used to their own ceilings. There is a woman on the fifth fall who sets a saucer on the bed beside her every night. She has done so through two sound roofs. When I take it away in order to pull the bed out she follows me about with her hands held ready for it.
+
+I carry a narrow strip torn from a worn sheet. The quarryman holds his wedge outside and I draw the strip along the join inside. When it comes away dark I tuck the wet end up my sleeve and try again with the next bit. On a good morning I can come out of a house with nearly the whole length of it still hanging down. The children like a bad morning better. They take hold of what is left and walk me home.
+
+My own room is under the last roof but one. There used to be room for two to sleep there without either one having to get in first. Then a corner of the ceiling began to give trouble. We propped it with a length of old sill, being careful to set the worn hollow upwards to give the edge of the slab a seat. The foot of the prop stands well out in the room. There is a stitch in my shirt at just that height. In the dark I go round it without thinking; it is in daylight, coming in with an armful of something, that I catch.
+
+For some years after the prop went in I lived alone. Then the jar mender came to see me about a boy who had taken to sleeping at the bowl. It was not her nephew. She was quite sharp about this, although I had not asked. His mother had been taken ill and gone up to the clay houses, and the family who had made room for her had laid him a bed too, but he came down each night to the sound he knew. They would find him curled inside the rim in the morning, with the small work passed from hand to hand over his head.
+
+I said there was room at my place if he did not mind getting in first.
+
+He stayed on after his mother came back. Not every night, nor with any arrangement that I could ever discover. Sometimes I would come home and find two feet sticking out beyond the prop and have to lift one over the other in order to pass. Sometimes it was a week before I saw him. He kept nothing at my house but a jar with a chip in the foot. It tilted towards him as he drank the last of the water, and he said it was made that way.
+
+One evening he asked to come along on a job. It was the bone roof, which was giving no trouble with the water but had lately begun to hum in two notes. The lower of the two was felt particularly in a shelf of jars. The owner had put little pads under them, cut from the tongue of a shoe. Still he could feel the note in the handles when he went to take one down. He did not like to think of it going on in his preserves.
+
+The quarryman had a flake ready. I got up on the shelf and put my ear to the bone. At the first touch of the wedge the lower note stopped. I had my heel raised to give the sign to leave it so when the boy reached up and took hold of my ankle. He wanted me to get down. There was very little room to argue on the shelf, so I did. The two notes came back. We tried it three times. My weight on the shelf drew the wall in just enough to still the bone.
+
+We left the roof alone and moved a jar. It was a very big one that had stood on the floor since the last of the children of the house had grown too heavy to fall into it. It took all three of us to get it up. Half full of water, at the far end of the shelf, it did very well in my place. The householder has drawn a line inside it so that nobody helping himself to a drink will take too much.
+
+Coming home I wanted to ask the boy how he had known. I had to wait until we had passed the narrows and could walk abreast, and then he had to stand on the edge of a sill to reach my ear.
+
+‘I liked the other sound,’ he said.
+
+It had not occurred to him that getting me down would do any good beyond letting him hear it again. He was put out with us for moving the jar. For a long time afterwards, whenever we were in that street, he would go inside and help himself to a little water. The householder, who is particular about his preserves but otherwise an easy man, would wait till we had gone to fill it up.
+
+He is nearly as tall as I am now. We have moved the prop once, the two of us, to get a wider bed past it, and found on the floor beneath a little square of almost white stone. He wanted to set the foot down somewhere else and keep the square to look at. There was only one place, though, where the hollow in the sill took the slab properly. We lowered it back. On nights when he comes in late he puts his palm flat against the prop to ease himself round the end of the bed. I feel it tip the least bit towards me, and draw my knees up for him to pass.

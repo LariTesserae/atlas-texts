@@ -1,0 +1,7 @@
+I think I’d be the empty snail shell, though not at first. At first I’d be on the seat, with my heels in the water, trying to decide whether the fish came out of the chipped corner wet in some new way. I’d pick one with a nick in its tail and follow it until I lost it among the rushes. Then I’d pick another. From the seat it would be possible to spend the whole afternoon like that and never see the hands at the mouth of the nest.
+
+What draws me to the shell is that for days it isn’t enough. The little animal has tied its thread to the best thing it can reach, and the best thing it can reach is coming down with it. I’d feel the fern give a little at noon, when the sun was on it, and come back a little at night. A grain of sand inside me would roll to the lip and stop. There would be nothing I could do to keep it there.
+
+Then the rain. Before the pool reached us, drops would strike the upper face of the fern and knock me against its underside. The animal would stay in the nest through most of that. I’d know it had come out when the thread pulled sideways for the first time.
+
+Afterward, with the far end tied to stone, the fern would rise and fall a little without taking the nest with it. The thread at my lip would go slack. I don’t think the animal would come back to cut it. On a bright day a shrimp might put its front feet inside me, then draw them out one at a time. From the seat you might see the shell move and take it for a snail.

@@ -1,0 +1,29 @@
+I would be the person who comes down the ramp on Thursdays to buy a gross of eggs. This seems a perverse arrangement, since the eggs have come down the ramp singly or in half-dozens on Monday. But I buy only the shells. The bun shop breaks them into a white crock, and in winter, when there is less call for a glaze on a bun, it can take three weeks to make up my order. I have a little establishment in the standing part of town where I make the raised white letters for memorial wreaths.
+
+For this purpose the shells are washed, freed of the skin, ground with a muller and mixed with gum. There is no difference in the finished letter between a white egg and a brown one. A letter that fails after it has hardened can be put back in soak. We have had, consequently, in one form or another, the same unfortunate capital B in the shop for nearly fifteen years. My sister recognizes it in each new word and says there it is again, though on what grounds I have never been able to discover.
+
+I should have gone on knowing very little of the block but the ramp and the white crock, except that one afternoon Ellen was in the shop. Not my shop; the bun shop. She had her thumb in the hinged part of the door, holding it open for the coolness from the ramp. There was a patch of white on the black front of her dress, level with the counting shelf. She had been leaning there trying to decide what to have. I knew from the fineness of the mark that it was not flour.
+
+“Your six is coming off,” I said.
+
+“It has been off a long time,” she said, and bought the bun with the split in it, which had taken rather more icing than its fellows.
+
+What had come off on her dress was in fact part of the ring that goes round the dial, but it was the six that she had on her mind. The barber was beginning to speak of having the glass taken out and done over. She wanted to know if my white would take on glass. I said it would stay on glass better than one generally wished, and that it could be seen through, quite a little, if applied with the ball of a finger instead of with a pen. We tried it first on the glass of the bun case. From inside, with the tray of twists removed and one’s head in the space, it was possible to see a shank button on a waistcoat at two feet, but not to tell whether the button was blue or green. The woman in the bun shop said we had now had our heads in there long enough.
+
+The following Wednesday I went behind the clocks. I had imagined a loft with four clocks in it, a place in which, if you had mislaid a rag at one end, you walked to that end and fetched it. In fact to get from the provision shop to the barber’s you lay for some time on one cheek, with your arm straight out before you and a considerable quantity of the town resting, to all appearances, on your ear. Ellen went backwards so that she could see how I did. We came at last into a place where there was room for both of us to sit with our legs down the same hole. Below our boots the barber was laying the pieces of his scissors on a cloth in the order he had taken them apart. There was a surprising number of pieces, considering what a pair of scissors looks like shut.
+
+Ellen had not mentioned the conversations. I had brought a pot the size of a hazelnut, quite sufficient to cover the flaw, and had got the lid off with my teeth when someone on the far side of the glass said, “He has a sister.”
+
+Ellen looked at me. I put the lid back.
+
+The sister, it appeared, had come for tea and had been there before the lining cutter arrived. During tea the iron-weigher had got up, moved the vase out of the way and pulled down the bed, stockings, bolster and all. His sister had been required to lie on it with a piece of string in her hand. Holding the other end of the string, he had walked across to the recess, where he had made a pencil mark. He had it in mind to put up a shelf there, at just the height at which his sweetheart, waking up thirsty in a strange room, could reach a glass without having to sit up. His sister’s arm was of very much the same length. The lining cutter had sat through the operation with her gloves on her lap, obliged to look interested and a little surprised by the possibilities of a recess she had furnished down to the last brass screw.
+
+“And where does that put his shelf?” asked Ellen.
+
+“Right through the middle of my second one.”
+
+They sat considering this. On the cloth below us there now remained only a small screw. The barber held it to the light, looked at the scissors, which opened and shut perfectly well, and put the screw in his waistcoat pocket.
+
+I did the ring that day. I did not do the six. I have been back several times since, for the white made from shells, though excellent for a wreath that is wanted only until the following Saturday, takes up moisture from the hand, and Ellen must hold on somewhere to get at the little door. There is now a place on the ring, the length and breadth of her first two fingers, which I do not trouble to renew.
+
+My sister thinks I spend rather a long time fetching a crock of broken eggs. She has begun to do the B herself. As for where I belong in the block, I am not sure that I should put myself behind the clocks. The first time I went it left me with a pleat in one ear that lasted through supper; besides, there is already someone there. I think I should be found most often at the bend of the ramp where a person coming up with both hands occupied is glad to stop. It is a good place to put down a crock. From there the face of the barber’s clock is almost square to the eye. At six, for about half a minute, the long black hand covers the missing piece exactly, and anybody sent to inspect the dial at that hour would go back up the ramp and report it sound.

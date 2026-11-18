@@ -1,0 +1,19 @@
+I would come up the steps carrying a sieve somebody had asked me to look at. It would be a poor time to bring it back. The woman it belonged to would be on the other side of Bet, and a sieve is an awkward thing to hand across a person who needs to keep one arm up. I would put it over my head like a hat and get my shoulder under Bet’s hand.
+
+“Got it?” she would say.
+
+I should think I had it until she took her hand away. There is a good deal of water in a length of gutter. I would have to stand on my toes while the man on the stool found something to put under the bracket. Through the sieve I could see him quite well, in little brown squares. The girl would be looking up at me with her mouth shut very hard.
+
+I mend the things that come back empty from the far shore: egg panniers, fish baskets, the shallow trays in which people carry curds on beds of rush. My place is halfway down behind the flat stone porch. There is room to sit with a basket between my knees, though to turn a big one over I have to stand and put my head out through a hatch. People walking above have got used to seeing me come up there. Once a visitor gave me his hand and drew me all the way out before I could explain.
+
+The sieve is a good one. Its owner has had me put a new rim on it twice. She likes the mesh, which lets through just as much crushed shell as she wants in the paste she uses to scour pots. A new sieve would be a little different and then she would have to learn to crush the shell differently. There is a pleasure in work of this kind. One can do a very good job indeed and nobody has to learn anything.
+
+It is the rims that have brought me to the town. Where I come from there are osier beds so extensive that the people who cut at one end take their dinners at a different house from the people who cut at the other. I used to come over with bundles for sale. For a time I went back every night. Then I left my bodkin here and after a while my better pair of shoes. My mother still sends word when they begin cutting, though my sister now has charge of the beds and knows what I want better than I do.
+
+From under the bracket I would be able to see what was wrong. The man on the stool has put a little slip of wood in the gap, a nice bit of packing cut to a feather edge. It will do for tonight. But there is a pale place beside the bracket where it used to sit, and beyond that a paler place still. I know those marks from basket handles that have been bound too tightly to their ears. There is no use asking two things to keep still together when each has somewhere of its own to go.
+
+In the morning I would bring up a length of green willow, one of the few left in my soaking tub. I would bend it into a sling hung from a single nail, with the gutter resting in the belly of it. The peg could stay where it was. The man would take his packing out rather reluctantly. It is a pity to waste a piece of wood that fits so well.
+
+For a few days I would find reasons to pass that way. On the third day the sling would have turned a little on its nail, and the gutter with it, without spilling a drop. On the fourth somebody would have hung a spoon there. I would take the spoon off. On the fifth there would be two spoons and I would leave them.
+
+What I would like best, I think, would happen some weeks later. I would be sitting below the hatch starting a tray, with the first few pale rods spread over my knee like the divisions of a peeled orange. Overhead there would be the ordinary passage of feet, a bare pair hesitating to let a shod pair go first. Then I would hear the spoons touch, once, quite lightly. Nobody would stop walking. I would draw another rod from the tub beside me and run it between finger and thumb to find which way it wanted to bend.

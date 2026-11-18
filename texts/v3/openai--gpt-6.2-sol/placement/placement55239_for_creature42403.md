@@ -1,0 +1,13 @@
+I’d live in the district whose windows look like eggs. From inside, I wouldn’t know they looked like that. Mine would be a square window over a sink, with a chip at the bottom where the tap strikes it if you turn the handle too far.
+
+I think I’d be the person people sent for when a window made a noise. Not when it broke. There would be somebody with a cart for that. I’d go on foot with a pocketful of cork and a little knife, and people would say, of course it’s not doing it now.
+
+We’d wait. They’d offer me a chair and I’d take it, though it’s easier to hear the loose pane standing up with a finger on the glass. I’d have learned not to go straight to the window they pointed out. Sometimes a glass on the draining board was making the noise. Once it was the old pane they’d taken out and slid behind a cupboard. I got it out whole, down on my belly with the knife, and the man whose room it was washed it in the bath. He had somewhere in mind for it. He wouldn’t tell me where until he’d measured.
+
+I wouldn’t be particularly good at crossing the plain. I’d have grown up there and still resent being able to see where I was going for so long before I got to it. On the green terraces I’d have a regular customer who always said to come at dusk, when the windows were worst. It took me a while to find out she had no preference about dusk. She finished work at noon. She thought I must like to walk home under the survey lamps because I’d once said how pretty they were.
+
+One evening the crossing would go amber while I was eating a plum. There’d be a beetle at the curb, working its way along the drop, trying to find a way down. I’d put the plum stone beside it. The beetle would walk around it and drop straight over the edge.
+
+On the other side, a person would be waiting with a long parcel wrapped in a blanket. I’d assume it was a pane and watch how they held it, ready to be annoyed. When the strip went blue they’d come across, and the parcel would turn out to be a sleeping child with one bare foot. The foot would be grey at the heel from walking on the stone.
+
+At home I’d turn the tap too far. I’d do it most nights. I could put a stop on the handle, or take the window out and set it a little deeper in the frame. I’d have the tools right there on the sill. But by then I’d know the small sound of the tap hitting the glass so well that, on coming home after a few days away, I’d turn the handle all the way on purpose.

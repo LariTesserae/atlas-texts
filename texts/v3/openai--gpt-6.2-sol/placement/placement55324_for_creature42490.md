@@ -1,0 +1,7 @@
+I think I’d be the loose grille. Not the pump: the pump has a job and knows when it’s finished. I’d be the thing the keeper puts a thumb on while listening to find out whether a new noise is coming from the belt.
+
+From there I wouldn’t see the river. I’d see the underside of the shade, the strip of pavement the door sweeps, and, when the sun was low enough, the shadow of the keeper going out with the scraper. The bird would pass beneath me on its way to the sill. The first few times I rattled it would fly. Later it would only duck.
+
+One afternoon the keeper would come out with a screwdriver and a square of leather cut from an old boot. They’d fold the leather behind my loose corner and tighten the screw. I’d spend a long time learning what happened when I didn’t make a sound. The bird, for instance, doesn’t go straight to the sill. It lands on the threshold and waits for the little scrape of a page against the keeper’s dry thumb. I’d always thought it was waiting to see the keeper lower their eyes.
+
+By winter the leather would have shrunk enough for me to move again, though only when the wind came from the east. On those nights the keeper would lie behind the pump and hear one tap, then nothing for so long that the next tap might be a stone out on the pavement. I wouldn’t know either. Sometimes I’d be waiting for it too.

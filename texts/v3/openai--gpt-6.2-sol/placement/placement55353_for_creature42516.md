@@ -1,0 +1,11 @@
+I would be just below the lip of a shelf, where the shed cups collect. From above it looks as though they’ve all gone over, but there’s a little inward turn in the stone. The large ones lodge there on their sides. The small ones go on down unless a large one happens to be facing the right way.
+
+For a while you might take me for dirt in the heel of a cup. I’m flat and the color of wet stone, and when the mountain discharges I draw in the short fringe I use to move. The cup goes on trembling after I’ve stopped. If you picked it up then, you’d feel the tremor and think that was me.
+
+I don’t eat the cups. I eat what softens on their inner surfaces: scraps of skin, mostly, and the pale threads that grow over them. I can go seven or eight nights without getting from the heel to the rim. In a dry spell the cup folds along its old creases and holds me so tightly that when I begin to move again I have to start with one side of my body.
+
+The cup I’m in now was worn by a youngster. I know this only in the way my body knows things: I can lie across the heel and touch both sides. There’s a larger cup around it. Once, when vapor came through the saddle, water got between the two and the little cup floated free. I went with it. We traveled perhaps the length of a forefoot before the water drained away, but afterward the opening faced out.
+
+It was colder that way. Things came into the cup that hadn’t come before. A black hook, so much heavier than it looked, tipped the rim down. For most of a night I worked around it. Then I found that I could get underneath it and push. It fell without making a sound I could hear.
+
+Now when the silver passes overhead, I put my fringe out before the cup has quite stopped shaking. There is a fern root coming down the stone. For several nights it has been close enough that I can reach it if I let go of the heel. I have let go twice and caught myself both times. Tonight the root has reached the rim. I can stay where I am and feel it working its way in.

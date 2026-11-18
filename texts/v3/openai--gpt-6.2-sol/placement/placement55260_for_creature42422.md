@@ -1,0 +1,17 @@
+I think I’d live in one of the houses nobody sleeps in. I’d sleep there, but it would take the town a while to count that as occupancy. People would still come in to pick the buds out of the cupboards. I’d wake to somebody’s heels going past my face, and by the time I’d worked a foot out from under my blanket they’d be gone.
+
+In the front room I’d keep a hammer, a roll of wedges, and a basket with a lid that ties down. The basket would be for things I’d got out of trees. A spoon left in the fork of a branch is easy if you hear about it in the same year. A door latch is worse. People keep working a latch long after the tree has it, and by the time they come for me they’ve pulled it crooked. I’d ask whether they wanted the latch back or wanted the door to open. Nearly everybody would say both, and stay to watch.
+
+There’d be a stone in the back wall of my house. Not a big one, nothing like the boulder that made the window woman’s room. You could span it with your hand. Whoever knocked the forms out had missed it, or had decided, after a morning of hitting it, that somebody else could have a turn. For years I’d be that somebody else. I’d put an ear to the wall, tap once, move the wedge. Then I’d go to the market for something to eat. If anyone asked how the stone was coming I’d tell them I was letting it rest.
+
+One winter a little girl would come in for cupboard buds while I was at it. She’d put a hand on the wall to steady herself and say, quite crossly, “Do it again.”
+
+So I’d hit the wedge again. The blow would travel through the wall and come back very faintly through the floor. She’d move her foot to where she could feel it better. We’d spend the rest of the afternoon finding out how far away you could stand and still feel the hammer. In the house next door you couldn’t, except in the bottom of one cupboard, where it made a shallow dish walk forward on its shelf. I’d have to go around and push it back.
+
+After that I don’t think I’d try very hard to get the stone out. But I’d start getting work of a different kind. The old man who listens to the roots would send me to knock on a stem behind the market while he waited in somebody’s kitchen. Sometimes he’d make me do it three or four times and then tell me I’d been knocking on the wrong stem. Once he’d come all the way out to show me the right one and find that it was the one I’d been knocking on. We’d both want to know where the sound had gone.
+
+When the water cleared I’d go to the south stair with my hammer. I’d stay several steps up, out of the way of the boy and his grandmother. I wouldn’t expect a knock to tell us whether the new rail would bear anyone. The tip was soft enough for a crab to think better of it. But I’d like to know whether the old stair could hear the new one yet.
+
+I’d tap the side of a tread and put my palm flat on it. From below, the boy would ask what I was doing. I’d ask him to put his hand down too. His grandmother would still be holding his shoulder, so he’d have to crouch without shifting the foot she was depending on. We’d wait like that long enough for him to look back up at me, annoyed, and I’d have to admit I hadn’t felt anything either.
+
+The next morning I’d leave the hammer at home. I’d go down to see about the shoot. The woman would be there before me, and there’d be room on the step if I turned sideways. I think that’s where you’d find me: with my tools finally out of my hands, making sure not to put a toe in the clay.

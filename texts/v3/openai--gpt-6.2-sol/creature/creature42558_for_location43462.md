@@ -1,0 +1,9 @@
+There are snails in the seam. The biggest would fit, shell and all, into the chip where the drops gather. Its shell is the color of the dry stone, with a single pale turn at the center that shows when it has been wet for a while. The young are nearly clear. You can see the red of the bluff through the edges of their feet.
+
+They do not live in the basin. A little to one side of the dark stripe, one of the pale beds has weathered out from under the harder stone above it. There is room to go some way into the bluff there, though from outside it looks like a line drawn with chalk. When the reflected light reaches the back of the shelf, it sometimes catches two or three shells just inside the line. Farther in, where the rock stays damp, are the eggs, clear beads joined in a packet no bigger than a grain of rice.
+
+At night the snails come down the face and graze on a film too thin to give the stone a color. They work their way around the wettest part. One will reach out until the tip of a feeler touches the running water, draw it back, and try a little farther to the side. By morning they have left narrow clean curves in the film. These show best when the face is beginning to dry, and then only if you know where to look.
+
+After a long rain, the largest snail goes as far as the grass. It takes most of the night getting there. At the base of the middle tuft it feeds on a blade that died low down and never fell free, and by the time the clay begins to pale it is back under the lip. The blade has a little window in it where the snail ate the soft part and left the skin.
+
+There was a snail once under the corner of the sunken stepping stone. It was found when someone lifted the stone to set it level again: a shell with a thin white door drawn across its mouth, stuck fast to the underside. The stone went back the way it had been. For some weeks afterward there was a thumbprint in the clay beside it. The shell was still there when the print was gone.

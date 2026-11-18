@@ -1,0 +1,17 @@
+I think I would be in the washhouse first, running a thumb around the bottom of a pail to find out why it would not sit flat. A little heel of wood had swollen where the stave had been left long. I would mark it with my nail, meaning to take it down when the pail dried. But a washhouse pail never dries all the way down there.
+
+I would be the person they called when a door began to open of its own accord. There was not enough iron to give every door a latch. You could sometimes cure one by wetting the post on the side away from the hinge, then waiting with your shoulder against it while somebody finished a story. I would get to hear a great many ends of stories.
+
+The last stair would be my work for part of a morning. The keeper would show me where it took hold of her skirt on the way up. I would go down sideways until I found the place. It would take my weight without a noise, then give a little tick after I had stepped off. I would go back and do it again, to be sure the tick belonged to the stair.
+
+Lying on the landing, I could put the point of my knife into the split. The knife would come out with a hair of white growth on it. I would wipe it on my wet cuff. That would be nearly all I saw of the room. I might see the long springtail if it came far enough out, but at that distance I would take it for a shaving until it moved, and by then I would have lost it.
+
+The proper repair would be to draw the tread down onto the root and pin it there. I would start a hole for the thorn, then find that the wood on the far side was soft. The point would go through without the resistance I was waiting for. I would pull it out and rub the wet end between finger and thumb. It would smell a little like the inside of a pail that had stood full overnight.
+
+In the end I would take the raised edge off the tread. The keeper would come down in her skirt and go up again, slowly the second time. She would say that would do. I would leave the little hole.
+
+I keep coming back to that hole. From above, it would be the dark point beside the place where the skirt used to catch. From below, it would be a shaft that ended in torn wood. On wash days a little warm water would get into it. Not enough to make a drop. Just enough to darken the torn ends, one after another, farther down than the thorn had reached.
+
+If I lived below the stair instead of above it, I think that is where I would be: not in the hole, but at its wet end. One of the pale springtails, small enough to turn in a crease. I would feed there for a time without going out onto the floor. I would know the stair by the water that came down it. Sometimes the water would come warm and leave a taste I went back for. Sometimes the torn ends would dry in order from the top, and I would have to go farther down.
+
+One morning I would go down as far as the split. The tread would lift while I was there, and I would put a feeler out into a space that had not been there a moment before. Across it I would touch something wet. It would give a little and come back against me. I would put one foot on it, then another. On the other side of the silk, a leg would move. I would take my feet off and go on around the edge, where a little wood had collected and was soft enough to eat.

@@ -1,0 +1,13 @@
+I would be coming the other way.
+
+There’s a place on the turn around the second peg where I can see the old female’s yellow mouth before I can see either of her front feet. I know to stop at the mouth. If I wait for the feet, we meet with our noses past each other and there’s no way to get out of it except for one of us to back up. She can back up. I’ve seen her do it at the entrance. Here she won’t.
+
+For a while I’d think my place was the peg. As a hatchling I crossed on its dry side because that was the shortest way from the roots to the wall. I remember putting my foot down and putting it down again. The stone was there both times. Later I found that if I took the long way I could run it without looking at my feet, which meant I could keep an eye on the low leaves. I caught my first whole cricket coming around that turn. It had a bit of leaf in its mouth when I got it. I spit the leaf out afterward and ate one of the legs by mistake.
+
+I’m bigger now, though still small enough to get under her. I put my belly down and turn my head toward the wall. The foot with the missing toes is the one I feel most clearly. The other takes hold. That one presses.
+
+Once, when the water came, I met her there and climbed over *her*. The barking had started and I didn’t wait. Halfway across I found out she was carrying a cricket. One of its long legs was caught between my belly and her shoulder. She stood still until I lifted myself enough to free it, then went on with the cricket, out of the noise. By the time I got to the roots there was water running down the back of another lizard’s head. I drank from that.
+
+Late in the day I climb to the shelf. I don’t fit inside it anymore. I can get my head in far enough to feel the tiny feet withdrawing, so I keep my head out and lie along the edge. From there I can see the old female on the slope, stopping every few steps. For a long time I took those stops for the end of where she meant to go. I’d look away and when I looked back she’d be farther out.
+
+When she comes in, the small ones climb down over her head. I go out a little below them, by a route I couldn’t take when I was their size. There’s a shallow scallop that holds my hind feet while I stretch my front feet to the lip. I can stay like that with my belly clear of the stone. The air moving underneath is cool. When it gets too cool I let go with my hind feet and lie flat, all at once, in the heat she’s left.

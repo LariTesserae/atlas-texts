@@ -1,0 +1,17 @@
+At the top of the pass there is a hollow that would hold a small house, if there were a way to get a house into it. The approach is a ledge in black stone. On one side the mountain goes down for a very long way; on the other it leans out over the ledge, close enough to scrape a shoulder. The air outside is thin and cold. Two steps under the overhang, the heat comes through the soles of your feet.
+
+Nothing drips here. Nothing has ever cut a channel through the floor. The hollow has been worn into its present shape by heat and by the passage of bodies, and the stone has a dull polish at ankle height that it lacks everywhere else. Under a crust of pale mineral the floor is cracked into broad plates. One edge of each plate is tucked under the next. They have been shifting like this for so long that even the freshest crack opens along the curve of an older one.
+
+In the dark, there seems to be room to stand.
+
+Then the floor moves around your foot.
+
+The animals are flattened to the thickness of a fingernail. They lie three and four deep on the stone, their overlapping backs dry and fitted like scales on a larger creature. There are others on the walls, and more inside the cracks, braced against both sides. If you wait for a bare patch to appear, you eventually see one no wider than a thumbprint. It closes from underneath. The hollow is almost exactly as full as it can be and still have anything move in it.
+
+Toward the back, a seam gives off a little red light. It is enough to see that some of the animals are the color of burned horn and others almost transparent. The clear ones gather at the seam with their foreparts pressed to the hot stone. They feed on a pale, brittle crust that grows there as vapor works its way out of the mountain. Farther up the wall, where the stone is cooler, the dark ones wait. They can go an evening without moving. When a clear animal passes under one, there is a small lifting of the surface, then a settling. Its neighbors move into the space before the hunter has finished eating.
+
+It ought to make a considerable noise, all that traffic. Most of what you hear is the wind out on the ledge. Inside, a plate of stone ticks once as it shifts. A moment later comes a sound like someone brushing a little grit off a sleeve. Much of the movement is legless: the animals shorten and lengthen against one another, and a disturbance can travel clear across the hollow without a single back leaving the surface.
+
+Near the mouth are two stones with a third laid across them. The upper stone was brought from outside; it has a white vein not found anywhere in the hollow. There is space enough under it to put a hand. Whatever that space was for, it now shelters the shed skins of animals too small to make out individually. They have accumulated in thin, intact layers. The living pass beneath them without disturbing them, keeping one narrow entrance clear.
+
+At intervals the draft reverses. Heat that has been coming up through the floor goes sideways toward the pass. The animals turn across it, beginning deep in the cracks, where you cannot see them, and ending overhead. Their pale undersides show briefly in the light of the seam. For a moment you can see how many there are on the ceiling, right out to the lip where the rock hangs over empty air. None falls. Then the backs come down again, the seam is covered, and the only light in the hollow is the narrow piece of night at its mouth.

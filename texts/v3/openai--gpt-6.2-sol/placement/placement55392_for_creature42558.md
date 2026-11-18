@@ -1,0 +1,11 @@
+I’d be the person who lifted the stepping stone. I don’t think I’d know that until I put my thumb into the clay.
+
+I’d come out late in the day with a bundle, meaning to set it down at the dry end of the shelf. The first time across I’d miss the sunken stone altogether. Coming back for something I’d left behind, I’d catch the corner with my heel. I’d put the bundle down where I stood and work my fingers under the stone. There would be a little more of it than I expected. I’d have to kneel.
+
+I’d turn it over looking for the projection that kept it from lying flat. The shell would be well in from the edge, in a hollow I could cover with the pad of my thumb. I might take the white door for a bit of the stone at first. I’d bring it closer to my face. There wouldn’t be anything to see it do.
+
+I’d hold the stone much longer than I needed to. Part of me would still be occupied with setting it level. There was a chip of red rock on the shelf that would have done to prop it. I’d already noticed that chip on my way in. But I couldn’t see how the hollow met the clay, or whether it met it at all. I’d lower the stone into the bed it came out of and press beside it with my thumb until the corner stood at about the height it had before.
+
+After that I’d sit on the shelf. I’d have brought bread and something wrapped up with it, and I’d eat without washing my hands. The reflected light would reach the white rim of the basin. I’d look there for another shell and not find one. I don’t think I’d look in the pale line above it. From where I sat it would just be part of the rock.
+
+I’d come back now and then, though not to see if the snail had moved. To see that, I’d have to lift the stone again. I’d bring my supper when it was too hot to eat where I lived. After a while I’d take the first three stones and step from the third straight onto the shelf. It would be a slightly longer step than was comfortable with a bundle. On the way out, in the failing light, I’d sometimes put a foot down in the clay.

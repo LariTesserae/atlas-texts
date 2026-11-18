@@ -1,0 +1,15 @@
+I’d start in the tram shed, at the end of the shift, with a pear I’d been told to eat over the sink. There would be a plate in the cupboard, but I wouldn’t take it. A plate is one more thing to bring back in the morning.
+
+I think I’d want to be the person who takes the last car out. Not the conductor, who has to call both names at the shared platform and look as though that’s an ordinary thing to ask of a mouth. I’d be in the cab, with a rag for the inside of the glass. I’d know the line by the few places where it’s worth wiping the glass and the many places where it isn’t. Beyond the freight yard there’s a stretch where the rail runs straight for half a mile and the headlamp lights the backs of all the posts. You can see which ones have combs in them. They’re dry around the mouth.
+
+But when I imagine the last car coming in, I don’t find myself taking my coat off the hook. I’m still out over the inspection pit after the driver has gone home. There’s a little warmth left in one axle. Now and then a drop falls from me, and from the sound I can tell whether the man below has moved his bucket.
+
+So I think I’m the car. An old one, kept for the late run because the doors can be worked by hand. In damp weather the rear door needs a knee against the bottom edge. The regulars do this without breaking off what they’re saying. On the way home they sit singly along the same side, leaving the other bench empty, though there’s nothing to see out of either window but their own knees.
+
+On wet nights the woman with the kitchen key gets out at the farther stop. I know her by the way she comes down the steps: two feet to a step on the way out, one to a step on the way in. She has more time going home than she has coming back. While she’s in the kitchen they start a hand without her, and if it’s a good one somebody will want to tell her the whole of it as soon as she gets through the door.
+
+One night I’d be left at the platform while the driver went round the clock to see what was holding us. From the rear step I’d feel the woman get on. Before she had taken her second step I’d feel her get off at the front. This happens often enough with a bag of groceries or a letter passed through a window. A person is different. You can feel the springs come up under a person who has made up her mind to leave.
+
+She’d come back a moment later carrying the pan. She’d set it down just inside the rear door and go out again. There wouldn’t be much water in it, but at the first bend it would run up one side, and at the second it would come back. I’d carry it all the way to the shed without spilling it. I’ve had years to learn those bends.
+
+In the morning the fitter would find the pan under the bench and put it in the cupboard with the plates. He wouldn’t look inside. There’d be two wet prints on my bottom step, broad enough that nobody could have stood there with both feet unless they meant to stay outside. All day, drying in the shed, I’d feel the small distance between them.

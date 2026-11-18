@@ -1,0 +1,15 @@
+I would live in one of the holes below the white road. I’d make it wider at the back so I could turn around without putting my head out. This would be important to me for reasons I couldn’t explain even to another of my kind. I don’t think we would meet often. A fresh fan of grit below a hole would be enough to make me take the long way around.
+
+I’d eat what grew back. The white stone would be good at the end of a night, when it had had time to creep into the burrow and was still soft. The black stone would wear my teeth down, which would also be necessary. Every so often I’d come across a shell wedge from an old cutting, with a taste of hand still on the thick end. I’d eat around it and leave it standing.
+
+For a long time I’d know the town as a place where something knocked all day. I’d know the pestles from the wedges, and the wedges from the heels. In the evenings there would be a knock that made nothing crack and did not come again at any useful interval. I’d go on eating. A mason who struck like that would never get a block out.
+
+Then one year the wall of my burrow would grow warm. I’d follow the warmth up into the bench and come upon the well from the side. I wouldn’t go into it. The water there would pull at the little loose skin under my jaw, and I wouldn’t like that. I’d lie just behind the lining and spit out what I couldn’t eat. Most of it would fall back into the hole. A grain now and then would go up.
+
+From there I’d hear the scraper. The girl would take three or four strokes and stop to clear the blade with her thumb. At first I’d eat in the stops, when I could hear what my own teeth were doing. After a while I’d eat while she scraped. When she went home there’d still be enough warmth for work, but I’d generally stop.
+
+I don’t think I’d carry a message between her and her grandmother. I’d know the two knocks, but I wouldn’t know one was for the other. What I might do, when my teeth got too long again, is follow a hard thread of stone from the well back toward the old bench. I’d gnaw the white away from it until it lay bare along the floor of my burrow. It would make a good place to rest my jaw.
+
+One evening the girl would knock and I’d feel it there, right through a tooth. Farther back, where the thread went into the old stone, the bench keeper might feel it through the butt of her rod. She’d have to be holding it lightly. She’d have to have left it standing on exactly that spot.
+
+The next morning she might come out early and ask the girl to do it again. By then I would have bitten through the thread. I’d be asleep with my nose in the cold end of the hole, and the two of them would spend a little while moving the rod from place to place. I think the girl would stay after her grandmother went in. She’d have brought breakfast for both of them, and there would still be half of it to eat.

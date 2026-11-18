@@ -1,0 +1,11 @@
+I would be under the bank with one foot out in the falling rain. I’d have put it there when the bank was lower. By now the clay would have set around the ankle, and to find out what the weather was doing on that side I’d have to wait for a drop to strike a nail.
+
+On the other side I’d have several feet, all in working order. I’d spend the warm hours drawing them in one at a time and wiping the salt from between their joints. The salt would go into a little pile under my belly. When the plain folded, I’d lose the pile. This would happen often enough that I wouldn’t bother to put it anywhere better.
+
+I don’t think I’d be one of the walkers, though from above there might not be much difference. My feet would be broad and soft. A walker could set a hook in one without hurting me, and sometimes, when the suspended rain thinned, I’d have two or three of them standing on me. Their bellies would be dry. I could feel the mouths on their backs opening and closing on nothing, because each time a mouth closed the walker shifted a little on its hooks.
+
+What I’d have under the bank, besides my feet, would be a pocket of air. It would extend from the roof of my mouth down under the first few tiles. I’d know its size by how far I could draw my tongue back without meeting water. When there was work going on below, the pocket would shorten. Sometimes the last of it would fit between two teeth. Then I’d take it out on the still side and hold it there until the pressure eased.
+
+Once, doing this, I’d find a drop with a chip of clay in it. The chip would be too heavy for the drop but hadn’t fallen yet. I’d put the air against the drop and the chip would fall, and from somewhere well under the bank I’d hear it knock against a paddle. A moment later the foot I’d left out in the rain would turn a little at the ankle.
+
+For the next few days I’d be able to pull it in. I’d leave it where it was. There would be fine work going on in the space around it: a mouth had got in there and was drinking, and I could feel the clay draw closer each time it swallowed. In the afternoons, when my other feet had walkers on them, I’d open my mouth just enough to let some of the air out around that ankle. The foot would loosen. On the far side of the bank, where I couldn’t see it, rain would get in and wash between my toes.

@@ -1,0 +1,11 @@
+I think I would be out on one of the new humps. Not on top, where the leaves are opening, but on the side that looks bare even when you get close. I’d want to be there when the water went off it. In the old sedge there must be a thousand ways to remain wet without knowing where the water comes from.
+
+At first I thought I would be the fish that stays behind. There is something I like about the moment when it has enough water to be upright but not enough to go anywhere. It can see over the rim of its hollow. If it moves its tail, there goes the view.
+
+But I’d be lower down than the fish. There is a seed in the clay, left there when the hump was still a place a fish could pass over without turning sideways. Its two leaves have come up some distance from where the seed lodged. One has a clot of clay on it that the rain hasn’t managed to wash off. Below, the first root has gone down straight as far as it can, and sent out a white thread to one side. I would be that thread.
+
+For a long time I’d grow where there was hardly room for me. A grain would give a little on one side, and I’d thicken there. What I couldn’t move I’d grow around. Then one afternoon a toe would press down beside me. I wouldn’t know the weight of the animal, only that on one side the clay had become very close. When the toe came out it would take a little plug of clay with it. There I would be, sticking into water, with nothing against my tip.
+
+I’d grow crooked from that point on. The water in the hole would fall, and the exposed part of me would go dull. Then water would come up from below and cover it again. Once, while the hole was full, the fish would put its mouth down to the opening. It might take something too small for either of us to see. I’d feel the brief pull of its mouth along my length. By evening it would be gone.
+
+Later, when the hole had filled with fine clay and you could no longer tell where the animal had stepped, there would still be that bend in me. Other threads would go out from it. One would find the old plug, which had fallen back in upside down, with its little tuft of green buried. I’d go through the soft part first. Above me, the leaf with the clot on it would at last have grown broad enough to tip it off. It would land very near where it came from.

@@ -1,0 +1,15 @@
+I would work on the second length of streets. At first I think I would have a room in the survey office, with a high stool and a drawer for the slips the men brought in. But there would be very little reason to keep that room open. A street can go a long time without needing to be measured again. I would keep my things in Number Five, in the front room, where I could hear anyone who knocked at Number Two.
+
+My predecessor’s instructions would be on a card in the lid of the instrument case. For a distance measured by sound, take two readings, one in either direction. If they differ, enter both. If the sound is heard in two places with an interval of silence between, do not add the interval. In the bottom of the case, under the felt, there would be a letter asking for a second man to hold the other end of the street. I would sometimes take the letter out and read it. There would be no reply with it, but the fold would be nearly worn through.
+
+The porter would help me when he could. He wouldn't leave the awning, so we would learn a good deal about the square and almost nothing about the street behind him. Once I would ask him to strike the back of the second chair with his knuckle. I would hear it at the far gate, and again in a shallow cut beyond the sidings. When I came back to tell him, he would say he hadn't struck it yet. He'd been waiting for me to get a little farther away.
+
+We would try it again and get nothing worth entering.
+
+I think I would spend less and less time with the wheel. There would be a place at the old turn where, if I stood on the paving, I could hear the machinery in the foundry. Not all of it. One tooth, and then, after an interval long enough to make me think I had lost the place, the next. Off the paving I could hear something else: the faint scuff a foot makes when it has been set down but has not yet taken any weight.
+
+I would go there to find out how far that sound carried. For a while I would keep a peg in my pocket to mark the last place I heard it. I never would put the peg in. It would turn out that I could hear the scuff quite well with one foot on the road and one foot off it, but only for as long as I kept my weight on the foot behind.
+
+So that is where I would be, at least on the nights when there was nothing to do in Number Five. A driver coming up would take me for somebody about to cross and slow down. I would wave him through. Then I would stand a while longer with my foot on the warm stone, finding out whether the sound came before I leaned forward or whether leaning forward made it.
+
+The first time I heard it from the foot I had left behind, I would go home by the road. I would put the case in its usual place under the front window. I would leave the peg on the sill, where I could pick it up on my way out without having to decide what to call the work.

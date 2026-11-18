@@ -1,0 +1,9 @@
+I think at first I’m the keeper. I have come up through the pass with a bag of blocks knocking against my hip. At the hut I change my boots. The ones I wear on the plateau have a cut across the left toe, and by the time I reach the first panel I can tell how high the water is by which sock is wet.
+
+But when the keeper moves on, I stay where he knelt. I’m a length of the old grating, a yard or so east of the present path. There is still a block under one corner. I can rock on it, though nothing that walks over me now is heavy enough to make me.
+
+For a few summers after the path was moved, people made the mistake of stepping on me. Their first step was firm, their second went down into water. One man came back for a hat he’d dropped and stood on me with both feet while he fished it out. That was the last weight I carried clear of the ground. Since then the moss has grown up around the block, and most of my bars lie flat on it. Where they touch, the moss is orange. I used to think the color meant I was wearing away. I’m still wearing away, but the orange has gone on ahead of me. There’s a stain down in a joint in the rock where no part of me has ever been.
+
+One of my squares stays open. It isn’t the square that gets the most light. A root runs under it, thick at one end and bare at the other, and holds the moss just far enough off the steel. On wet nights a small newt comes through. It gets its head above the bar, then one forefoot. The other forefoot searches in the air for a while. I have a burr there, left from when the grating was cut to length. A boot could go over it a hundred times without noticing. The newt finds it.
+
+I don’t know what it does on the far side. The first time, I thought it had fallen, it went so suddenly. Later in the night it came back through a different square, one I’d thought was stopped up for good. The moss lifted a little and settled again. All that summer I’d been keeping track of the wrong opening.

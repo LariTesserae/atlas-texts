@@ -1,0 +1,15 @@
+I’d live under the freight viaduct, but I don’t think I’d work there. I’d be the person people sent for when a door began to open by itself.
+
+A door that sticks can wait. You put your shoulder to it for a few months and then one day you find you don’t have to. A door that opens by itself is more of a nuisance. It lets the heat into the room where you’re trying to keep the butter. It stands open while you’re asleep, and anyone coming up the stairs can see the shoes you’ve left out to dry.
+
+I’d start by asking when it happened. People would say *at night*, and after another question or two it would turn out they meant *when the lift goes down*. I’d ride the lift a few times with my bag between my feet. Then I’d go back up and put a slip of paper in the jamb. A child, if there was one, would be allowed to pull the paper out, provided they could wait until I said.
+
+For a while I’d think the work was a way of keeping track of the mountain. I’d mark the height of a latch in pencil and come back the following winter to see what had happened. But people paint. They get a new refrigerator and take the door off to bring it in. A man who has complained for three years that his floor is rising will tell you, when you finally get down on your knees to look, that his brother put that end of the cupboard up on a tile. I’d get to know the brothers as well as the floors.
+
+The cuffs would mostly be none of my business. I’d see them when I took down a number to get at a screw, or under the handrail where I put my hand without looking. One evening I’d have a door off its hinges on the landing, resting on two blocks. There’d be a cuff on the upper edge, where no one dusts. I’d leave it there while I worked. It would be a long job, with a screw that turned without coming out, and the woman whose door it was would bring me tea in a cup with no handle. By the time I was ready to hang the door the cuff would be on the underside.
+
+I’d have to turn the door upright. I’d stand there for a little while with my fingers under the edge, trying to decide which way to turn it, though either way would bring the creature to the same place. The woman would ask if I needed a hand. I’d say yes. She’d take the other end, and we’d lift on three.
+
+Later I’d get work out at the new district. At first there’d be no doors to speak of, only a few on the sheds, and I’d spend most of the day fitting steel frames. The crew would go home together, but I’d stay to finish one. I’d like the first time a latch went into a new strike plate. You could do it with one finger. There’d be no need yet to tell anybody to lift as they pulled.
+
+From that far out I’d be able to see the underside of the viaduct where I lived. Not my window, which would face the other way, but the tin over the back step. At that hour someone would usually be standing on the step with a pan or a dishcloth. I’d watch until they went in. Then I’d shut the shed, give the handle the little upward pull it didn’t need, and take the long way home on the stairs.

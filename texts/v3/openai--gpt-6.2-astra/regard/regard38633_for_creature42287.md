@@ -1,0 +1,19 @@
+The power felt the cricket through the hill. It had felt him several evenings before it found him. With an ear against so considerable a piece of stone it is difficult to tell a small thing near at hand from a large thing a long way off. It had been looking on the other side of the valley.
+
+Having found the room, it went on listening. It learned the double knock a beetle gives when the husk is nearly through, and the much quicker double knock when what it has got in the notch is a little pebble. It learned how far the sound of a wing would go. There was a place by the third hollow where the burr could scarcely be felt, and a place beyond it where it came up clean again, as water that has gone under a stone comes out at its toe. A female crossing the quiet place did not invariably turn back. Sometimes she stood there cleaning meal off her feet. Then she took a few steps and had the sound again.
+
+Late in the summer a scale of limestone came away from the wall. It was no bigger than the flake that comes off the crust when a loaf is cut. There were two rather different faces to it, one white and friable where it had parted from the wall, the other gray with a skin of lime laid down by the seep. It fell gray face down into the hollow where the male was accustomed to stand.
+
+That evening he stood on the white face. With his feet set wide and his belly low he made quite a good burr, but it was all in the flake. There was a little dust between it and the bottom of the hollow. The power, which could hear him perfectly well, nearly answered.
+
+Instead it listened from the rim. There was nothing there. The drinking flies jostled at the bead; the female wiped her face with one foot and then with the other. The male gave up for a while and went round the edge of the flake trying the descent. He put one broad foot down and drew it up dusty. After a turn or two he came back to the middle and began again. It was a good station in every respect that could be judged from on top of it.
+
+There were several things the power could have done. The easiest would have been to put the burr into the whole hill. But the female had a use for the places where it grew faint. Even to put it into the hollow was a more particular business than it seemed. There were three other males along that wall, and one had already let down his wings.
+
+In the end it lifted one corner of the flake just enough to let a little dust run out. It set the corner down on the bare stone underneath. At once there was a burr on the rim, quite weak, such as the two surfaces in contact would carry. The power took its hand away.
+
+For a long time the female did nothing. Then she put down her foot. She came along the rim, passed through the quiet place, and went on past the flake to one of the other males. The first male folded his wings. There was meal at the notch and he got some of it before dark.
+
+The flake is there still. In wet weather a little brown water gathers under the lifted edge and snails come to it. In dry weather the smaller crickets go under. One evening a female that had been inside an empty husk all afternoon came out with a crease across her soft back from lying against the lip of the shell. She stopped in the very act of drawing a feeler through her feet. There was something coming up through one foot, the one she had left on the stone.
+
+The power was over on the far side of the valley by then. There really was something there too. It did not see her let go of the feeler, or take the long way down to the hollow, or stop at the edge of the gray flake to feel over it. From below, the obstacle was about the height of her head. A foot came down from above and touched hers. Both feet were withdrawn in some haste. Then the feelers took up the business, for which they were much better suited.

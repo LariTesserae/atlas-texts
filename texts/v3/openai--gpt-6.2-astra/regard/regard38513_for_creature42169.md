@@ -1,0 +1,13 @@
+By the time the power looked into the stair, the young mouse had gone up again. There had been a little difficulty at the entrance, since the three who wanted to see out had to go backward in order to let him in. The grass stem still hung over the edge.
+
+It was the stair itself that held the power's attention. At the back of the bedding there was a cool place. The mother put her belly to it when she came in hot from the fig; in another week, when the nights would be hotter still, she would have been glad of it. A seam ran from there a good way up into the pasture. The grass over its upper end was just like the grass elsewhere, except that the roots went down the breadth of a hand farther before they turned along the rock.
+
+There was rain coming after midnight. It was already falling on the other side of the hill, so heavily that the sheep there had parted down their backs and showed pink through the wool. In the hollow it was still dry. One could have counted the snails without missing one.
+
+The power went down the seam. A little below the roots it found a flake of limestone, long and scarcely thicker than the wing of a seed. It had come loose all but at one end. The power bore on that end until the flake lay crosswise instead of lengthwise in the seam. An earthworm drawing in at the disturbance was the only creature that felt it.
+
+When the rain came, the first water through the roots stood a moment behind the flake, then went off sideways in an old passage full of grit. It came out at the western wall two steps below the mice. For a while there was a spout there as clear and crooked as a fig stalk. The mother came to the crack and reached down for the grass stem. She took it in by short pulls, balancing each pull with a backward jerk of her head. At the back of the bedding the stone stayed cool.
+
+It was a considerable rain. It took the wren's shell farther down than it had been in years and lodged it under a tangle of sticks. A fig limb that had been resting its weight on a single root settled the last inch to the ground. In the morning the tortoise came to the place where it had been accustomed to pass under the limb. It put its head into the space that remained and stood for some time with its nose in the dark. Then it went round.
+
+By noon the spout had stopped. On the step below it there was a spoonful of new sand, with one black grain in it for every dozen white ones. That evening the four young mice came out together. The last one down set a hind foot in the sand and slid the rest of the way on his rump. The others had already gone up into the low branches. For a moment he sat with his tail laid neatly in the little furrow he had made. Then the smell of a fig reached him, and he went up too.

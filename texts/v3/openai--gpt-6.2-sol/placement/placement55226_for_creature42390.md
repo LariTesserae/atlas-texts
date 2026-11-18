@@ -1,0 +1,11 @@
+I think I’d be in the pocket with the inspection mirror, though not the mirror. Iona would have a use for the mirror even on a day when everything worked. I’d be the stub of pencil she keeps meaning to sharpen.
+
+For the first few weeks I’d have been long enough to stick out of her pocket. Then, one morning at the bottom basin, she’d lean over to see what the strider was doing and I’d drop out. I’d spend the better part of a fill wedged under the lip of a block. By the time she fished me out, the paint would have lifted in a strip just where she puts her thumbnail. She’d peel it the rest of the way off while she waited for the float to come up. After that she’d carry me point-up, not because it was better but because she could feel for the bare wood without looking.
+
+There are worse occupations than taking down dates. On the back of the card, beside the first flowering she actually sees, she’d write *three*. The next morning she’d find a fourth flower on the far side of the pipe, open so flat it must have been there the day before. She’d start to change the number, then leave it. Three was how many she’d seen.
+
+I’d like to think I could stay a pencil. There’s a pleasure in being something she can put away. But by the time the pepper goes up the hatch chain I’d be too short to hold with wet fingers. She’d set me on the ledge inside the door, and for several days I’d watch her pat the old pocket before remembering where I was.
+
+Then one evening she’d take me out to the bare step. She’d have an orange with her and no card. The dark line in the joint would have reached past the nearer fern, almost to the edge of the block. She’d put a little mark there to see how far the water got overnight. The block would be too wet to take it. She’d try again just above the line, and that mark would hold.
+
+In the morning it would be underwater. She’d go down for dry socks and forget to look. I’d still be beside the pipe, where she’d set me to get the peel up in one piece. For a while the capped pipe would keep the sun off me. Then it wouldn’t.

@@ -1,0 +1,9 @@
+I’d start on the wall opposite the spider, at the broken end of the quartz vein. From there I could see the other end a handspan below. I’d spend a while looking at the two ends as if, with the light right, I could see what had been between them. But the place I keep coming back to is under the sod, in the fold she no longer visits.
+
+I think I’d be a grain of stone in the dirt caught in her old web. Not a chip from the new wall. I’d have come down with the shelf, already worn small enough to go between two grass roots. I might have gone through the silk as well if I’d come to it dry. As it was, I stuck to a crumb of soil. The crumb dried and split. One half went down.
+
+When a drop runs through the fold, I turn a little. There’s a pale face on me that hasn’t been uppermost since the fall. For part of an afternoon it is. Then the silk dries and draws me back against the dirt. Below me the spider goes out to a springtail and comes back. Her feet don’t touch the old silk anymore. Once, when the line to the wall breaks, it lashes upward and catches in the fold. By the next wetting it has slipped free.
+
+The new root comes past on the side where the other half of the crumb fell away. I think, watching it from the wall, that this is where I would finally move: the white tip would nose me out of the silk, and I’d go down through the fir needles to the pool. But there’s room beside me. The tip passes without touching. Two days later, farther back where the root has begun to thicken, it presses me sideways into the dirt.
+
+The next drop comes down the root instead of through the fold. It hangs at the tip, lower than I am. Behind me the old silk dries without drawing tight.

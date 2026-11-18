@@ -1,0 +1,13 @@
+I think I’d be the one in the hard shoes. I’d take them off at the first turn of the stairs and carry them the rest of the way, not knowing that the first turn was the part Ada could hear.
+
+I’d work at the baths in the old city. At closing I’d walk the pool with a long-handled net, collecting hair ties and the little plugs children put in their ears. Anything with a name on it went in the drawer at the desk. There was a hearing aid in there for most of one winter. I used to take it out when I was looking for a pencil and then put it back more carefully than I’d found it.
+
+The person I lived with would be called Len. He sharpened our bread knife much too often. On Sundays we put the table under a patch of light that came down beside a pipe. It wasn’t enough light to read by, but you could see which of the potatoes had started to sprout. We kept them in a drawer in the table. To move it you had to take the drawer out first. I think it was the sound of us putting the drawer back that Ada took for the end of the moving.
+
+For a while I’d have no picture of the people upstairs except for their feet. There was one pair that came into the kitchen and stood a long time in the same place. I thought someone was ill and had been told to keep off one leg. Then a pin came down, and a few days later another. I started keeping them on the ledge by the pipe. When Len asked what they were for I said I hadn’t found enough of them yet.
+
+The night I found Ruth’s book I was coming home with two slices of toast in a paper bag. The attendant at the baths made herself some before she locked up, and if she’d made too much she gave it to me. It was usually cold by the time I got to the ward. I set the bag on the step and moved the book out of the drip. I did her division in my head and got a different answer. At home I did it again on the back of the bag and got hers.
+
+After that I’d sometimes sit on the dry end of the tread to take my shoes off. There was room for both of us, though we were never there at the same time. Once I found a strip of gray cloth folded over the rail. I took it for a rag and wiped the wet off one shoe before I saw that a hand had sewn up the side.
+
+I washed it at the baths the next evening. It took longer to dry than I’d expected. For two days I carried it back and forth in the bottom of my bag, over the outdoor shoes on the way to work and under the toast on the way home. When I put it back on the rail it had lost its crease. The next night it was gone, and on the dry end of the step there were two more, laid flat, with a stone on each to keep it that way. I left them alone. I was getting better at knowing when a thing had been left for me.

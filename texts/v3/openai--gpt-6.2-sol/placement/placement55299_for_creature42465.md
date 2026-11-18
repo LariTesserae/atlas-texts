@@ -1,0 +1,11 @@
+I wouldn’t be at the rim much. There’s a place above the middle basin where one of the stones of the old ring rests on two points, with just enough room under it for a body to turn over. From there the whole district would be a strip of light about as thick as a grass stem. In the afternoon a grazer would go by and the strip would go dark for a surprisingly long time.
+
+I think I’d hatch under that stone. I’d start out yellow, with a little of the wet I came in still clinging to me. The first grain of red grit I got under would have a loose footing. I’d spend a good part of my first afternoon trying to get it to stay over me, walking a few steps whenever it rolled, until I had taken it farther than I’d meant to go.
+
+Later I’d know the way to the basin by the feel of the rock. I’d go straight over the ridges like the others, though there’d be one I always crossed a little to the left of the shortest way. A flake of stone there would give slightly under my weight. I’d stop on it. I don’t know what use I would make of that, except that I’d do it every time.
+
+I’d be one of the gray creatures on a wader’s leg in a dry year. There would be no view worth speaking of from the joint, either. The bodies around me would have their heads tucked so close that when one woke and moved I’d feel its feet before I could tell which one it was. Now and then the wader would take a step and we’d all tighten our hold. I’d come to know the difference between that movement and the small shiver that went through the leg when it swallowed.
+
+One morning I’d climb down too soon. The foot would be shut, but there’d be a bead of water caught in the fold of it. I’d get my front feet into the bead and stand there while it grew warm. By the time I turned around there’d be nothing left of it but a darker place on my belly.
+
+When the rain did come, I think I’d be asleep. The foot would open below me and the others would be most of the way down before I stirred. I’d let go at the last joint and drop a distance I’d been climbing back up, foot by careful foot, for weeks. Then I’d get on with eating. The wader would lower its head to the oval I’d cleared, and I’d back up a little to make room for its mouth.

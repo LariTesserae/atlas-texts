@@ -1,0 +1,11 @@
+The springtail lives under the flake with six others. It is the largest and the only one that goes out onto the water. The others graze the underside of the stone, leaving little cleared patches in a film that takes days to grow back. When the shelf floods, all seven climb into a nick in the wall. The nick holds air. There they stand on one another until the water goes down.
+
+The largest animal in the chamber is nearly as long as a grain of rice. There is no way to see it at noon. By then it has worked itself backward into the seam, leaving only the tips of its feelers in the pool. It is a little crustacean, white at the joints and clear everywhere else. The dark thing that seems to move separately inside it is its gut. On a good night you could follow what it had eaten all the way from one end of it to the other.
+
+It came up when the lower passages filled. It was already carrying eggs. For several days it tried to get back down, bracing its feet against the grains that stirred in the crack. The slab had settled just far enough that the opening would take its head but not the outward bend of the legs under its belly. It could have got through on its side if not for the eggs.
+
+Now it feeds along the line the water leaves on the wall. It scrapes up the soft part of the deposit and lets the grit go. Once, coming around the point of the fallen slab, it found its own cast skin and ate that too, starting with the feelers. It has worn a shallow track through the deposit. When fresh water covers the track, it makes another a little higher up.
+
+Just before dark, as the water spreads over the ledge, one of the young lets go. It is not swept away at once. It holds to the wall with its front feet, curved so that the current lifts its hind end, and then straightens and is gone into one of the fractures. The mother goes on feeding. There are nine more under her belly, with enough room between them now that she can pass water over each one separately.
+
+On the other side of the ledge the fracture narrows, then opens along the underside of the slab. The young one comes to rest there, feet up, in water a little cooler than the pool. There is already a skin to eat on that face of the stone. It grew in the wet season, in the first days after the break. Nothing has grazed it yet.

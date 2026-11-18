@@ -1,0 +1,19 @@
+The power went first to the other mountain. There was no level on that summit, and nothing to tell a person where to put an ear. It lay down in several places before it found the one. The sound there was not a tick at all. It was a long low settling, such as you hear in a house at night and mistake for the closing of a distant door because you have slept through all but the end of it.
+
+There was a pause in the settling. It came well before the end, and was so short that the stone on either side of it had not quite ceased to sound. The power went back to the pass and waited. When the little furl under the staple tightened, the pause occurred on the other mountain. This happened in a dry winter and again in a wet one when the corundum took a week to roll the last of its length. A little of the height was being kept back. It was not enough to show on the level. In the books of the surveyors it would have fallen within the thickness of a ruled line.
+
+The power could have lifted the chip out. It had done finer work than that. What it could not do by looking was tell whether the creature was trying to be rid of the chip or whether the blue shale was the first thing it had ever succeeded in keeping. So it left the chip where it was.
+
+In the course of time the hut of the surveyors fell in. A party came up in summer to take down what was worth carrying and make the rest safe against the wind. One of them found the level. He wiped the upper glass on his sleeve, and the bubble, which had stood for years at the end of its little tube, came away cleanly and rode to the middle. He was pleased by this. He turned the level over in his hands. The slot in the loose screw was a good fit for the blade he used to pare his pencil.
+
+Here the power did something. It let him hear the second tick.
+
+He had heard the first and taken it for a loose part. At the second he looked up, across the intervening ridges, so exactly had the sound come from its place. After a while he put the instrument back on its three pale marks on the stone. He lay down beside it. There was no return of the light that afternoon. He saw a few plates of shale and the bright foot, and that was all. In the list he made that evening he entered the level among the things still in use. Nobody had to be told not to take things from that column.
+
+By the time the chip reached the hem, the list itself was gone. The impression behind the chip had filled out except for a fine straight nick corresponding to a vein in the shale. For some winters that nick was the only means of telling which way the chip had come. Then it too went out.
+
+At the hem the fullness stopped. The next pull travelled down the skin and stopped there also. Two more arrived in the same place. The weighted edge rose a little from its bay. Under it was a patch of grit that had not seen the white light from zero in all the time there had been a white head on the post. The chip tipped into the patch and stood on end. With its weight gone the hem came down on the uphill side of it.
+
+That is where the blue stone stands now. When the hem lifts, as it sometimes does, the stone keeps a few grains from rolling in beneath it. There is a clear space about the size of the inside of the little furl. Nothing has come to occupy it. From above you would hardly count it a space at all.
+
+The power still goes to the farther mountain. Of the two places it has come to prefer the one where there is nothing to see. Lately the pause in the long settling has been coming a little later. You can lie there with both hands empty on the warm stone and hear, across the whole breadth of the valley, the time it takes a fold to open a little wider than before.

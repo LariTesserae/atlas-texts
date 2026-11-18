@@ -1,0 +1,15 @@
+I would be on the underside of the shelf where the young turn in the water the adult lets out. From above there is no particular reason to stop there. The stone has a white edge where the combers have worn it, and a person looking for a dry place to put a boot would choose it without looking down.
+
+I thought at first I would be one of the wells. There is something to be said for staying put while the plain changes its mind about where the water is. But a well gets what falls into it. I would want the small trouble of having to go out for my supper.
+
+There is a seam under that shelf that opens a little on every third blow. In the seam lives an animal about as long as the nail of your little finger. I think I would be that. It has two mouths, which are not quite opposite one another. With the upper one it holds on. With the lower one it eats. If you dislodge it and lay it on a flat stone, both mouths will try to hold on, and it will go hungry with food touching its skin.
+
+On a falling tide I would hang far enough out to take the ends of the clear threads as they went by. There is almost nothing to eat on a new thread. An old one has eggs in the kinks and a little dark meal where it has rubbed against the stone. It takes all night to draw a good thread through the mouth. Sometimes a comber takes the other end. For a little while neither animal gets anything. Then one of us lets go. I would like to say I would learn to tell how hungry the other was, but I expect I would learn only how hard it could pull.
+
+When the young broad-backs roll, their backs strike the underside of the shelf. Not hard. A strand of grit comes down, then another. I get a better meal on their first morning than on any other morning of the year. By the time the adult comes back, I can feel the young without being touched. Their breathing pushes water into the seam, and the stone takes longer to close on every third blow.
+
+One morning the smallest turns too far. Its nostrils go under and it puts its back up against my shelf. I let go with the wrong mouth. For a while I am attached to it by the mouth I eat with, tasting the thin new skin, and my other mouth, the one that knows stone, closes on water. The young animal turns again. I come away with a scrap of skin and am carried out past the place where the shelf has always ended.
+
+I had supposed that would be the end of me. But there is a stone out there just deep enough that the water never leaves it. I catch hold underneath. Late in the day the hammering stops, and I wait for the seam to open. The blow comes. Nothing opens.
+
+It takes me a long time to put out the mouth that eats. Then something brushes it, going very slowly: the frayed end of a thread. I take it in. A little farther along there is a notch where a comber has bitten it, and just past the notch, caught in a kink, an egg.

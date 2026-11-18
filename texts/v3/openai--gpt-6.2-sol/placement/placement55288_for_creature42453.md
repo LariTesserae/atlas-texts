@@ -1,0 +1,17 @@
+I’d be the person who comes for the offcuts.
+
+Not all of them. Bess would have a use for the broad ones under her flour tin when she took it down to bake, and the children would have dibs on anything that could be made to float with a cargo. I’d take the thin, crooked pieces that come away from the bottom corners of doors. I’d carry them out past the last intersection in a market basket, with the cut ends sticking through the weave.
+
+I think at first I’d live out there, on the field side of the ward. I’d set the pieces along the edge of my garden to keep the soil from washing onto the path. This would work for a season. Then one morning I’d find the path narrowed to the width of my two feet, and by autumn I’d be stepping over my lettuces to get to the gate. I’d pull up what I could. A piece from Bess’s door would come away with a white root as long as my arm and a potato caught in it.
+
+After that I’d take a room over the dry goods shed, where there would be less ground for me to make mistakes with.
+
+People would bring me things to hold open. A gap behind a shelf, a lid that needed to let steam out, the little door on a rabbit hutch that a child couldn’t manage while carrying a bowl. I’d make wedges. There’s a knack to making one that can be kicked free from either side. I’d learn it after making several that had to be fetched out with a kitchen knife. Pell would try one of mine in place of his slate at the fourth threshold and bring it back the next day. The woman’s daughter had laid it flat as usual, but by the evening run it had swelled enough to give her mother a cup and the rug a soaking. I’d go back to making things for above the waterline.
+
+At the old bicycle room I’d ask the man’s sister if I could use the bench. She’d say yes, if I didn’t mind sitting still for a bit when the wren came. There’d be a patch on the bench worn smooth by the heel of her brother’s hand. I’d keep setting my tools there, and they’d keep rolling off.
+
+For a week or so I’d bring my lunch and sit just inside the window. The wren would get used to the sound of my knife. I’d get used to stopping halfway through a cut when it came in. One noon it would fly past the husks on the bench and go up behind a loose strip of wood over the door, and I’d hear it scrabbling there. From my stool I could see the strip move. I’d put a finger against the bottom of it, just enough to quiet the rattle, and the bird would come out so close to my wrist I’d feel the air from its wings.
+
+The sister and I would look at the strip from the kitchen. It would need a little support at one end, she’d say. She’d know where her brother kept the old inner tubes. We’d fold a scrap of rubber and tuck it behind the wood, leaving the opening as we found it.
+
+I’d still go for the offcuts in spring. By then I’d know which doors the pieces came from, though not by looking at the grain. I’d know because I’d have been there to help lift the door off its hinges, or because someone had written *back kitchen* on a piece in pencil and put it aside for me. At the bicycle room I’d leave my basket outside. There’d be a stool for me at the bench and another in the kitchen, and on days when the wren was busy I’d take my work to the kitchen. The light was nearly as good there.

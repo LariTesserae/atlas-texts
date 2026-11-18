@@ -1,0 +1,9 @@
+I would be in the smallest of the four footholds. The white thing at its mouth would be the back of my head. I would have gone in face first and turned around while there was still room to turn.
+
+The hollow would be deeper on one side. A toe had made it that way, a toe the young animal no longer had, or had so much more of that it amounted to the same thing. I would sleep with one leg in this deeper part. On waking I would draw the leg in and find, for a little while, that I had nowhere to put it.
+
+I think I would spend a long time there before coming all the way out. The young animal would pass over me on its way to try the new hollow. Its belly would cut off the light, but what I would come to know it by was the order in which my walls moved. First the shallow side pressed against my head. Then the deep side let go of my leg. It did this even when the animal passed without touching the rim. Once it stopped above me to eat something off its foot, and I slept through the whole time it took to eat, with that leg loose.
+
+When I did come out, it would be backward again. My head would fit through the mouth, but the leg I had slept on would catch. I would have to go back in a little to get it free. By then the young animal would have all four feet in places it had never stood before.
+
+I would try the next hollow up. There would be powder in it, and no deep side. I would work the powder around with my feet until I had enough of it behind me to lean against. Then I would put out my head. From there I could see into the place I had left. The light went farther into it than I had ever been able to go. At the back, where I had thought my leg rested against bare stone, was a skin so thin that when the young animal put its foot down, it lifted.

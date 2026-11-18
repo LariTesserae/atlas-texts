@@ -1,0 +1,11 @@
+I’d start on the dry side of the pane. I can see myself coming out of the lift with a rag in my back pocket and a lamp in a cardboard box. I’d set the box down carefully. At that height, anything you put down seems to be considering a long way to fall.
+
+But I don’t think I’d be the one who gets to go back down at the end of a shift. I’d be on the other side of the glass, and the rag would be the first thing in a long time to make me pull in my horns.
+
+A snail, then, but not one of the old ones. I’d have come down from the ceiling on a piece of leaf that tore off and lodged against the pane. For a while I’d eat the leaf itself. When it came loose again I’d be on the glass, too light to feel it go. The dark point of my shell would still be soft enough that a grain caught in it could stay there for the rest of my life.
+
+There’s a film on the pane that looks like nothing from the service ledge. I’d eat it in short sweeps, reaching to one side and then the other without moving my foot. From outside, if you got your face close to the glass, you could see where I’d been: a clean strip with scalloped edges. The next day it might look as though I’d changed my mind halfway across. More likely I’d come to a patch that wasn’t ready to eat.
+
+Late in the day the fish would pass behind me on its way to the washer. I’d know it chiefly by the dirt. A little would rise when it went in, and a little more when it backed out. Some of it would settle on the part of the pane I’d already cleaned. I’d turn back for it. There’d be good eating in what came out of that gap, though not in the bright grains that took the longest to come down.
+
+One day the lift would stop and there would be no fish at the washer. There would be something much smaller at the pane, holding itself off the glass by a distance I could cross with one horn. I’d go on eating. It would dart away, then come back, and this time I’d touch it. For a moment it would scarcely move. Then it would swim the length of the clear strip beside me, fast enough that the water it displaced would reach my horn after it was gone.

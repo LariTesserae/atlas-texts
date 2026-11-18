@@ -1,0 +1,17 @@
+The power would watch the old hen come out backward three mornings before it understood what caught her. From below, the edge of the hole looked like brick. It was a root no thicker than a hair, worked into the nest with the straw and worn smooth by her foot. While she was down at the pan, the power would break off the loose end. The root could stay where it was. It was holding in a good deal of the nest.
+
+The next morning she would come out backward just the same. It would be some time before she tried it any other way.
+
+There was a worse thing the power could see from where it waited. The drain was clear at the mouth and nearly stopped a little farther in. A strip of reed mat had gone down edgewise, turned at the bend, and caught there. In a little rain it let the water by. In a great rain it would lie flat across the passage. The water would come up under the baskets before it reached the stairs, and by then there would be mice trying to get out through the gaps the water was coming in by.
+
+The power would draw the reed out. With it would come a black thong, the bowl of a clay pipe, and the leg of a sparrow that had not died in the room. It would leave these on the lowest tread, where the baker’s mother would find them dry the following day. She would know what the thong was. Her husband used to tie the bone hook to his wrist with it so he could let go to move a pan. She would put it into the shallow tin with the dust, take it out again at the top of the stairs, and lay it along the sill. By evening it would have curled up so tight that nobody could have got a hand through it.
+
+That night the rain would come. The power would stay through the worst of it. The drain would take the water, though not so fast that the pale jumpers had no time to rise. A mouse would carry three young up into the barley jar, one by one, and sit there in the sweepings with them long after she could have gone back. The snake would take a mouse on the middle terrace the next afternoon. The power would hear that too. It had not come to the room because it loved only the things that drank from the pans.
+
+When the old hen could no longer make the drop from her hole, she would spend a night on the shelf behind a lidded jar. There was flour on the shelf, just enough to show where she had walked back and forth before settling. By dawn she would be cold in the feet and too tired to tuck her head. The power would warm the brick against her breast. It would keep it warm until there was light on the limewash and the noise overhead began: the trough, the pause for flour, the trough again. She would lift her head once at the pause. By the time the baker’s mother opened the door, she would be dead.
+
+The woman would see her from the third tread. To reach her she would have to set down the tin and turn sideways, the way she used to when she came down carrying a pan in both hands. She would do it slowly. On her way back she would stop where she always stopped, and from there she would see something she had never been low enough to see before: a sparrow in the broken pan, with both wings going, throwing water over the rim.
+
+She would stand with the little body in her palm until the bird had finished. Then she would go up and ask her daughter for a dish with a sound rim.
+
+They would leave the broken pan where it was. The baker’s mother had seen the mouse by then.

@@ -1,0 +1,121 @@
+They are never entirely not touching something.
+
+That is the first thing. A woman waiting for her sister leans with the flat of her forearm against the flute-wall, hip cocked, heel dug into the fines until it finds the hard bright edge of a seam. Two men arguing stand with their hammers resting on the same plate, so that each feels the other's temper arrive before the sentence does. A child asleep in a stair is asleep with its chin in a notch cut for chins. There is furniture here for the sternum: rails at the height of the breastbone, padded, worn to a polish by three hundred years of ribs. Sitting, in this city, means coupling. To sit back, arms folded, touching nothing, is the posture of sulking, of illness, of prayer, and of the very old who have stopped bothering. Visitors from the plain find the constant contact unnerving and read it as affection. It is not affection. It is having your ears open.
+
+Their bodies have been shaped by a hundred generations of leaning. Heavy jaws, thick at the angle; mastoids like knuckles; front teeth worn into shallow scoops from the biting-rod. The right hand — the hammer hand — is a half-size larger than the left, with a callus across the base of the thumb that people groom and oil and compare, the way elsewhere people compare beards. Everyone's fingertips are ridged and shiny from reading plaster. Everyone squints. The light has no direction, so there is nothing to squint *against*, and yet the whole population squints, a permanent civic expression of mild suspicion, and the eyes go anyway: at fifty the world begins to fog at the edges, at sixty-five most people are functionally blind, and this is not a catastrophe but a promotion. They wear slit-visors of lacquered leaf, amber, curved, tied with bast; a person's visor is the most personal thing they own, and the shape of the slit is a fashion, and there are vain young men who have their slits cut narrow enough to be dangerous.
+
+They smell of pear drops. Everyone. The breath, the hair, the sweat, the felt. It is the air itself, and it has been in their fat since conception, and no one notices it except the doorkeepers who come down from the throat with the outside still in their noses and stand at the bottom of the forty-first plug thinking: *sweet, everyone here smells sweet, like a bowl of fruit left in the sun.* Their hands shake a little after the age of forty. Their dreams are reported as unusually vivid and unusually unreliable. They forget things constantly, and have built an entire redundant bureaucracy to compensate, and it does not occur to them that other peoples' memories work better, because the doorkeepers do not talk about it, because trade.
+
+---
+
+A person here has three languages and they are not versions of one another.
+
+The first is the tap: rhythm on stone, going four kilometers a second down the clear seams, arriving in your wrist and your heel and the bones of your face. It has no vowels and no tone and it is faster than speech, and it is *public* in a way that surface people cannot imagine, because a good seam carries to everybody. A market is a chord. An argument between two brothers on opposite sides of the hollow is a thing six thousand people feel in their teeth while they work, and everyone has an opinion, and the opinion is also tapped, and by evening the argument has become a piece of music that people perform for fun, with the brothers' characteristic hesitations exaggerated for comedy.
+
+The second is the hands: full grammar, face and shoulder and wrist, learned in the hush, at close range, in the years when there is still a mother's voice going along with it. It is the language of the body, of nuance, of anything you would not want the whole rock to know. It is also the language of love and of insult, and its most intimate register requires touch — a palm on the other's forearm to conjugate for *I felt this myself*, two fingers at the wrist for *I am guessing*, the flat hand laid on the sternum for *this is true, this is the world, this is not going to change.*
+
+The third is the bit: a rod of soft native copper, a hand's length, held between the molars, the other end held between yours. Bone to bone. It is how a physician reads your heart, how a mother tells a feverish child a story, how lovers talk in the dark that does not exist. Two people with a rod between their teeth cannot lie very well; the rod carries the tremor along with the words. Everyone owns a bit. It hangs beside the hammer. To ask someone for the bit is roughly what asking someone to undress would be, elsewhere, and roughly what asking them to swear an oath would be, and the two meanings have not fully separated.
+
+And the voice — the actual voice, the throat-noise — is not a language here at all. It is an organ of intimacy, used only in quilted rooms, only with infants and the dying and one's beloved, and never in public. To speak aloud in an open flute is either obscene or pitiable, depending on your age. Adults hum. Constantly, tunelessly, without knowing they do it, the way people elsewhere jiggle a foot: six thousand private melodies going up into a hundred and thirty decibels of established fact, inaudible to every one of their neighbors, inaudible to themselves except as a buzz in the skull.
+
+There are four people in the city who can hear them.
+
+---
+
+Children are the only hearing population, and they are kept like orchids.
+
+A hush room is felt on felt on felt, hung on gimbals inside a live flute, so that the floor still rings and only the air is stilled. It costs more than a house. The rich buy them; the pious endow them; a guild of quilt-makers exists whose entire skill is the hanging of a silence that does not sway. In such a room a child is raised for six or seven years with ears intact, and hears rain that is not rain, and hears its mother, and learns the hands with a voice underneath them, and this period is what everyone in this city spends the rest of their life trying and failing to remember accurately.
+
+Then the world takes them. It takes them unevenly — the low register goes first, then the middle, then the shriek at the top, which is the last thing any of them hears and which some of them miss. It takes the poor at four and the rich at nine. It is not a tragedy; it is citizenship; there is a word for it that also means *joining*. On the day a child can no longer hear a struck plate held to its ear, the family sends the name out, and the city answers: six thousand hammers, one pattern, the child's own rhythm coming back through the floor and the wall and the rail and the bones of the legs, from every direction, for a count of forty. Most children cry. The tears are caught in a copper cup, because of course they are.
+
+Afterwards the mother goes into the hush room and shuts the felt and speaks to her child, and the child reads her hands, and she goes on speaking anyway for years, and neither of them mentions it.
+
+Some ears do not fail. About one child in forty, hush-raised, keeps hearing past twelve — a lottery of anatomy, a thickness of bone nobody can predict. The Listener guild tests infants with a bone rod and a struck plate and a held breath. When it finds one in a poor district it buys it: a good seam for the family, in perpetuity, and the child goes up into the quilted galleries, and the family is rich, and the child is dead by thirty-one. Everyone knows this arithmetic. Poor mothers scrub their babies' ears with oil and try to make them fail. Some succeed.
+
+---
+
+The people are the only water in the world, and they know it, and it is the organizing shame of their lives.
+
+Everything wet is contraband. Sweat is wicking felt, wrung into flasks at the end of a shift, and the wringing-sheds are in a walled district at the base of the throat, and the people who work them marry each other and no one else. Blood is a lidded cup and a protocol. Birth is a hazard requiring three attendants and a sealed floor. Tears are caught. Spitting is a crime with a tariff. A wet hand on a leaf leaves a scar for a season, and everyone here has seen those scars, white and lace-edged, and everyone here has been taught since before they could tap that *you are the thing that burns the trees*.
+
+So there is a whole caste, the Sealed, who handle the water that comes down in skins from the caravans — a bed of quiet sold to some sleepless prince in exchange for a year of drinking — and they are essential and unclean and their dead ring flat. This is not superstition; the tuners will tell you, correctly, that a femur from a water-handler files differently and sounds dull, and there are families who will not have one hung beside their own. The Sealed have their own end of the slot. It is sixty paces long, the slot, and there is a stretch of it that everyone can identify by the sourness of the interval it makes, and the Sealed's children learn which stretch before they learn their own names.
+
+And no one, ever, touches a leaf. Lovers do not go into the crowns to be alone. You go into a crown to work, dry, wrapped, gloved, and you come out. The nine trees are the most beautiful things anyone here has ever seen and the entire population maintains toward them the tense, aching, hands-behind-the-back restraint of people standing near a fire in a paper house.
+
+---
+
+Wealth is the diameter of the world you can reach.
+
+A rich woman on a good seam lives in a city four hundred paces across. Her sister is in her wrist. Her son's school is in her wrist. The price of pod-cake, the death of a man she disliked, a joke about the price of pod-cake — all of it arrives at once, all day, and she has a filter-clerk who sits at her plate and lets through only what she has asked for, and this is the single most conspicuous luxury in the city, more than the hush, more than the mirrors.
+
+A poor woman in sugary stone lives in a room. Her tap dies in three meters. Her sister is a walk away — an actual walk, across dead ground, twenty minutes, and you cannot send ahead, and you arrive and she is out. Her son's death is told to her by a runner, a week late, standing in her doorway with his hand flat on his own sternum, which is the gesture that means *this is true and will not change* and which runners use so often that they are recognizable by it. Runners are the only people here who routinely walk to their sisters. They are paid badly and needed absolutely and considered slightly holy and slightly stupid, and they have a bad gait by fifty from crossing the fines, and they are the ones who find the exiles' bodies, when there is anything to find.
+
+And here is the joke that everybody makes and nobody laughs at: the rich rent dead stone. A quilted pocket in a sugary district, off every seam, reachable by no one, rented by the hour. Because on a good seam there is no privacy whatsoever — your affair is a public chord, your debts are a public chord, your grief is a public chord — and the only place in this world where you can be unaddressable is the place where the poor are imprisoned. There are houses in the poor districts that have been kept quiet and clean and rented out for four hundred years by families who own the seams their landlords were born on. Adolescents go there. Adulterers go there. People who want to say something aloud to themselves go there, and come back, and are watched.
+
+The late-deaf are the bottom. A caravan driver who came down for love or for wages at thirty, whose ears went in a year without any hush, who never got the hands properly and never will: he stands in a flute with a plate and taps one beat, over and over. *Here. Here. Here.* It is the sound of a person with no grammar. There is exactly one law in this city that everybody obeys without argument, including children, including the rich, including the Sealed, and it is that a lone beat is always answered. You tap back. Anything. You tap it back.
+
+---
+
+Work is angles and fillings and the maintenance of a note.
+
+Mirror-boys on rope rigs, steering columns of ceiling-light onto seams, aiming by the warmth on the inside of the forearm because in a world with no shadows you cannot see where a beam lands until the mortar skins over. Light-plumbers who can tell you, by the smell, whether a lacquer will cure amber or cloudy. Masons who do not cut — who fill erosion-forms to the lip and no further, who work with a profile-gauge of hammered copper and a horror of overshoot, whose apprentices are made to spend a year just holding the gauge. Sky-patchers who go up on bast rope in the wet years with brick and lens and lacquer to mend a soft place in the ceiling before it weeps, and who are the closest thing here to sailors, and who drink their water like everyone else and are frightened of it like everyone else. Gleaners: children, sent out after the pod-hail to gather the seedlings out of the fines, because a tenth tree would change the profile of the room and the profile of the room is the note and the note is the food. There is a heresy called the Tenth. It has had adherents for six hundred years. Its problem is arithmetic: to raise a seedling you must give it noise, and noise is a conserved quantity, and to give it noise you must steal it from something already living. Every Tenth heretic in the record began by trying to damp a wall. Every one of them ended in the Empty.
+
+Physicians with copper bits, who read your heart's timing against the fundamental the way elsewhere a physician reads a pulse against a clock, and who have known for nine hundred years that the chamber mistimes the human heart by a hair, and who have written eleven thousand pages about it, and who cannot do anything, and who tell their patients to lean more and worry less.
+
+And at the top, the doorkeepers, swinging forty-one felt plugs aside and letting them fall, taking delivery of copper and bast and water, lip-reading caravan drivers who complain of nothing but glare. The doorkeepers are the only citizens who have ever seen a shadow. They try to describe them. It goes badly. A shadow is a hole in the light that does not subtract anything from the world, and the local word for *hole* is the local word for *predator*, and the conversation usually ends with the doorkeeper being asked, gently, whether he has been up too long.
+
+---
+
+The trees are nine and they are not trees and they are, in every sense that matters here, people.
+
+Each has a voice — its pipes are its voice, a sustained interval in the chord — and this is its name, and you cannot tap it, you can only point at it by humming, which is why the deaf speak of the nine with a gesture and the Listeners speak of them with a sound and neither considers the other's version correct. They have temperaments. The Fourth is generous and drops cake-heavy pods and has a bad crown-scar on its northern side from the wet year everyone still dates by. The Seventh is thin and mean and rings sharp and has been dying standing for two hundred years, and the tuners argue about it in every generation, and the argument is always the same argument, and there is a knotted cord in the archive that is nothing but the Seventh's argument, four hundred years of it, tied by nine hundred hands.
+
+Their entire sexual future passes through the body of a kite-moth: thin as a shaving, two hands across, licking lacquer, carrying pollen from one crown to another across two hundred paces of empty bright air. Perhaps one person sees one in a season. The sighting is recorded and the seer is fed for a month. There are nine bait-plates of fresh sap at fixed stations, tended daily, an infrastructure of temptation for an audience of one. Killing a moth is a capital crime, the same crime as damping a wall, tried the same way. Children learn the moth's outline before they learn their own faces, which they have never seen properly, since there is no still water and no mirror that is not a tool.
+
+And under the fines, in the moss, in the crotches: pale grazing things the size of a thumbnail, blind, oily, which the children eat alive on a dare; mites; a louse that lives in leaf-felt and makes people itch in a way they describe as *loud*. It is not a rich biosphere. It is nine jungles and a moth and some lice and six thousand people and three absences, and the accounting is exact.
+
+---
+
+The Listeners are the ones who kept their ears, and they are priests, spies, confessors, and instruments, and they do not last.
+
+They live in the quilted galleries near the crown and go out with their ears wrapped and their bits between their teeth, and they listen for absences. They are paid in the best seams. They also hear: the brown hour, when the vapor condenses on the cool undersides of ten thousand leaves and the jungle sweats oil and it drips — the only delicate sound in the world, and no one else has heard it in four hundred years. They hear the private hums. They hear a woman in a rented pocket saying aloud, to nobody, the thing she cannot tap. They hear the ancestors drift flat as the wind changes. They hear the moth. They hear, through the floor at the edge of the Empty, the other gourds — ninety-nine sealed bubbles under the salt, each humming its own faint note into the glare, each empty.
+
+They are forbidden to repeat what they hear, and the seal holds about as well as such seals hold. You go to a Listener once or twice in your life, into a quilted room, and you *speak* — you make the ugly, naked, unpracticed noise of your own voice, and someone hears it, and taps nothing. People come out of this weeping into copper cups. It is the closest thing here to absolution. The Listeners carry everyone's voice and no one carries theirs, and this is the specific thing that breaks them, more than the solvent, more than the drip they go out alone to hear at the brown hour when they should not, more than the notches.
+
+The membranes are three. They nest in the neck, ten meters of ribbon that absorbs sound perfectly, and you do not see one, you notice a hole: a wedge subtracted from the world's continuous fact, and inside the wedge you cannot find your hands, because these people know where their limbs are by the ringing of their own bones. You come apart, gently, and fall, and the membrane folds around what falls.
+
+Here is what the town knows and does not say in that shape: three absences are part of the tuning. They have been figured into the chord for four hundred years; the tuners allow for them; the profile-gauges assume them. Once, in the reign of nobody, a fourth came, and the chamber sharpened, and the Seventh began to thin. They do not kill the quiet. They keep three of it. There is a number taken each year, between two and eleven, and it is in the budget, in the same knotted cord as the pod yield and the brick tally, and there is no word for this arrangement that anybody uses out loud.
+
+Once a year the city names them. Naming, here, is refusal: at the turn of the tide every hammer in the hollow is held still for a measured count of three, and the rock goes quiet while the air goes on roaring, and six thousand people feel the world's note with nothing of their own in it. It is the only silence they make and it is the only prayer they have. Children are told to keep their hands flat on the wall during it. In that gap the Listeners hear the sealed gourds best, and this is why the guild always sends two, and why one of the two is always very young, and why the count is three and not four.
+
+The alarm, when it comes, is three beats, no pause, three beats. Nobody has to be taught it. Everyone strikes. Six thousand hammers filling a hole with pattern until it closes, and the membrane goes elsewhere, and afterwards people laugh and are sick and check their children's hands.
+
+And when someone has stolen noise, they are carried out to the middle of the Empty and left. The fines eat a tap in a body-length. The roar is total. There is no seam, no wall, no rail, nothing to lean on, nothing that answers. He taps. Six thousand people feel nothing at all, because they are not on that ground, and they stand in their flutes and watch a figure two hundred paces out with its hand flat on its own sternum, and they do not strike back. That is the sentence. Not the exposure, not the thirst, not the thing that eventually comes over him like a wedge cut out of the afternoon. The sentence is that the city, which answers every lone beat, does not answer his. A Listener is required to attend, with a bit against the floor, and record the pattern until it stops. Four times in four hundred years a Listener has answered. All four were carried out afterward. All four are in the slot. The tuners will tell you, if you press them, that those four bones have never taken a true pitch, and that they file them anyway, every generation, and hang them back.
+
+---
+
+The dead are in the chord and in the walls.
+
+Femurs drilled and tuned, hung in the neck-slot where the wind enters, so that part of the hundred and thirty decibels everyone lives inside is the ancestors, sustained, without interruption, since before there were ears to fail at it. The oldest are taken down when the slot fills and burned — no; there is no fire. The oldest are taken down and ground and laid into the gypsum, so the plaster of every house is bone-ash, so a tap crosses the room through great-grandmothers, so a genealogy is a wall and you can read it with your palm if you know the grain. The very old, blind and deaf and reading nothing but conduction, are the judges here, and this is considered obvious: they cannot be lied to by a face or a voice, they can only be told, and a lie in a tap has a hesitation in it that they have spent sixty years learning to feel.
+
+Their metaphysics has three kinds and no fourth. There is the Sustained: the world, the note, the trees, the dead. There is the Patterned: the living, who are interruptions, who are a change in the sound. And there is the Absent, which cannot become anything, and is counted, and is kept at three. Verbs conjugate accordingly. A person is a pattern that will become a note. It is the whole hope of the place, stated in the grammar, so ordinary that nobody has noticed it is a hope.
+
+The obscene word — the one children are slapped for, the one that appears in the archive only as a gap in a knotted cord — means *a pattern that stops without becoming a note.*
+
+---
+
+They were put here. That is the founding, and it is not a myth; the cord exists.
+
+Salt-cutters, condemned, sent down a hole in a pan to be forgotten, eleven of them, and ten stood in the middle of the Empty and came apart. One walked. She walked until she found a wall with a bright seam in it, and she put her hammer on it, and she struck four beats, and then she waited.
+
+That is the city's name. Four beats and a pause. Every child strikes it before it can walk. The pause is not decoration; the pause is what came back.
+
+And this is why the lone beat is always answered, and why six thousand hammers come down on a deaf child's name for a count of forty, and why they will not do it for one man in the middle of the floor, and why the whole thing is a maintenance contract signed by nobody and renewed every morning: erosion, masonry, forestry, mourning, three predators, one moth, nine jungles, a ceiling that must not weep. Keep the shape. Keep the note. Answer everything.
+
+Once a year, at the naming, when the hammers are still and the rock is quiet, a crew at the edge of the Empty puts a bit to the deep salt and strikes four beats into it — out, downward, toward the ninety-nine sealed gourds under the plain, where the caravans cross in a day and a half with their teeth buzzing, saying it is the sun.
+
+Then the pause. Six thousand people with their palms flat on the wall, and the blind judges in the middle with both hands on the seam, and a very young Listener at the floor with a copper rod between her teeth, listening for a pattern in the hum of a bubble nobody has ever opened.
+
+Four hundred years of cord. No answer yet.
+
+They leave the room in the name for it.

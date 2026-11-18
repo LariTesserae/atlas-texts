@@ -1,0 +1,11 @@
+The power first took hold of the loose plate and kept it still for the length of one gust. The knocking ceased. The air continued to go through the leaves with a sound like cloth being torn. Under the wedge the snail went on as before. There was no movement the power could distinguish there that answered to the stopping of the noise. It let the plate down on its bed.
+
+A root no thicker than a hair ran along the back of the wedge. The fall had skinned it. A bead stood on the hurt place, well inside the roof, and it was towards this bead that the snail was making its way. The horns passed on either side of it. For a time the bead and the front of the snail were all one clear piece. Then the snail drew back a little. The root was still wet but there was no longer enough water on it to hang down.
+
+At the outer end of the wedge the rotten wood had begun to give. There was no sound to it. A white grain caught between the roof and the floor went over on its side. The snail had room to turn where it was, but it would have to come out by the way it had gone in.
+
+There was a chip of hard grey stone close by, half bedded in the wood. When the next gust lifted the willow stems the power eased the chip out. It set it on its broad end under the lip of the wedge, a little to one side of the silver track. Before the stems had quite come to rest the wood yielded another fraction and the chip took the weight. There was still room beside it for the shell to pass. The power left the snail at the root.
+
+By daylight the wet had drawn well back along the branch. The little one with the green thread in it had got as far as a needle lying across its way. It travelled some distance along the needle before turning down the other side. The power had been ready to lift the needle. It was well it had waited; on the other side, along the whole length that lay against the bark, there was a line of green pulp, soft enough for the little one to eat.
+
+Cloud went over the ridge that night without touching it. The next night it caught. On the third morning there was a track coming out from under the wedge. It ran across the face of the grey chip, doubled at the edge and went back in. A drop coming down the stone had washed away the middle of the turn. Under the lip both ends still shone.

@@ -1,0 +1,11 @@
+I’d go first to the square. From the lane it would sound as though somebody down there were moving a great deal of furniture. I’d stand with my toes short of the crack, trying to hear how far the water fell. But I don’t think I’d live in the square. After a while I’d want to hear what the town sounded like when the water wasn’t falling.
+
+I’d find myself at the first turning, under the place where the vole crosses. Not the vole, though at first I’d think so. I like the idea of going a little out of my way for six inches of roof. But I’d be farther down than that. When the vole passed over me I’d know it by one fine root pulled briefly taut.
+
+I’d be a flake of gray stone, about as long as the last joint of a thumb. For years I’d be part of a larger stone. Water would get in between us and freeze, and the next day we’d fit together again, though not quite as well. The year I came loose, the root would take my weight. I’d hang there all summer with my lower end in the lane. A person walking past might nudge me with a boot and think I was still attached.
+
+By autumn I’d have made a little space behind me. A cut sedge end would get in there, too far back for the vole to retrieve without coming round to the wet side, which it wouldn’t do. The sedge would soften. A springtail would get in and out by a gap that looked, from the lane, like no gap at all. For a time that would be where I lived: not quite in the bank, not quite out of it, with one face always wet and the other dry except when it rained.
+
+Then one night the root would give. I’d drop less than the width of a finger and lie flat in the lane. The next shower would push a little silt up against my long edge. Water would go around either end of me at first; by morning one end would be easier. None of this would be visible from the far side of the pass. Even at the turning you’d have to get down pretty low to see it.
+
+The following summer, coming up from the valley, you might take the turn a step sooner to keep your boots dry. The grass where you used to put your foot would be standing up again. You wouldn’t have to look down. I’d be under the step you took instead.

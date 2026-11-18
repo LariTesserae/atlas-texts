@@ -1,0 +1,17 @@
+A mouse lives behind the last notch.
+
+Her door is on the downhill side, where the lip of the bowl has broken away from the wall. From inside the hollow it looks like the shadow of a loose piece of stone. There is a tuft of grey down in it. If you pull the down out, it will be there again the next morning, though not quite so much of it. She has to go up among the birds for more.
+
+She is a little longer than a man’s thumb, not counting the tail. Her coat is the color of the limestone where it has been rubbed by wings. The undersides of her feet are black. One ear has a split that opens when she turns it toward a noise, and there is a bare place over her nose from coming and going under the notch. She can get up the wall behind the bats. They seem not to mind her feet, but when her tail trails over their ears they stir all the way down the crack.
+
+She eats the little white grubs under the feathers and the moths that come in with the wind and lose their strength against the ceiling. A moth will feed her for most of an evening. She sits on the rim of a bowl to eat it, turning it in her paws, and lets the wings fall. In the morning the wings are still there, sometimes standing upright in the old crust at the waterline. The beetles have taken everything else.
+
+This year there are three young behind the notch. They have fur on their backs but not yet on their bellies. The smallest has learned to come as far as the tuft of down and put its forefeet on the cold stone. It does this while the mother is away. When she comes back she stops on the other side of the tuft and puts her nose to it. The young one backs down into the dark. So far she has never had to touch it.
+
+The cloud that fills the bowls changes the passage before any water reaches it. The grain of the stone darkens, and the down pulls tight. On such days the mouse takes the young one at a time into a slit higher up, among the roots of the three-bladed grass. It is a poor place to lie. There is room for the young to curl together, but she has to stay stretched out along them, with one foot braced against the wall. Through the roots she can hear the swifts leaving. Through the rock under her foot she can feel the larger drops strike the sill.
+
+Once, before she had young, she stayed below while water came through the last notch. By the time she got out, the feather lining had lifted whole from her sleeping place. She followed it to the sill and watched it go over. For several nights afterward she slept in the bat crack with her head sticking out, opening and closing the torn ear whenever a bat came home.
+
+Tonight the cloud has passed below the ridge. The stone is dry around her door, and the three young are warm. She goes to the shallow pool after the bats have left and drinks with her forefeet on two different rims, where the gap is narrowest. Then she stands there a while. Above her a young swift calls, and another answers from so near it that, in the daylight, she could cross the space between them without moving her hind feet.
+
+On the way back she takes a moth wing from the rim. It is too stiff to pack into the doorway. She brings it in anyway. By morning the smallest of the young will have got it crosswise in the passage, and she will have to chew it in two to get out.

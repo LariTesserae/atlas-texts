@@ -1,0 +1,23 @@
+I think I would live on the landing side of the boiler house, in the room where the barge weights used to be kept. There would still be pale squares on the shelf where the weights had stood. I would mend the mill board in the ceilings. It would not be a full-time occupation. For part of the week I would be at the dry end, putting the sheets aside that were too good to pulp again and not quite good enough to send out. A sheet with a bad corner has a great deal of good ceiling in it.
+
+The work in the houses would be mostly done at a table. People are surprised how little of your time you spend up the ladder. You have to clear the flour and the salt away and lay the old piece down and find out which of its edges was straight to begin with. A hole looks oblong from the floor, and you take the piece down and it is the shape of a stocking foot. Someone has cut round a pipe that is no longer there.
+
+I would come to know Enna over a piece of this sort. She would have sent for me on account of a brown stain above her work chair. There had been a leak, long since seen to, but now and again, in the middle of a perfectly fine day, a little brown shower would fall on the work. On a dark coat she could blow it off. On white stuff the grains went in between the threads and had to be picked out with a needle.
+
+It would be the boy who held the bottom of the ladder. I would feel him trying, through the rails, to make out exactly what I was doing up there. When the nails came free he would brace himself for a considerable weight. In fact the piece would come away into one hand. On its upper surface, where the water had once lain, the separate reeds would have begun to show again. There would be a print of my thumb in it.
+
+“Don’t throw that out,” Enna would say.
+
+She would want a bit about the size of a prayer book, with one edge rounded off, to slip into things she was mending so that her needle would not go through to the other side. The piece she used for that at present had been the lid of a chocolate box. It had a lady on it with a nick in her upper lip from all the times the needle had got as far as the lid.
+
+The boy would take what was left. I would see him at my window the next afternoon. My window being level with the landing, I would see the piece of brown board first and then, as he squatted down, his face. He would want to borrow the tool for cutting circles.
+
+There is no such tool in my room. There is a pair of dividers with one leg shorter than the other, and a narrow knife. I would have him bring the board inside. He would make a hole about the size of a shilling, much too small, as I would think, until he put his eye to it. Then he would go about the landing looking through it. The thing about the round window had taken him the other way now. He wanted to find out which bits of the quarter it was worth having a window expressly to see.
+
+For a day or two I would find little pencil rings at various heights on the doorposts. He would have discovered quite a good view from beside the boiler-house door, if you went down on one knee: all three lanes appearing to run into one, with somebody at the far end apparently hanging a shift on the fig tree. From my shelf where the weights had been, you could get the heron’s legs and their two reflections, but none of the bird. He fetched Enna to see that. It was a business getting her up on the box and down again, and by the time her eye was at the hole there was only a square of water with a feather twisting in it. She stayed up there till it had twisted round the other way.
+
+I would expect the boy to tire of this, and he would. The board would be left in my room. I daresay I would use it to put my mug on. In damp weather the mug would leave a dark ring with the little clean hole not quite in the middle of it.
+
+But I would have a visitor sometimes at the end of the shift. Enna would come down the landing with her hands tucked in the shallow pockets of her apron. She would have no board to be cut and no particular wish to see the bird. What she would like would be to sit a while in my room. From her chair at home she always saw people coming. From my window you saw them after they had gone by, at their ordinary pace again, not yet having arrived at the place where they must put a hand on a latch or call out to somebody indoors.
+
+I would put the kettle on the boiler-house wall where it kept warm. We would watch her grandson go by. At the lane end, well out of sight of her doorway, he would stop to take off his boots. He would put them under his arm and go on in his socks along the warm planks, a thing neither of us knew he did. Enna would lean a little nearer the glass to see what he did about the nail heads. He knew where they were.

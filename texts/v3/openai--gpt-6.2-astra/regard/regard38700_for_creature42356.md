@@ -1,0 +1,19 @@
+The power could feel the pit from the inside of the stone. There was a loose grain in the bottom of it, and under the grain a smaller pit, a good shape for the white pile to take hold of. It would have cost very little to lift the grain out. The power left it where it was.
+
+The next drop went round the small blue patch and came down in two runs. One reached the curl a little before the other. The foot opened awry, laying the cloudy passenger down on the far side of the pit, where the stone was as smooth as a tooth. At the return of the brine it picked the young one up again. There was no mark on the stone. In the film a long way off, a scallop let fall a grain of grit.
+
+The power went up the stone to the highest of the six patches. Under its horn there was still the very fine wet pile. Some of the threads had gone clear. In others there was a slow carrying of substance down one side of a thread and up the other, much as there had been when the patch was under the brine. The circuit took longer now. In one thread it had stopped halfway round the bend.
+
+The power waited there through a rise of the shelf. The rise was less than the thickness of the horn. There was a small cracking as a crystal deep in the stone made room for its next face. The thread under the horn gave up a little water to the stone; none came back. At the foot of the lip there were washings and unrollings. Once the foot laid the young one squarely on the loose grain, and took it up again with the grain sticking to it. In time the grain worked through to the free edge of the film and went down onto the clean fan with the rest.
+
+There had been salt water on the high patch once. There would be none again while the stone went on rising. The power looked for a way up through the stone that did not pass through the purses or require the opening of the leaf. There was a seam, finer than the white pile, running down from beside the patch to a hollow in which a little of the old sea had been carried up. The hollow was full. At the head of the seam a flake of black stone lay pressed against another flake, face to face.
+
+The power parted them by the breadth of a wet thread.
+
+For a long time the only change was in the colour of the seam. Then at the edge of the horn a speck of white appeared. It might have been salt. It grew along the wet mark, sometimes on one side, sometimes on the other, staying close to the stone. Behind it the threads under the horn grew plump. The one in which the carrying had stopped did not begin again, but a thread beside it forked, and one arm of the fork went round the empty bend.
+
+The seam led downward. In time the white edge came to where the open brine lapped against the lip. There it put out a little breadth of film which lifted from the stone with the wash and settled against the underside of the leaf. A gulp passed. A pool hardly larger than one of the blue knots flattened, and a little of what was in it went out along the film.
+
+By then the young one in the curl had been left behind. It had caught in a pit lower down, not the pit in which the grain had lain. The power had been attending to the white edge at the time and did not know on which washing it had happened.
+
+From above, the highest patch was still dark blue and dry. A drop coming down the stone divided on it as before. It was only after the two runs had joined, if one waited for the rock to dry on either side of them, that one could make out a third line, much finer, going down into the dark. The power kept the two flakes a little apart until the pile itself was thick enough to hold them. Then it let them rest on the pile.

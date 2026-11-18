@@ -1,0 +1,19 @@
+The first thing the power did was take its shadow off the river. It had been looking for some time before it understood that the eyes opening below it were a consequence of its being there. It drew aside, rather as you would take your hand off a door on finding that something on the other side was trying to open it. The last eye stayed open a little longer than the rest. Thereafter it looked without standing in the light.
+
+For three dry seasons there was very little for it to do. Once, seeing a sill black with stranded young, it was on the point of tipping a spoonful of water across it. A brown bird came out of the grass and walked the sill, putting its feet down with the curious deliberation of a creature that has only lately got legs of that length. It walked on uphill. The water the power had thought of giving would have taken the swimmers the other way.
+
+In the fourth season a tile came loose far back in one of the houses. It was quite an ordinary tile, dark on top, still marked underneath with the shallow radiating lines along which the animal had once been able to feel a drop of rain. For some years it had been held up on one side by the tip of a brown feather cemented into the lime. The feather gave way in the heat. The tile dropped edge first into the passage and stood there, leaning a little inward. From outside there was nothing to see. The roof had not altered by so much as the thickness of the feather.
+
+There was a chick inside. It had been out twice. It knew the way.
+
+It came up against the tile quite gently, backed the length of its body, and came up against it again. After a while it tried with its head a little lower. Outside, at the entrance, one of the old birds put down the red mite it was carrying. A mite laid on its back takes some time to get the use of all its legs. By the time this one went off into the grass the old bird had been the length of the passage and back three times.
+
+The power could have taken the roof away. In the space of a breath it could have had the chick out on the stone, in the company of its parent, with all the long evening before them. But there were soft backs setting in the roof, and the chick had never yet been out of the house except by the way it knew. There was room beside the fallen tile for something much smaller than a hand.
+
+The next time the chick put its head down, the power took a little of the weight. The tile turned on its lower edge. The chick walked under it with a dry scraping along its back and came on down the passage in the dark. When its tail was clear the power let the tile settle, this time flat against the floor. The old bird, which had begun to go in again, had to come out backwards in the usual way.
+
+For the rest of that afternoon the chick had a narrow white stripe between its wings. A little of it came off on the breast of the old bird. The two stood for a while at the entrance, taking no particular notice of one another, then went down to the nearest pool. At the first grass tuft the chick put its head in among the stems. The old bird waited on the far side.
+
+That night mist came inland under its own weight. It went nearly as far as the round stone and stopped. In the morning there was water enough to join five of the pools, though not the sixth. A few swimmers got a long way up the old river; a great many did not. The power stayed to see the sun come through. From a certain height the places where the river ran and the places where it failed were equally bright.
+
+In the house the fallen tile made a slight rise in the floor, quite easy for a bird to step over. Years later there was a hollow worn across it. A chick coming out of the far room would put one foot in the hollow and begin to duck its head for the turn, which was just beyond. Even in the dark it went through without touching either wall.

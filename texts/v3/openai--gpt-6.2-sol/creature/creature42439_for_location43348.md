@@ -1,0 +1,11 @@
+The white animal is a mother. This is difficult to see even with the lamp, because the young are white too and she carries them folded under her. When she stands in the stream, the plates along her back lift a little, beginning at the tail. Water passes between them. What looks like a creature holding perfectly still is engaged in a series of small adjustments, all on the side you cannot see.
+
+She does not live in the gutter. She comes there to eat the soft skin that forms on the stones. Behind the seam is a thumbprint in the old mortar, and behind that another thumbprint, made from the other side. The two hollows nearly meet. There is enough room in them for her to turn without folding herself. This, more than the water, is what makes it a good place to live.
+
+There are others. In the dry jar neck near the ceiling, a spider puts out three threads and takes them in again. It has never caught anything in that pipe. It eats the minute flies that come up from under the floor, but it goes on putting threads in the jar neck because once, when it was very small, a fly came that way. In the hollow under the stone lives something the spider could eat and never will: a fly that has lost the use of its wings. It walks out onto the underside of the stone to lay its eggs. The water strikes close enough to move the hairs on its legs.
+
+Most of what lives here would die in a cup of this water carried upstairs. Not from the light. You could put the cup in a cupboard and it would happen just the same. The water would warm a little, and whatever was in it would keep going to the edge to find the rest of the water.
+
+Once in a long while, a child gets down here. A child can bring both elbows clear of the walls and can sit in the place where an adult has to stand. The white animal will pass quite near a shoe if the shoe is still. Seen from that low down, what she does at the little step is plain: she puts her front legs on the higher stone and lets the water go beneath her. The young come out one at a time. They are not swept away. Each catches at the seam, and for several minutes there is a row of them inside the white line, too small to interrupt it.
+
+Then they choose which side of the stone to go around. There is no difference between the two ways that a person could find with a lamp. Almost all of them go left.

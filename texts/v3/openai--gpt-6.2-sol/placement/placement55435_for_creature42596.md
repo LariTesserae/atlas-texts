@@ -1,0 +1,17 @@
+At first I’d be on the stair with the girl, counting. I’d get eight because I’d count the one that goes back in twice. She’d know which one it was by the way it put a front foot on the old shod’s lip before going under. I’d have been looking at their backs, which were all the same.
+
+I don’t think I’d follow them onto the pan. I’d go up to the house and put my hand in the place where the old shod used to sleep.
+
+There would be a surprisingly deep pocket there. At the back I’d find the end of a thorn wedge, chewed into a brush. I’d pull it, thinking to clear the joint, and feel the floor shift under one knee. Then I’d put it back. For some time I’d stay like that, kneeling in the doorway with my thumb on the wedge, hoping nobody wanted to come in.
+
+The grandmother would come up with the girl behind her. She’d look at my thumb and lay the adze flat across the sill. Not to pry anything. Just to see which end lifted.
+
+The shod, it turned out, had been keeping the floor from growing past the door. We’d all thought it liked to sleep there because it could put its head out. The floor would still hold us. The door would still open. But the two would no longer be at the same height. By supper the youngest would have to sit on the sill and lower herself in, feeling for the floor with both feet.
+
+I’d want to make a step. The grandmother would let me cut one, and in the morning I’d find that I’d made a perfectly good step for getting in and a nasty little hook for getting out. A leaf animal would have tucked itself under it, brown head foremost. I’d have to wait for it to leave before I could cut the hook away. This would take longer than cutting the step had.
+
+So I wouldn’t be the carpenter, though I’d borrow her adze often enough that she’d start leaving it where I could find it. I’d be the person who went out first and came back by a different way. There’d be a route to the shoot patch that worked with a dish in both hands, and another that worked only if you didn’t mind arriving on your knees. A path along the lip of the deep split would be very good for three days. On the fourth I’d take the girl to see why we couldn’t use it anymore, and we’d stand there watching the animals cross the narrowing gap with hardly a break in their stride. From where they were, it was the best the path had ever been.
+
+For a while I’d mark the good ways with offcuts stuck pale side up. The first one to put out a shoot would split the tread I’d meant it to mark. After that I’d take people myself. I’d learn to go slowly enough that a hand on my back could ask me to stop without having to grab. Coming home in a group, I’d go last. It’s easier to see where somebody had trouble if you watch them climb than if you turn around at the top and offer a hand.
+
+And some evenings I’d be down by the girl’s arch, doing nothing anyone needed. The two shoots she’d tied together would be thickening around the tie, and I’d have my knife out, wondering whether to cut it. One of the little shod would come along with a scale too wide for the opening. It would try straight on, then from one side, then straight on again. There’d be room to walk around, a foot to the left. I’d sit back on my heels and watch. I’d been telling people about that foot of clear ground all week. I’d never once gone through the arch.

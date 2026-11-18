@@ -1,0 +1,13 @@
+The brightest room in the wall is the one they bricked up.
+
+It lies below the level of the courtyard, though not by much: a space the size of a bread oven, left where two courses of masonry failed to meet. The roof is a single white tile. All day it takes the sun on its outer face and passes a little of that light through, so evenly that nothing inside casts much of a shadow. The light is stronger than you would think a tile could bear. The room is cool.
+
+There is no earth in it. The floor is made of fired clay wedges, laid point to point. What looks like sand in the joints is the same clay, ground fine in the years when the wall was still settling. The wedges have lost their sharp edges, but the powder has nowhere farther to go. It lies bevelled against them like a second, softer kind of mortar.
+
+The room is almost entirely occupied. There are clay spacers, short lengths of chalk, and the backs of bricks set crosswise into the wall. Someone used a broken cup to shore up one corner. Its handle makes a little arch with just enough room beneath it for a flake of white glaze. Even the flake is wedged in place. The largest stretch of open floor would fit beneath a thumbnail.
+
+Along the underside of the cup, where the glaze stops, there are three grey-green tufts. They have the flattened look of something pressed between pages. No root has found its way through the clay. The tufts hold by their edges to the rough strip the potter left bare, and whatever they needed to get that far, they seem not to need it anymore. There are no stalks among them, no new tips. The middle tuft has a pale notch that looks like a bite until you notice the same notch, at the same angle, in the cup beneath it.
+
+The noise is tremendous. A narrow seam at the back admits the sound of wind going over the courtyard wall. No draught follows it. The sound goes round and round in the cup and comes out a low, rough note, loudest close to the floor. In the little arch under the handle it has a higher edge, almost a whistle. From the courtyard you would hear neither. You might lay your palm flat on the tile and feel, faintly, what you would take for your own blood.
+
+Nothing inside stirs. There is no loose grit to bounce on the clay, no drop poised to fall. The sound has had a long time to find everything it could shake free, and all of it is already down in the joints. A thin ridge of mortar still bears the whorl of the thumb that pressed it there. The whorl faces inward, into a gap too narrow for the thumb to enter now.

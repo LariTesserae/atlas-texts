@@ -1,0 +1,23 @@
+What first engaged the power's attention was the tooth left in the ground at the end of the day's milling. It could feel the tooth from a considerable distance. So could the oldest doorback in the south district, who was resting his jaw against it. A back tooth had lately begun to trouble him. The mill tooth, being steel and extending some way into the cool, gave him relief. Presently he got up, went round to the other side of it, and applied the other side of his face, though there was nothing wrong with that one.
+
+The power stayed to see where he went next.
+
+His door was on the south rim, the last but two before the lookout. It belonged to a woman who repaired the padded stools in the tram drivers' cabs. Bits of fine stuffing came home on her and worked into the mat, which in consequence was one of the best on the street. He had lived there nine years. In that time the street had grown about the width of a thumb. The rim, on the other hand, had come in almost the length of a kitchen table.
+
+This was quite usual and the houses on the rim were built with it in mind. When the little scale leaves began to come through the wallpaper, a family had perhaps a year to look for rooms farther in. The old rooms were cleared down to the last shelf peg. In due course one could climb some way down the face of the summit and eat a sandwich on what had been somebody's window seat. There were cups cut in the seats to stand the tea in. On fine days the younger tram drivers took their dinners down there and looked at the weather going on below their boots.
+
+The stool mender had already moved. Her new rooms were just across the street. She had moved the mat last, carrying it level on both forearms with the doorback inside. That evening he had eaten well and taken the water as usual and come back to the bare patch where the mat had been. For six evenings now she had been going out in her stocking feet to fetch him across. He had no objection to being fetched. It was simply that when he came back from the water he went to where he lived.
+
+The power could have put a stay through the mountain at that point. But the end grain was sound; the slow giving way of the rim was part of what took the strain off the layers as they thickened. A stay that held a doorstep steady would in a hundred years pull the floors out of true as far inland as the theater. Nor was there anything much the matter with the doorback's powers of finding his way. On the seventh evening he came up from the water in thick fog and found the bare patch to within half the length of his nose.
+
+What the power did was to let him feel, through his hind feet, the step of the woman going home.
+
+It had very little to add. The step was there already, but the street between the old door and the new had been cut and laid crossgrain for the passage of heavy carts, and most of the slight pull of a footfall was lost. For a moment, across the street, the loose ends of fiber fitted into one another. The animal lifted a pink foot. The woman was a little late and walking fast. At her door she did what she had done for nine years: out of a perfectly ordinary quick walk she set one foot down with extraordinary care.
+
+He crossed over. She was already on the stairs when he got under the mat. In the morning there was the weight on the door, and the woman, who had spent some time before bed looking for him on the cold rim, said something rather severe to the bit of tail still showing. It disappeared. He had got home on his own feet this time, by a way that he could use again.
+
+There were other things on the summit that might have occupied the power. It stayed on quite a while without doing anything about them. It liked the instrument shop particularly, and the small bright shudder that ran through all the wires in the window when the first wet animal got out on the brass.
+
+In the spring a piece came away from the south rim. There was hardly any noise. The stool mender, who happened to be at home, took her tea across the street and lay down where her front door used to be. A long way below her a quantity of green wood was turning over in the air. Little scraps, catching an updraft, came almost level with her face. She recognized a bit of wallpaper by the blue sprig on it and made a grab for it, but missed. For a few minutes the air was full of blue sprigs. Then it cleared, and she could see snow on the younger mountains, and between two of them the glint of one of the seas.
+
+Behind her there was a dry, persistent sound. The old doorback had come across to see what she was eating. He had his one front tooth over the rim of her saucer and was working his way sideways round it, taking up the crumbs.

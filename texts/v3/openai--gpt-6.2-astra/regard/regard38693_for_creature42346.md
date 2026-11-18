@@ -1,0 +1,17 @@
+In a country with so few stones above ground, it was a curious thing that the power should have thought first of moving a stone. It could have lifted the pebble out of the pothole and put it beside the water, where it would have been a considerable object of interest. But it was on account of the pebble that the young runner had been able to keep its nose out of the water while it waited. There were days when the water stood much higher than on the day the girl put her hand in.
+
+The power lay down at the rim. It put no weight on the ground. The crabs went ticking through the place where its elbows would have been.
+
+From up there it could see what looked like a very good way out of the pothole. A shallow score left by the old gravel ran slantwise up the wall, almost to the turf. The power made itself small enough to go down by it. Coming up was another matter. With its cheek against the stone it could find no sign of the score. There was a great deal of sky on the side where it needed something to push against. It went back to the pebble and lay there a while, with the sky on both sides.
+
+That evening a runner came down the raw edge. It was an old one with a notch in one of its ears, and it did not descend into the cup. It drank from the little wet beard of roots that hung over the lip. In getting back it took hold of a loose skin with its teeth and drew a surprising length of it out of the bank. When the runner let go, the strip swung down and caught on the wet stone. Its lower end lay across the score. By morning it would be dry and curled up like a shaving.
+
+The power held it there. That was all it did for some time. The sun came up on its back. A white mouse went down the strip headfirst and came up tailfirst with a wet chin. Where the mouse had set its hind feet, a little brown dust worked out from under the strip. The power eased it away from the wall the thickness of a mouse's ear.
+
+There was a living joint at its upper end. In the course of that summer the joint put out a runner of its own, a pale green thing at first, blunter than a sewing needle. It grew down in the damp behind the strip. By the time the nights grew cold there was a narrow covered way up one side of the pothole, and the power could take its hand away. The pebble had not been disturbed. In bright weather you could still see it clearly on the bottom, except for a small brown corner that appeared to have been folded over it.
+
+The girl noticed the change. She lay for a long time looking into the cup, and saw nothing use the new way except an amber crab so small that it had some trouble getting over a grain of the brown dust. She tipped the grain aside with a grass point. The crab immediately went back to feel for it. She had not known that a crab would do that.
+
+It was several years before she saw a runner there again. By then she was taking the willow wand out to the crossing on mornings when her mother's fingers were stiff. Coming home one afternoon she lay down for a drink and found a little warm length pressed along the underside of the strip. She could feel it with the knuckle of her first finger. It was quite still. She kept her hand where it was until presently the warmth slid past her knuckle and up into the bank.
+
+She had been prepared, without quite knowing it, to lift it out between her hands as she had done before. It pleased her very much to find that there was no occasion.

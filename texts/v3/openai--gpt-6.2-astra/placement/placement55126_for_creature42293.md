@@ -1,0 +1,15 @@
+I think I would live at the bright end of the walk, where there is still enough light after supper to thread a needle. I would make the rounds of cloth that go under jars. There would hardly be a living in that. I would turn cuffs and put seats in trousers and shorten things for the next child. But it is by one of the rounds that I find my way there.
+
+They are made out of pretty nearly anything until the last turn, for which a piece of washed linen is best. I have one of my own with part of a stocking in it, and in wet weather there is a hard place where the heel comes round. I know to put that part forward, in the little hollow below the collarbone. Another person using mine would have a sore shoulder by the time she got up the outer steps.
+
+The girl brings me hers because it has begun to let out little tails of cloth. She waits while I undo it. A long tapering piece of her father's old shirt comes off, then a piece of skirt with the hem still in it. At the middle is a whole small round, finished and sewn up, evidently made for the girl when she carried a much smaller jar. Somebody has simply gone on winding.
+
+“Do you want this out?” I say.
+
+She tries it on the little dish in the shelf. It fits very well there. She goes home for the small jar, which they keep salt in now, and sets it on the round. She has washed the jar but hasn't got it quite dry; a few grains of salt come away on her fingers when she takes them off the handles. We stand looking at it. It is a very little jar indeed to have needed two handles.
+
+She wants the small round left as it is. For the new one we use the old wrappings and a strip of the faded stuff that hangs across my door in summer. There is plenty to spare at the bottom, where it trails on the paving and takes up the white dust. When it is done I go in for my broom. Coming out, I see her halfway home with the full-sized jar on her shoulder and both hands down, one of them picking at a bit of thread stuck to her skirt. I go on sweeping. She comes back presently to say that the new round wants a little more in it at the back. This is useful to know while I still have the door hanging down.
+
+For a while after that children bring me things to undo. Most of what is inside a thing is exactly what one would expect. A boy from the lower lane is quite put out to find that the feet of his rag donkey are stuffed with the same brown wool as its belly. I give him four hard ends of thread off a reel, and he sits on my step to work them in. Now when he walks the donkey along the lid of the cistern it has hoofs.
+
+I should like to be there long enough for the strip we cut from my door to fade on the other side as well, and for the girl to bring it back to me soft and quite without colour. By then I might have to take the sewing out to the shelf at noon to see the stitches. There is room there for my work in the little hollow and for a jar in the big one. When someone comes with two jars I can gather the whole business into my lap. It is no trouble; I have always held the scissors between my knees.

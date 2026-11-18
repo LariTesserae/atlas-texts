@@ -1,0 +1,19 @@
+In October the stairs get their handrail after all. A woman carrying a tool case slips on the turn and skins the heel of her hand. She is the electrician who comes to test the contactor. In the space on the form for the cause of the accident she writes that she reached for the rail. This is quite a good description of what happened, although the man who takes down the particulars has some difficulty with it.
+
+The rail comes in three pieces, wrapped in brown paper. For a week it lies on the inspection walk. The smaller shrew goes through one of the pieces twice. It is a poor place for hunting, but it offers a covered run of nearly eight feet in a direction in which there has not previously been any cover at all.
+
+The power that has taken an interest in the hall knows about the electrician's hand. It knows, too, the dimensions of the space behind the last socket. The space is about the size of a teacup and is mostly full of grass. When the shrew turns round in it the grass turns a little too, except for the few long stalks caught in the rough place where the drill came through. Nothing of this can be seen from the landing. From there the socket looks as if it wants cleaning out.
+
+On the morning the fitters come, the smaller shrew is asleep. One man unwraps the rail while the other goes up the steps with a bucket and a narrow trowel, clearing the sockets. There is a surprisingly good blue marble in the third one. He rubs it on his trousers and puts it in his pocket. At the turn he stops to let the other man get past with the long piece.
+
+What the power does is to bring the smell of the open bucket into the teacup of grass. In the ordinary course of things it would have arrived there a little later.
+
+The man's hand is resting flat on the wall. Something runs out over the back of it. He has time to feel four distinct pricks, as if somebody had taken a pair of dividers and walked it two paces over his skin. Then the little animal is down by his boot, and then it is gone. A stalk in the socket goes on trembling.
+
+He puts the trowel handle in, very gently, and feels it go through. When the other man comes back they have a look with the torch. There is the grass, disposed in a hollow, and one small white feather laid along the curve. The man with the trowel has used a feather pillow most of his life and for some reason it is the single feather that strikes him as funny. He calls the other man back for a second look.
+
+There is sound concrete a palm's breadth to the left of the hole. They fit a plate there. It is rather more trouble, and makes a considerable noise for part of the morning, during which the shrew stays behind the kiosk shutter with its nose tucked into its flank. By the afternoon the electrician can go down with a case in one hand and take the turn without having to change hands. If she looks over her knuckles at just that point she can see a wisp of grass. Generally she is looking at her feet.
+
+The plate is galvanized, with its lower edge bent out a little clear of the wall. In the first cold weather a cricket discovers the space behind it. For three nights there is a scraping at the landing loud enough to be heard from the street in the interval between trams. On the fourth night the smaller shrew comes out of its hole, goes a few inches in a direction it has never had much reason to go before, and the scraping stops.
+
+By then the two fans have joined. There is a low saddle of damp sand between them, printed over with the feet of frogs. The shrew still jumps on the outward journey. Coming home it sometimes stops in the very place where it used to have its belly in the air, and digs.

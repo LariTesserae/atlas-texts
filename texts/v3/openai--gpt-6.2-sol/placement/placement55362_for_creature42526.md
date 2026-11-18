@@ -1,0 +1,11 @@
+I think I would live just over the lip of the bowl, on the side you can’t see without putting your cheek in the water.
+
+At first I thought I would be the little bead of air in the folded leaf. I liked the idea of stopping there with the whole room going on underneath. But the leaf lets the bead go, and I find I want to know what happens in the room the next afternoon, when the ragged stem is gone and the snail has to find another one.
+
+I would be something that stays. A flat larva, perhaps, with a row of soft hooks under my belly. When I let go with the front hooks the water would lift me a little, and I could take what came over the lip: the white fleck, a shred of sheath, whatever was small enough to pass out of the bowl and not so small that it passed through me. I would know the room by what it let fall. A snail dropping would be a substantial event. A frog moving its foot would not be an event at all unless it dislodged something.
+
+The first time the bowl went quiet I would let go with all my hooks. I imagine this as a mistake I would make only once. There is a narrow shelf below the lip where I would fetch up on my back, and from there I would feel the water return before I could get myself turned over. It would come from underneath first, along the grain, cold on the parts of me that are usually pressed to the root. After that I would keep one hook in when the water stopped. In a dry week I might hang there a long time with the whole length of my back in the air.
+
+I wouldn’t see the crease on the stems. Once, though, I would find that one of my hooks had caught on something that yielded without breaking. I’d pull. On the other side of the lip a brown grain would come apart a little earlier than it otherwise would have, and I’d get a mouthful of silt. The thing in the bowl would have no more reason to remember this than I would have to remember which snail had fed me.
+
+Eventually I would have to climb out. I’d do it at night, up the underside of a pennywort stem, carrying a little water in the seams of the skin I was about to leave. I don’t know what I would make of the marsh from up there. The room would be almost directly under me and I would hear none of it. I think I would stay on the stem until my wings were dry, with my feet spread around it in the old way, though there would be nothing trying to wash me off.

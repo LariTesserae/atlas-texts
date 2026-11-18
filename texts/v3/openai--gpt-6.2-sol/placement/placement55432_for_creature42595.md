@@ -1,0 +1,15 @@
+I think I’d be a shoemender, two doors up from the station, on the street the crew use when they go for lunch. From my bench I could see the top of the handrail and the men’s heads as they went down. Coming back, they stopped with their heads at pavement level to finish whatever they were saying. They could hear each other there without having to raise their voices, but they hadn’t quite come out into the street.
+
+I’d know more about the station from their boots than from anything they told me. The man who read the lower board wore out the toes before the heels. One of the fitters had a little crescent cut into the side of his left sole, in the same place on every pair. He said it was from propping open the office door. I could have put a piece of rubber on the door for him, but then he’d have had to find something else to do with his foot while he stood there drinking his tea.
+
+One afternoon he’d bring me a boot that clicked. I’d find a loose nail in the heel and pull it with the pincers. When I set the boot down, it would click again.
+
+There’s a way of hearing where a noise comes from in a shoe. You hold it upside down, with two fingers inside, and push against them with your thumb. A loose shank has a wide click you can feel almost to the toe. This would be a much smaller sound. I’d ease the heel off and find, between two layers of leather, the flat head of a drop of water. It would be quite warm. By the time I’d got something to lift it with, it would have gone into one of the old nail holes.
+
+I’d put the heel back, leaving that hole empty. The fitter would try the boot on, walk to the door and back, and say that was better. Neither of us would hear it while he was wearing it.
+
+I don’t think I’d go down to the station to see what I’d found. Not at first. I’d have a shop full of things that made noises they weren’t supposed to make, and most of them would turn out to have a stone in them. But after the motor changed over, I’d get into the habit of taking my tea out to the handrail. I could set the cup on the square end post and look down far enough to see the second tread.
+
+People coming out almost always managed to step squarely in the water. They knew it was there, too. They’d look down, put a foot in it, and come up onto the dry pavement. For the first few paces you could tell which of them had been down to the well and which had only gone as far as the roof. The ones from the well put their whole foot down. The others were still trying to keep their heels dry.
+
+I’d be the person who knew that and sometimes got it wrong. I’d call out that a boot was ready and the wrong man would turn. And occasionally, after I’d locked up and taken the chair in, there’d be a click from somewhere under the bench. I’d leave it till morning. Leather makes all sorts of sounds when you’ve spent the day persuading it into a shape.

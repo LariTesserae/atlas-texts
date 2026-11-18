@@ -1,0 +1,13 @@
+The power came to the dish where the knock had moved a foot downstream. It lay down beside the old shelf and waited through several knocks before it understood that the mouths were still opening to them. The sound came through the stone as before. The water did not.
+
+There was a split beneath the dish, and the power could have closed it. It followed the water through the split first. At the new narrowing the skin was thin enough that each time the tuck gave, the whole sheet drew taut. In a pocket just beyond it there was a white knot with one lip spread against the wall. The other lip lifted when the pulse came. It had not yet secured itself well enough to withstand a steady flow.
+
+The power went back to the shelf. There was a grain of grit under the lower lip of one of the clear animals. Water was getting through there, and the animal was spending itself lifting a lip that no longer drew anything in. The power took out the grain. For a long while nothing happened. Then the lower lip came down flat, and at the next knock a little gray passed into the body. There was food in the seep still, though not much.
+
+Farther along the shelf a pebble had worked nearly free. The power put a finger against it and felt how little it would take to hold it there. It could have held it there forever. Instead it waited for the pebble to turn. When the body puckered and let go, the power kept it wet in the hollow of its hand and carried it to the bare dish where the mica ran against the ripples. It opened its hand near the bottom, on the side where the water went down.
+
+The knot went once around the dish. On its second circuit it passed close enough to the opening to go in, but did not. The power kept its hand still. On the third circuit the knot caught for a moment on the lip of the seam, then slipped out of sight.
+
+There were other pebbles coming loose under other shelves. The power went to look at them. Some it left where they were. One it turned back over; there was still a socket for it, and the mouth had not stuck. It did not make the sockets deeper.
+
+Toward evening it came to the ledge on the far side of the rise. It watched the pale spot darken and whiten. Under the spot the skin drew in a little as the ring went by. The motion was too small to make a sound, even through the stone. The power had spent much of the day listening for knocks. It stayed there until dark, with its hand flat on the ledge, learning what it had missed.

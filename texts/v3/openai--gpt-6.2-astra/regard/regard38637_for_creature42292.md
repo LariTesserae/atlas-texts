@@ -1,0 +1,27 @@
+The first use the power made of its head was to turn it. The second was to keep it where it was. There was a considerable temptation to go round the last rank of houses and look for the girl. This would have shifted her measure just when she meant to use it again. The power stood with one heel against a little ridge in the pavement and waited.
+
+The next note was farther away. So was the next. A quantity of air came out among the reeds with no note in it at all, and the power had the good sense not to take this for discouragement. Presently the note came back to the place it had started from, very exactly. She had been finding out which way was which.
+
+By the time she had finished for the afternoon there was a line of red grit along the power's instep. It took its feet out of the water one at a time, so as not to send a wave among the reeds, and went down by the long stair.
+
+It had been prepared to find some very grievous things in the city. It found some; but it was rather poor at guessing which they were. On the wide landing it had a notion of taking the pea out of the old man's knee. It could have done it as easily as picking a stone out of a shoe. While it was considering this, the woman in the green quarter sent up what she was generally supposed to send him, and the power, being on the spot, had the benefit of the exchange. It was not an easy knee. It was the pleasure of a woman who has heard a familiar step on the stair and has put down her work. The difference this made to going down the rest of the steps was quite as great as had been reported.
+
+In the sleeping square it took the middle of the pavement and went softly. It let the plum go round.
+
+It came back to the ridge the next day. It had taken care to bring the same head. For nearly a month this was the extent of its interference, and a person watching from the opposite side of the street might reasonably have thought it was doing nothing at all. The girl would work for a while, sometimes coming much nearer, sometimes going a surprising distance away. Once the power turned too soon, at a noise made by a strip of reed skin pulled taut across a runnel. There was a little succession of dips in the marsh, quite unlike the deliberate depressions she made in drawing breath. It had not known till then how she laughed.
+
+What troubled it was that she must wait for its visit. It tried leaving behind a pair of hollow stones which gave, to its own hearing, quite as good a sense of distance as a head. The girl ignored them. A head, it appeared, had to turn because it had heard something. The power took the stones away. There were already plenty of stones.
+
+One afternoon it stood on the ridge a long time without hearing the whistle. The marsh dimpled and the ceiling puckered. A bead on the wall beside its cheek ran upwards a little way and stopped. At last it became aware of a small warm pressure in its left ear, such as one feels when a child who means to tell a secret gets too close in the telling. It nearly turned. Then it understood that the girl was not making a sound for it to hear. She wanted to try the hearing.
+
+It had lent its ears readily enough when lending them had meant listening. This was a different matter. It let her have the left one first. For a moment the whole weight of the falls was on its right, and it put out a hand against the wall. Then it let her have that one too.
+
+Nothing that happened next was audible to the power. It saw the reeds stand apart at a place not much wider than a wrist. It saw, through a patch of clear water, a pucker in the green roof below; only now the two edges of the pucker were dry. A curl of reed down caught on the lower edge, clung there, and flew off. A little later it felt both ears grow hot, as ears do on coming indoors out of bitter weather. The bellow of the city came back so abruptly that the grit under its instep seemed to jump.
+
+For several days afterwards the girl did not call on it to turn its head. It stayed away from the ridge, though it did not go very far. There is a niche in the first street from which one can see a piece of the marsh reflected in the water without seeing the marsh itself. The power sat there, enjoying the feeling of coat buttons against its back. On the fourth day there came a whistle from behind the houses. It was a rather poor one, with a furry edge to it. The power stayed quite still. There came another, differently pitched but furry in precisely the same way. Nobody who had heard the pure thread of sound in the great interior falls would have thought much of either of them.
+
+Then, in a perfectly ordinary voice, from one place among the reeds, the girl said, “There.”
+
+She has not taken to speaking much. She goes visiting a great deal now, particularly in the older wards, where it gives immense satisfaction to a squareful of people to produce, all together, a single bad whistle. The power is sometimes asked to listen. It has other business on the mountain, but it keeps the head at hand.
+
+There is one small alteration in the first street. Against the ridge where the heel stood, the red grit has gathered and hardened into a pair of low crescents, a little too far apart for the feet of a child. Water goes over them so smoothly that without the whisker of white light along each crest one would never know they were there. From time to time somebody stands in them. It is a good place to hear if anybody wants you.

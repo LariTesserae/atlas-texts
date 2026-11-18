@@ -1,0 +1,23 @@
+The power went with one of the young ones to see where it came down.
+
+For a long way there was nothing under it but dust. It kept one skirt rather fuller than the other and so went round very slowly, showing now its parting and now the impression of the shelf. Once the power, seeing the mountain come into view again over the little animal's back, supposed that it wished to go home. But it went on turning. It was letting itself down by circles, as the people below let a heavy pot down a well, with a turn of the rope about a post.
+
+It came down on the upwind side of a house. It struck the wall hard enough to leave a little oval in the dust and fell the height of a hand before its belly took hold. Then it put its skirts away. For the rest of that evening it did nothing at all, unless the gradual disappearance from its belly of three chisel marks can be called doing something.
+
+The houses in that part of the country are built of earth. Where a roof beam goes through a wall there is usually a finger's breadth of shade beneath it, and in this small place the wall keeps the warmth of the day almost until morning. There were knockers under several of the beams. The people knew them quite well. They called them lintels, which was also their word for a person who stays to the end of a visit without finding anything to say. Nobody there had ever heard one knock. Earth is a poor carrier of that sound.
+
+In the night the small animal made its way up to a beam. It had acquired on its belly the print of a barley awn that had been in the wall since the house was made. When a white gnat lit beside it, it ate. The power stayed until a second gnat came and then went back to the arch.
+
+It took some pleasure in going back. There were things it would have missed had it stayed below: the sudden smell when two leaves chafed through in a gale, and the sight of a man on the shelf solemnly holding a tray inside out for an animal which, on this particular afternoon, had no appetite. The man waited a good while before he put it back.
+
+What the power did there came about in the cold season. The fork worked loose. In the mornings a white line showed between the wood and the upper lip of the fissure; towards evening it went away. The knocker on the fork had taken to lying with one half of itself on the stone. It no longer reached the innermost of the mends when the pocket was turned out for it. The gatherers noticed this and passed a length of cord through the wicker and round a knob of rock. That would save the tray. As for the fork, there was a good new one ready on the shelf. The difficulty was to get the old animal off without tearing its belly. A wet finger would not go under it. At the first touch it spread.
+
+One morning the wood came free while there was nobody on the shelf. The tray swung on its cord and sent two beads into the sky. The fork started after them, with the knocker drawn up tight in the crotch.
+
+The power caught the fork. It was the first time it had put a hand to anything on the mountain, and some of the hair came up between its fingers, wonderfully fine. It laid the fork in the back of the shelf, where a person feeling about for the new one would be sure to find it. Then it sat a little way off. It would have liked to feel the hair again.
+
+The woman who came up that day fitted the new fork and slung the tray. She took the plugs out of the pocket, turned it inside out and held it against the old fork. A little red presently began to show. When she had done this she looked for a place for the old fork and found one between the new prongs, where it lay crosswise, too broad to fall through. She lashed it there with the cord that had saved the tray. The result was a rather clumsy affair to look at. The tray hung a little lower than before and turned in the wind, and for three days it caught nothing.
+
+On the fourth day it caught a plug. At the stroke the knocker reached down from its piece of wood and went feeling along the weave. A child on the shelf saw how far it had to stretch and put a thumb under the pocket to lift it. Quite a quantity of the red meal came loose and ran into the crease of the thumb. The lip followed it there. The child sat still, with an expression of considerable difficulty, until the crease was clean.
+
+By then the power had gone on down the arch. One of the long dun beasts was asleep with all its feet loose except the last two. Below it, out in the enormous wash of light, a pair of clear skirts was just visible, going round and round.

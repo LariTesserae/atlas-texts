@@ -1,0 +1,11 @@
+The power did not take a piece of the roof out into the day. It could follow the light the other way, in past the edge of the scar, as far as the side of a cell on which the light fell. There was no part of the plain visible from there. When the leaf below turned, the clear grain brightened through its whole thickness and went dim again.
+
+On the upper face of the ledge there was a shallow runnel. In some rains the water came down it fast enough to go clear over the lip. In others it scarcely ran at all; the drops made dark pennies on the stone that did not quite meet. It took a rain of some length to join them. Then, near the head of the runnel, a little water went sideways into a bedding seam. The seam passed above the scar.
+
+The power let the summer go over. The four cells were dry at the end of it as they had been at the beginning. It stayed through a rain that freckled the slab and another that washed the dust out of the runnel. At last there came a quiet afternoon of rain. Water went into the seam. By evening it had wet the coat of the four cells, and in the morning there was light.
+
+Close beside them there was another crotch, with a clear grain on the outer side and a little room behind it. Water coming along the seam always passed just above it. The power drew a drop down the short distance between. It drew it slowly, so that the water clung to the stone all the way down. Where it touched the coat of the four, it stopped drawing. There was a wet way round the grain now, and no current in it to carry anything off.
+
+For two mornings there was no change to see in the new place. On the third there were two cells there, side by side. Presently the face of the ledge dried, and after that the seam dried too. A little water was left in each crotch. The new one, being a shade farther in, kept it half a day longer than the old.
+
+The power did not open the stone to see how green it had become. Below it the branch moved out and back. A grain struck the curled edge of salt. At the rear, where there had been no want of anything, the narrow space between the red stone and the red sand remained just wide enough for the next grain to fall.

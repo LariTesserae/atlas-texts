@@ -1,0 +1,17 @@
+I would be just outside the enclosure, trying to pull a leaf out from under somebody who had gone to sleep on it. It would be quite a good leaf and there would be any number of others within reach. This particular one, though, I would have folded myself. I would like to see how it came out.
+
+It is the person with the nicked ear who has my leaf. I can tell by putting a hand in through the canes and finding the little square of rough skin on the elbow. There is nothing the matter with the ear on that side. On the other side the ear is excellent for drawing one's attention to the fact that it belongs to a particular person, provided one can see it. In the dark an elbow is as good.
+
+I work the leaf a little farther out. The elbow comes down into the hollow I have made, and there is the matter settled for the night.
+
+My enclosure is the one farthest from the wet place. I have to go some distance in the morning to hear the work the others have done. What reaches me where I lie is the sound of the leaves I am folding. I do it by lying on them. There are people who can nip a leaf while it is hardly out of its sheath and give it the right turn in a moment. Mine have to spend two or three nights with me, growing against the outside of my leg. I turn over quite often, and in consequence most of them come out with a passage of considerable ingenuity in the middle of an otherwise ordinary trough. The water goes round the passage. There is no reason why it should not.
+
+The leaf under the elbow is the first straight one I have made in some time.
+
+In the last of the green light I can make out the soles of the child's feet. There is a little movement in one heel, a settling movement. Presently the child's hand will come away from the shoot. I get down beside it to see. The shoot is so fine that what I actually see is a drop of water halfway up the finger, shining where there ought not to be anything to hold it. I could put a trough there. Indeed two of the rather ingenious kind, laid with their bends in opposite directions, would make a cradle in which the shoot could stand for days.
+
+There is a difficulty with getting up to fetch them. The child has found the loose skin at the point of my chin and has taken hold. Not very hard. I could get away at the cost of waking it, which seems an extravagant price to pay for the privilege of going to lie down somewhere else. I let my legs out behind me. The nap is wet here. In a little while it is wet and warm.
+
+I had understood, hearing the little cough in the afternoon, that the joke was about the length of the fall. From down here, with one ear against the rootstock, I hear something else. At the far end of the run, after the last tick, the joint of a cane gives a minute complaining creak. It is exactly the noise the person with the nicked ear makes in getting up after meals. I have to take my chin out of the child's hand after all. It is exceedingly difficult to laugh without using one's chin.
+
+In the morning the child is gone. On the end of my chin, if I run a thumb over it, there are four little dents. The shoot has its bend. And the straight leaf, which I remember before I have got all the way to my feet, is standing against the outside of the enclosure, full of the first cool water. There is a shallow place halfway along it where the elbow lay. It holds rather more on account of that. I drink from the near end and leave some in the shallow place. By the time I have folded up my legs sufficiently to go in to breakfast, the lizard has both its front feet in it.

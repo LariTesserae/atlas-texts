@@ -1,0 +1,23 @@
+I think I would come in with a complaint about a pillowcase. I would be the one at the laundry who took the bad packets back. There is a half door for this, separate from the counter where you collect your washing. The board on top of the half door slopes towards me. A person setting down a damp parcel and taking his hands off it finds that he has given it to me, which saves a certain amount of discussion.
+
+It is quite possible for a sheet to go into the paper dry, come out wet, and yet for there to be nothing wrong with the wrapping. People hang their parcels on the hooks in the lifts to leave both hands free. A hook will make a hole so small that when the paper comes off and the strain on it is let go, you can spend the morning looking for it. I have a piece of black glass over which I stretch the wrapper as nearly as possible to the shape it had on the sheet. In a good light the hole shows black, and sometimes there is a little crescent of green paint beside it. We have asked the lift people several times about those hooks.
+
+The pillowcase was different. It came back in the hands of an old man from the seventh street who said that one side of it had been wet and one side dry. He had opened it less than a minute before. Indeed he had left his wife in bed holding her head up off the pillow. I gave him a fresh packet. He tore it open on the spot, felt both sides, and hurried away with the case under his coat. The inspector’s daughter, who had got her turn at the belt by then, picked up the two wrappers. She was careful to put a thumbprint in the wax of the new one so we could tell them apart.
+
+There was nothing to see against the glass. We spread the first pillowcase out. By this time it was damp everywhere, of course. The girl and I stood looking down at it with the sense you have sometimes on arriving just after an accident, when the people who actually saw it have places to get to and you find yourself indispensable and of no use at all.
+
+“Did he say which side?” she asked.
+
+I said he hadn’t. After a bit she put her hand into the case. She had thought of a side I hadn’t thought of. Inside, up at the sewn end, there was still a little warmth.
+
+We went through to the rollers. The girl had to show me how to stop the feed without stopping the belt; I had been taking work back for eleven years but the machines had been changed twice in that time. We put a case through. It came out flattened to a remarkable degree. You could see the impression of the stitching on the lower layer, as if somebody had been writing on the top page of a pad. It was all quite dry. The next was dry too. I began to be anxious about the half door, where I had left nobody, and could see that she was anxious about it on my account. I went back.
+
+At the end of the shift she brought me a tin lid. On it was a quantity of clear water, not enough to run about when she walked. There were two screws in it. They had come out of the guard above the folding table. Once the rollers had been going for a few hours the underside of the guard grew warm; the heads of the screws, which went all the way through to a cold bracket, did not. It took most of a shift for a drop to gather on either of them. She had lain on the floor under the empty table to see them. One drop had been long enough to have the belt going along upside down in it.
+
+We had the bracket seen to. It was some days before it occurred to me to ask her what had made her look up there.
+
+“I didn’t,” she said. “I was looking for hem.”
+
+She had expected to find a little of it on the cold lip of the table, and when she got down there the screws were what she saw. This disappointed me ridiculously. I had already told the story twice, making rather a point of her putting her hand inside the case.
+
+In fine weather, which at our window means the cloud is low enough for us to have reflected light off its upper surface, I can see the heads of those screws from my half door. They have white insulating buttons on them now. The girl works elsewhere on most days. From time to time somebody brings me a damp parcel and glances past my shoulder at the belt, hoping, I suppose, to catch the machinery in the act. I used to turn and look too. Now I ask them to show me how they opened it. There is generally a moment when they need another pair of hands to hold the paper as it was, before anything went wrong. That is where I would be.

@@ -1,0 +1,13 @@
+The power came in a dry year. By then there was a white mark on the legs of the waders where the little gray animals had been holding on. In the afternoon, when the stone was hottest, a wader sometimes lifted one foot and then the other. It did this slowly enough that nothing had to let go.
+
+There was still water under the basin. It lay in a slanting crack with no opening low enough to let it out. The power followed the crack to its lower end, where a flake of stone, thinner than a nail, stood between the water and the air. It loosened the flake. No more water came out than would have come out if a root had grown there.
+
+For most of the morning the wet went no farther than the underside of the stone. At noon a dark line appeared on the basin floor. It ran downhill a little way and stopped. A wader came over and put one foot in it. The foot opened on that side only, three of its toes spreading while the others remained folded. One of the gray animals came down to the joint, waited, and went on. Its back was dry enough to show pale as it crossed the foot. In the water it went dark from front to back.
+
+There was nothing yet on the wetted stone for it to eat. It spent some time there all the same.
+
+By evening the seep had reached a shallow hollow. Two waders stood in it. A third came to the edge and drank, then walked back out to the old waterline, where there was room to lower its body on the stone. The small animals on its legs went on holding through the first part of the night. When the stone cooled, they began to come down. Some went toward the seep. Others fitted themselves under the breast of the wader, where it had brought warmth down to the ground.
+
+The power stayed until the rain. It did not move the cloud that passed below the rim on the first day, or the one that passed on the second. When rain did come, it fell on the far side of the basin first. The waders heard it before there was any change in the light where they stood.
+
+For a while the little channel could still be seen under the rising water. There was a thread of red grit along one side of it, and at its mouth a loose flake that stirred whenever a wader set a foot down near it. By morning the flake had washed into the pool. A gray animal settled on it. The upper face had been dry for a very long time; the underside already had something growing on it. The animal went around the edge and began there.

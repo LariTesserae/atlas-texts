@@ -1,0 +1,13 @@
+Under the bench nearest the pumping hall there are six small mouths. At first they look like holes left by something that has drawn its feet out of the mud. Then a grain of sand comes to the edge of one and stops. The rim puckers. The grain goes on its way, but the brown flake that was riding on it is gone.
+
+The mouths belong to a single animal lying flat in the sediment. Its skin is thin enough to show the red threads that run from one mouth to the next. At the iron foot of the bench the threads come together in a knot no bigger than a pea. This is the part that withdraws when a boot comes down nearby. The mouths close in order, starting at the bench foot; the last one may still be feeding after the first has disappeared.
+
+There are others in the ward. They do well in the shallow channels at the iron feet of things. The thickest one is in a downstairs kitchen, where it has grown around a table leg and up a split in the wood. It has a mouth on the underside of the table. Nothing much passes that high except during the evening turn, when the grit comes out of the letterbox. The mouth opens then and stays open long after the water has cleared.
+
+In that kitchen you can see something the animals do that you cannot see in the street. Leave a lamp on the draining board and the little heap of grit beneath the letterbox will gradually give way to the bare tile of an hour before. At the edge of the light, the animal comes down from the table. It does not let go all at once. One red thread lengthens until its end finds a joint in the tiles; another follows. For a few minutes it stands clear of the floor on these two threads, with the rest of its body drawn up between them. You can put a finger in the arch without touching it. By then the animal is back under the table, and if you feel for it there you will get nothing but a little grit under your nail.
+
+The young have no threads. They are white and hard, each with a shallow cup that has to be kept open to moving water. Most are carried into the channels beside the benches. Some lodge in the lettering on the pump housings, where they grow slowly: the water there is warm, but there is little in it to eat.
+
+On the underside of the flat white stone at the curb there is a cup that has grown as wide as a thumbnail. It is too broad now to be washed out of the hollow where it began. Every evening, when the stone rolls, the cup gets a few minutes of the faster water outside the ward. A thread has begun to grow from it. In the morning the thread is always found tucked in the hollow again, with whatever it caught in the night folded into it.
+
+Beside the cup is an empty one, worn flush with the stone. When the stone is turned over, it is hard to tell which has been there longer.

@@ -1,0 +1,11 @@
+I’d start at the lip, I think, where the grass is dry enough to sit in. I’d like to be able to hear the hollow and still turn my head and see what weather was coming. But the place I keep going back to is under the smallest tree. Not the pocket where the frog used to sit. A little lower, in the clay, there’s a passage left by a dead root. It’s wide at one end and at the other not much wider than a hair. I think I’d be the air in there.
+
+In the afternoon the tree would warm on the side that faces out of the hollow. The warmth would take a long time to reach me. Ants would come partway down the passage and turn around, scraping just enough clay off the sides that from one summer to the next I’d have a little more room. I wouldn’t know about the clouds. I’d know wind by a slight lifting of the dirt at the mouth, and the frog by a tick in the dead root, which is still there in places, thin as the skin of an onion.
+
+When the water goes quiet, I don’t get the quiet a person gets beside the seam. I get the little sounds that were going on underneath it all along. A root gives a dry snap. An ant works a grain loose and drops it. Once, something heavier settles on the clay above me and stays there through the whole silence. For a while afterward I’d take every settling of the clay for its return.
+
+The first water doesn’t come in at the wide end. It comes through the clay itself. One wall goes dark and the passage gets narrower. At the mouth there’s still a crumb of dry earth with the print of an ant’s foot in it. I’d have thought, from down there, that this was the part that would get wet first.
+
+By the time the runnel reaches the tree, there’s hardly any room left for me. A little water stands in the old frog’s pocket. A piece of moss floats in it, green side down. At the hour of the call, the frog knocks from the seam and the hollow makes the knock larger, as it always has. Then, well after the sound has died, I come up through the clay in a bubble. I turn the moss over.
+
+The frog doesn’t call again that evening. There’s just that small piece of green, right side up in the water.

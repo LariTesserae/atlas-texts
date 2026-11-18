@@ -1,0 +1,7 @@
+I’d be in the runnel that doesn’t quite reach the next pool. In the morning there would be two inches of dry stone between them. By afternoon there might be one.
+
+At first I thought I’d be a backswimmer. I like the idea of carrying a little air with me, and of having wings that are no business of the pool until the pool is gone. But I think I’d be something that couldn’t leave. A bladderwort, perhaps: the loose piece that catches on a sedge stem when the water falls. From above you’d see the stem and not the thing it had caught.
+
+In a wet week I’d put up a yellow flower. A rail chick might brush it with the side of its head without breaking stride. I’d go on floating below, with a shed wing caught among my strands for no reason useful to me. By evening the wing would be gone. The flower would still be there, tipped a little farther over.
+
+What makes me want to be there is the first water across the gap. I had imagined it coming from the far pool, but rain would be falling into both, and for a while there would be no telling which was filling which. The strand caught on the stem would lift at its free end. A minnow would come through before there was room for it to turn around. It would push me aside with its nose, and for the rest of the afternoon I’d lie on the other side of the stem.

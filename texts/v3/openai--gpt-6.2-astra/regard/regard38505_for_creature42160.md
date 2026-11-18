@@ -1,0 +1,17 @@
+In the last week of winter the wind brings up a piece of blue thread. It is wool, a little thicker than the grasshopper’s finest bones and a great deal longer than anything else under the flake. One end catches in the salt. The other works its way in with the beetles until it lies in a loose crook below the six egg skins. No one can eat it. A mite spends the better part of a morning going up and down one of the twisting blue hairs.
+
+The beetle with the nick in its case puts a hind foot through the crook. This is of no consequence until noon, when the beetles at the seam begin to move and take the beetle with them. The wool draws tight behind the last joint of the leg. The beetle takes five or six more steps. Then its back end slews round and the ones coming up behind go over it.
+
+By evening it has got itself on its side in one of the hollows of the floor. It can reach the thread with its jaws, but every time it takes hold it pulls its own foot up against its mouth. It lets go and spends a while washing the foot. Then it takes hold again.
+
+The power that has been attending to the pass feels this as distinctly as the woman down at the quarry feels a hair of her own caught in the hinge of her spectacles. It attends for a while longer. The beetle leaves off pulling when another touches it; as soon as the other has gone by it sets to work again. In the quiet after the mill stops, the wool makes a small sound on the stone.
+
+There is a way to lift the flake. The power knows where to put the weight of a thumb and where the purple stone would part. But the six grubs are on the underside, and the air outside is cold enough to take the skin off an eye. There is also a way to draw the thread out by the end that shows white with salt. For that it would be necessary to draw the beetle the whole length of the chamber by one leg.
+
+It gives the wool a little slack instead. No more than would come of a sheep moving its skin under a hand. The beetle goes through the familiar business of getting the hind foot up to its mouth, and this time the foot comes all the way. It draws each of the little joints in turn between its jaws. The thread stays on the floor.
+
+For most of the night the beetle remains on its side. One hind leg sticks out at an angle, working at intervals with nothing under it. Towards morning the grub in the grasshopper thigh sets its hooks and draws its head in hard. The leg rolls a quarter turn downhill. This puts a good rough ridge within reach of the beetle. By the time the mill starts there is an empty hollow with a crook of blue wool in it, and the beetle is up among the others with one foot rather tender to stand on.
+
+The power stays a while. Out near the light a fly strikes a line, and the spider goes to it. It is a long business for the fly. The power attends to it too, and to the pale abdomen, nearly flat after the winter, through the skin of which a little colour slowly comes.
+
+Later there is sun on the lip. The wool has begun to come to pieces from the rubbing of all the backs beneath it. A single blue hair rides out on the nicked wing case. In the stripe of daylight the beetle stops and puts its hind foot up over its back, a considerable reach. The hair comes away. It goes off up the pass on the wind, blue for as far as it can be seen.

@@ -1,0 +1,11 @@
+I’d be on the east side of the basin, low enough that noon would pass over me without a change in temperature. I’d know the birds by the short interval between the pressure of their feet and the scrape of a bill. The scrape would always be on the same side.
+
+At first I think I’d be one of the white things rubbed loose. There must be a moment when it has let go of the feather but hasn’t yet found the wood, and its hooks are open on nothing. But I keep coming back to what it lands on. I’d be the bit of branch the bird uses, just above a fork where the bark has worn smooth.
+
+The rest of me would be under leaves. I’d have a root in the wet black soil and another running along the underside of a slab, where there’s nothing to drink. In a good year I’d put out a pair of leaves beyond the fork. They’d last until a bird wanted a better footing.
+
+One evening a white animal would come off on the wrong side of me. It would go down instead of up, feeling its way over bark no bill had polished, until it reached a drop hanging underneath. It would feed there for as long as the mist came over the rim. When the drop grew too heavy, it would put its front hooks into the bark and let the water fall away from its mouth. The next drop would begin in nearly the same place. I’d have grown that way for years without there being anything to see in the shape of the branch.
+
+Then one winter a young flat animal would get a knee into the fork. It would pull back, rest, and try again. On the third try I’d split. The polished end would go off caught against its leg, knocking on the stone at every other step. The white animal, if it was still there, would go with it. I wouldn’t know where either of them ended up.
+
+In spring the birds would still come to the break. For a while they’d wipe their bills on it, though it would be raw and fibrous and poor for the purpose. One would leave a short feather snagged there. I’d hold it well into summer, long after the birds had found a smoother branch, and below it, on the side nobody used, I’d put out a leaf.

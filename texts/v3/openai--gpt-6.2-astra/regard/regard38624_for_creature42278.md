@@ -1,0 +1,17 @@
+There was still the matter of the hour. The woman had put down on her sheet that the cloakroom was shut from eight ten to nine five, on account of a bird. The sheets went to the district on Fridays. At the bottom of this one there was a space headed *Delay to work*, in which she had put fifty-five minutes. She had got a good deal done through the kitchen in that time, but the cloakroom floor had certainly had to wait.
+
+The power that had been watching the place had liked that hour particularly. It could have brought the water back under the brace. There was a vein in the rock which, allowed to open by the breadth of a hair, would have let the run behind the bakery down into its old bed. But there were caddis there now, behind the bakery, and the man who took the tins out to cool on the iron rack had heard a dipper singing for the first time in his life. As for the young bird, it had found the water.
+
+What the power did concerned the sheet. It did not change a figure on it. It arranged that when the woman took the first car on Monday, the person whose business it was to read the sheets should be sitting opposite her. Ordinarily he took a later car. On this occasion he had woken early, pleasantly and without alarm, and found he had no wish to go back to bed.
+
+He knew the woman by sight. They had been riding over the flats for some time before he thought to ask her what one did for fifty-five minutes with a bird.
+
+“Mostly you keep people from coming in to help,” she said.
+
+He thought this over. He had two small boys. He could very well imagine the business of keeping them from coming in to help. Presently he asked her about the steps, which figured a great deal on the sheets and which he had always understood to be tried with a stick. She showed him with her foot the way one tried a tread first at one end and then at the other. A stick would tell you what was underneath but not what would happen with a child on it.
+
+At the school he got off with her. There was a quarter of an hour before he need take the next car. She let him do the west steps, going after him to make sure. At the east steps she put a finger to her lips. They stood there with the district bag between his shoes and listened to a considerable quantity of song issuing from a space into which he could not have put the bag.
+
+In the autumn a new run of sheets came from the printer. There was no great change in them. Where the old ones had said *Delay to work*, the new ones said *What needed doing?* There were three lines for the answer instead of one. This was of some use throughout the district, particularly to the people who looked after the empty exchange in the lake. It had never been easy to say what delayed the work in a place where, according to the office, there was no work to do.
+
+The woman did not know that any power had taken an interest in her. Neither did the man. He sometimes took the early car now, though not often, as the boys liked him to be there when they woke. The water stayed behind the bakery until well into September. By then the young dippers had gone their several ways. On a morning of low cloud the woman, trying the steps at the south edge, heard one below her. She waited with her weight on her back foot. When it had finished she put her foot down, and the step held.

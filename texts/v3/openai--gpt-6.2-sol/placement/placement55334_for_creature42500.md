@@ -1,0 +1,7 @@
+I’d start at the sill. It’s the one place where you can look out of the hollow without looking up, and for a while I think I’d mistake that long view for somewhere to go. But the place I keep coming back to is the shelf that sticks out by a finger’s width. Under it, there’s a patch of limestone you could run a hand over without ever touching the face that gets the light.
+
+I’d be a grain of that limestone, still attached. Water would reach all but one side of me. On that side I’d be continuous with the shelf, and through the shelf with the wall. A little way in, where the underside is rougher, the young animal would have settled. I wouldn’t be near enough to shelter it. From the pit where it settled, I’d be in the direction of open water.
+
+Then one day I’d come loose. I’d like it to happen while the machinery was off, though of course that’s a preference I can only have from here. I’d strike the shelf below, once, and land in the thin sand at its edge. For the first time all my sides would be mine, and two of them would be pressed against other grains.
+
+From the middle of the hollow my fall might be audible. Where I landed would be too small a distance to see. The young mouth, if it was open, would take in water from the same side as before. A little farther from the wall the sand would still be smooth. I’d be near enough to it now to find that smoothness was something the grains did together, with no smooth grain among them.

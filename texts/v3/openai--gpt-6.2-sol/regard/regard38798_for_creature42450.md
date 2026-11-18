@@ -1,0 +1,11 @@
+The power watched the grazer through several afternoons before it did anything. At first it mistook the animal’s stillness beneath the leaf for rest. Then it saw that one of the short feet was moving all the time. There was a place for it in the roots when the water stood high. When the water fell, the stem drew the roots tight against the stone, and the foot came loose.
+
+A thin piece of the crest had split off that winter. It lay on edge a little way down the slope, with the white of the break still showing. The power waited for the small wash of water that crossed the ridge at dusk. As the wash came back it lifted the thin stone, and the power let it turn a little farther than it would have turned. It settled flat in the roots. One corner projected no more than the width of a leaf.
+
+The next afternoon the grazer went up by its usual route. Its short foot passed over the corner twice before coming down on it. The other short foot went on feeling about for a while. Then it folded in under the animal’s side.
+
+The dry leaf was no nearer. Its bitten edge had curled until the red rim could only be seen from above. The grazer stayed through the falling of the water. From where it stood, the underside of the surface showed the leaf whole, including the part that was gone: the curl hid the bite in the reflection. Now and then the reflected leaf and the real one parted, and a little sky showed between them.
+
+In the days that followed, the second leaf opened crosswise to the first. Its outer half cleared the water. The inner half lay in it, and along that half a fine white growth appeared. The grazer found it in the morning, when it had always gone down among the roots before. It ate along the wet edge and turned back without trying the dry part.
+
+Later in the season the power came to look again. The little stone had disappeared under new roots. A leaf had opened in the air on a shoot farther along the crest, and there was no way to it from where the grazer stood. The grazer was not looking at it. A flake of old leaf had caught under its margin, and it was lifting one foot at a time to let the water take it. The power stayed until it came free.

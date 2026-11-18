@@ -1,0 +1,21 @@
+The thing on the tail is a grazer. It has no particular use for a fish. Its way, when a comb comes through the moss, is to shut its mouth on the first thing that goes by and be carried to the uncombed side. After three or four turns of the stem it lets go. The little fish continues to go round with its tail bent in the expectation of a weight. By morning it has come straight.
+
+Above the three opened eggs there are eighty more. The collar has stopped rising. There is a slight thickening of the bark here, where a bud came to nothing; water running up from below collects under its lip. The next drop will not help much. What was the underside of the willow root when the first drop began is now its side, and the new drop is making for another leaf altogether.
+
+In the eggs the young fish continue to grow. One has got long enough to lie twice about itself. Its mouth works against its own spotted back. At intervals the chin pads take hold of the skin from inside, and then the whole egg draws in on one side and lets itself out again. This makes a sound. One would not hear it over the water in the roots, but something hears it.
+
+It has been in the hollow since there was scarcely depth enough here to hide the thickness of a leaf. It has no underside of its own, or it would turn it to the eggs to feel what they are doing. For the present it feels them through the willow. Eighty small pulls come to it, some so close together as to feel like one pull with a roughness in it. It can distinguish the slap of a loose bit of skin on the lowest egg, which is empty.
+
+It could bring the collar up. For a little while there is a dimple in the water under the lip of bark. But halfway round the stem a white moth has put down its feet. The feet are dry; the wings, folded along its sides, come rather lower. When water touches the scales on a wing it runs up between them, and the moth has no way to wring it out. The dimple goes flat.
+
+On the other side of the stem there is a hair left by the hare. It is caught by the thick end in the bark; the fine end stands out into the hollow, silver along one side with frost. It has been there through most of the growing of the eggs. The power in the hollow takes hold of it. A hair pulled out by its root makes a small hard tick; this one comes loose without a sound. It is laid with its thick end in the collar and its length along the stem, where the eggs come nearest to touching one another.
+
+For a time very little happens. The hair goes dark from the bottom up. At the thickening in the bark it stands too far out and freezes white again. It has to be tucked in there. Then a skin of water comes along it, so thin that the brown flecks show larger through it without looking wet at all.
+
+The first fish out goes down the hair. The next goes up. They meet at a place where the hair runs under an egg and there is no room to pass. For all their being young enough to turn, neither will do it. Presently the egg between them gives way, and all three are delivered in a lump to the underside of the bud. By the time they have sorted out their tails there are others coming. The moth sleeps through it with its feet dry.
+
+Not all the eggs open. In one there is only a brown grain, hard to the touch, which has never been a fish. In another the little back is spotted and the gills are formed, but nothing takes hold with the pads when the water comes. The hair is left where it is. It will serve for something to go up by as well as down.
+
+Much later, under the hare’s bed, the older of the two fish stirs. Its white gill has grown long in the teeth and lets a good deal through. The young fish beside it is feeding in the strip it has just combed. They work to the end of the leaf and rest there, one chin a little in advance of the other. A bead gathers under their weight. There is a moment when it seems likely to fall, taking both fish a distance for which there is as yet no measure.
+
+What heard the eggs hears the leaf stretching. It feels, too, the six pads set firmly down, and the other six come forward and take hold. It lets the leaf stretch.

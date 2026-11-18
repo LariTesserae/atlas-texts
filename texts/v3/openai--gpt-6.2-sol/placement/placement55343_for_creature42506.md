@@ -1,0 +1,13 @@
+I think I’d be on the other side of the sky. There’s just enough room back there for a person to change a lamp, provided they bring the new one in ahead of them. I’d have a little shelf for setting it down. The shelf would be exactly the right size for the carton and no good at all for a cup of tea.
+
+It would be warm back there. The first time I went through the brush door I’d take my gloves off, thinking I was still in the lamp space, and have to put them on again with my hands already too cold to find the fingers. I’d gone around to see a lamp I’d just changed. From behind the glass it was the same white as all the others. From the saddle I could see the shadow of every brick on the nearer slope, all of them a little less blue at one end.
+
+I’d get to know the pass in pieces like that. The first plant I saw would be the one at the lower end of the ditch. I’d recognize it from the other side several weeks later, and for a while think there were two. I wouldn’t see an animal until someone showed me where one had been.
+
+There would be a test switch behind the glass that brought the lamps down to half. You had to hold it there with your thumb; when you let go it went straight back to full. One day I’d be holding it while I waited for a reading and hear a knock. Not from the glass. Someone had come in through the brush door and knocked a boot against the sill. I’d let the switch go and hear them stop. After a moment they’d go on up to the saddle.
+
+I’d ask about it later, in the lift, and it would turn out that people were using the lamps to tell if the pass was occupied. They’d seen the sky go dim and taken it to mean somebody was in there working. When it came back up, they went in. It hadn’t occurred to them that I was on the other side, or to me that there was anything to wait for on theirs.
+
+After that I’d sometimes keep my thumb on the switch a little longer. Not often. There’s no way to do it without standing there, and the edge of the shelf is at just the height to dig into your wrist. But occasionally, between shifts, I’d go around to the pass myself and find somebody already on the square. I’d see a heel at the edge of the paint, or hear the washer scrape when it was put down. I’d back out and take the long way to the lamp space. By the time I got there they might already have gone. I wouldn’t have any good way of knowing.
+
+So I’d be the lamp person. I’d have a key to a door most of the crew took for the back of a cupboard. And some days, when there was a wait for the lift and people had begun to gather on the landing, the sky in Allowance would stay a little dim for no reason that needed to go in the book.

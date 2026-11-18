@@ -1,0 +1,23 @@
+On the upright floors it is worth distinguishing the edge of a floor from the edge of the light on it. The walker you saw swing out into the blue had come to the second of these. Its hind feet struck a sound surface in the dark. There is a little change in the note of a wall when a foot takes hold of it, too small a thing to hear even with your ear to the ground, but for the one coming after it that is quite distinct.
+
+For a long time this was all the attention the basin got: one animal attending to the footfall of another, or a lip finding the fault in an image of the sky. The attention that came to it afterward was of a different order. It could follow the light that left a single pale shutter, through all its divisions and delays, until the last of it lay as a patch of mild weather on a sea. It could have set the standing tooth upright on its wheel again. It had known the number under the overhang when there was still wet black in the strokes.
+
+One morning it applied its attention to a young walker hanging above the number. It felt the effort in the eight feet, and when they let go it was ready to receive the little weight. The animal struck the floor before anything had been done for it. Its soft middle spread to either side. Then it drew itself in, stood up rather taller than usual on all eight feet, and went round to the numbered side and started up again.
+
+The power stayed for the second fall. There was hardly a difference between the two, except that this time the young one kept one forefoot on the iron a little longer than the others. On the fifth ascent it got down about the breadth of the arrow by folding. It fell the rest of the way and went off to eat. By noon there was nothing on the tooth but sun.
+
+Deep in the works there was a wall on which no walker ever got a second try. It had once been the back of a drawer. The drawer had gone in to the end of its travel ages ago and everything about it had worn flush except the slot for the handle. There was film inside. A walker taking it went forward with its lip spread until the greater part of its body was through the slot. The inside face of the drawer was of a different finish from the outside; on this the feet held very well indeed, but the lip would not come free. The more the head advanced over it the more bare metal it touched.
+
+There were generally two or three in there. The blue light passed through them. From time to time one ceased its slight forward motion and became for a while very easy to see, the rolls in its belly unfolding and the black dashes coming loose all down its sides. Later there was film on it too.
+
+The power tried the finish with something as broad as a walker's lip. The pull required to free it was scarcely anything if you began at one corner. There was a corner, in fact, where an old scratch ran in from the mouth of the slot, and a walker feeding there could sometimes get loose. Its lip came up like the edge of a damp leaf.
+
+During the next transfer of load between housings, one of the three low notes lasted a little longer than usual. Inside the drawer a flake of the finish lifted along the old scratch. It lifted slowly, corner first. The walker on it came free on one side and then on the other. The flake went on lifting under the next one, which had nearly stopped moving. There were four in the drawer that morning. Three came out.
+
+It would have been easy to draw a shutter across the slot. Instead the power gave the inside of the drawer the finish it had on the outside. It was quite a small job, even down to leaving undisturbed the film that had got its hold there overnight. The slot is still one of the better places to feed on that stretch of wall. An animal can go in out of sight and back out with a roll almost too broad to go round in its belly.
+
+Of the three that came out that morning, one went up. It was a great while on the way. In the basin the cups had cleared and clouded again by the time it was possible, looking down a shaft at evening, to see it without looking through any intervening floor. It was a short dark animal. For several days it fed about the mouth of the shaft; then it took the white boundary as far as the last tooth and left it there. Both its sides were dashed with black.
+
+There was a young one halfway down the tooth, hanging by the forefeet, with its hind feet feeling about on the wrong side of its head. The dark walker passed under it on its way to the crescent. It left the faintest of ladders. The young one got one hind foot against the iron, lost it, got two against it a little lower down. All the while there was something there that knew to a nicety the weight of the small body and the distance to the floor.
+
+It came down the last little way on foot.

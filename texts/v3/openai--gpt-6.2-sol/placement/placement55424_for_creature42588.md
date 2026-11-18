@@ -1,0 +1,13 @@
+I’d be on the service passage side of the door at first, setting my bucket down and picking it up again. There’s nowhere to put it that isn’t in the way. If I carry it in ahead of me, I hit the rail; if I carry it behind me, the door catches my wrist. After a few visits I learn to open the door six inches, put the bucket through, and push it along the grate with my boot.
+
+I’d be the person who measures the water that gets into the room. Not the water in the big pipe. That has its own instruments, and somebody upstairs can see how much of it there is without getting up. For mine there’s a bucket and a stopwatch and a box on the sheet marked NORTH ABUTMENT. I clip the sheet to a board with last month’s sheets still on it, so I have something to write against.
+
+The first time I come alone, I take the readings in order from left to right. The middle channel is dry. I write a zero, and by the time I’ve got the bucket out from under the third channel there’s water running down the middle one. I put the bucket back. It catches a good half inch before the flow stops again.
+
+I don’t know which reading they want. A zero is useful if you’re looking for a leak that’s getting worse. So is half an inch in a bucket, provided you know how long it took to get there. I kneel down to do it again and this time miss the start because I’m looking at the stopwatch.
+
+That’s when I’d see the fly. I’d have one hand on the lowest rung, and there would be what looked like a rough bit of galvanizing just beyond my thumb. I wouldn’t see it move so much as discover a little length of clean metal between it and my hand. The next time I reached for the rung I’d put my hand higher. I’d do that even on days when there was nothing under it.
+
+By winter I’d have worked out how to take the middle reading. I’d set the bucket in place while the channel was dry and leave it there through a pump change. There’d still be a zero to record sometimes. I’d write down how long I’d waited for it.
+
+Somebody would relieve me when I went on holiday. I’d show them how to get the bucket through the door, and where to put a knee so the water off the ledge didn’t run into their boot. During the changeover I’d start to tell them about the fly, then stop, because I couldn’t see it from where I was standing and they wouldn’t hear me anyway. I’d point down between our boots. We’d both watch the channel. For a while even the dust would stay where it was.

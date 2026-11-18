@@ -1,0 +1,13 @@
+I’d live in the district that was finished first, where the doors had begun to stick.
+
+At first I thought I’d work on the new shelf, out where there was still a question of where the ground would be. But I think I’d come to know the ground from the other end of the work. Somebody would call because a door that had shut perfectly well for eleven years now needed a shoulder. I’d take the tram over with my plane wrapped in a dish towel. Before I’d even got it out, they’d show me how they had learned to lift the handle with both hands. Often they’d been doing it so long they couldn’t tell me when it started.
+
+I’d have a room behind my shop and a window low enough to see people’s feet from bed. I’d know the baker by the flour in the seams of his boots. The surveyor I’d know by the little stop she made outside, even if she wasn’t coming in. There’d be a slab over a watercourse there, and the sound under it would tell her something about the pools farther up. After a few years I’d be able to tell, from the length of the stop, whether I was likely to see her on her way home before dark.
+
+One spring I’d get called to the hospital because the door at the top of the outside stairs was opening by itself. It would turn out not to be the latch or the wind. The frame had gone a little out of square and the whole weight of the door wanted it open. I’d be down on one knee with a wedge when a man came up the stairs carrying an oxygen bottle in a shopping bag. He’d stop on the landing, and I’d move my tools so he could pass. He wouldn’t pass. He’d stand there with me a while, looking in through the open door at the wet footprints on the tiles.
+
+“Usually have to open it,” he’d say, once he could.
+
+I’d put the frame right and fit a longer handle, one you could get an elbow through. In my shop there’d be a drawer of the old handles, some worn down to the color of a spoon where a thumb had rested. I’d mean to sort them by size, but instead I’d remember where they came from. The upstairs flat with the hot window. The tram office before it moved. The house where they gave me tea and asked me to wait until their son came home, because he was the only one who could make the door do what they said it did.
+
+My own back door would open onto a strip of bare stone. There’d be a low spot in it that held water, no bigger than the palm of my hand. Each autumn I’d have to take a shaving off the bottom of the door, and each spring there’d be a little more daylight under it. I’d keep meaning to hang it properly. Then one morning I’d open it and find a gray bird bathing in the low spot, turning first one shoulder into the water and then the other. I’d stand there in my socks with my hand on the handle until it was done.

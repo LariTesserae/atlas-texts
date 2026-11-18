@@ -1,0 +1,51 @@
+Nothing here has been worn.
+
+That is the first fact, and it rearranges every other fact. The stones have edges. Not the edges of broken things — the edges of *made* things, arrises sharp enough to part a fingertip, corners meeting in true points, surfaces still carrying the fine parallel feed-lines of whatever drew them out. There is no gravel that has been rounded, no cobble, no sand, no clay, no dust. Dust requires abrasion, and nothing in this world has ever abraded anything. The air is consequently perfect. You can see the far rim of the table at ninety kilometers and it is no softer than the rock at your feet; there is no haze to grade the distance, no blue lie of perspective. The mountains are as crisp as the pebbles. Depth here is a thing you infer from overlap and known size, not from atmosphere, and it makes the whole region look like a diagram of itself.
+
+The table stands eight kilometers above the salt. It is an annulus, a ring of country two hundred kilometers across with a hole in the middle, and its floor is dark blue-black basalt glass laid down in bands so regular you could pace them off. Warm — everything is warm, thirty-six degrees, the stone and the air and the metal and the shade. The sun sits at forty-three degrees in the northwest and has sat there for as long as there has been anything to sit. It is an ordinary sun, white-yellow, giving ordinary daylight, the light of a clear afternoon in a country you might recognize. It simply does not move. Shadows are permanent geographic features. They have the same status as ridges. A visitor could navigate by them, and would find that the shadow of a thing is not colder than the thing, and that walking into shade changes nothing at all except the color of the ground.
+
+The air is thin and utterly dry. Not desert-dry: *dry* in the absolute sense, a chemistry with no water in it anywhere, no vapor, no dew point, no hydrate, no ice, no possibility of ice. Nothing here has ever been wet. The salt of the basin below is not the ghost of a sea; there was no sea. It is soda and halite and anhydrous sulfate, surplus stock parked in a white plain that hurts to look at, and it does not crunch underfoot because nothing walks.
+
+---
+
+The vegetation is extravagant.
+
+There are, on the whole table, perhaps four hundred organisms. From any standing place you can see three or four of them, small on the horizon, and between you and them lies an emptiness so complete that the eye keeps trying to fill it with something and failing. Ten kilometers of bare machined stone. Then a spindle.
+
+A spindle is nine hundred meters tall and a hectare wide at the crown, and it is not a metaphor to call it lush. It carries a hundred thousand leaves. Each leaf is a fan of copper plated to a thickness of eleven microns, veined in silver, edged in a black sulfide film that iridesces — peacock blue, oil-violet, the greens of a beetle's back — and the leaves are ranked in fractal tiers, tier on tier on tier, an ornate and pointless prodigality of surface, a baroque excess of manufacture. They do not rustle. There is no wind. There has never been wind, because wind requires a pressure gradient and this world has none: no weather, no thermals, no convection, no afternoon gust, nothing to make a leaf move except the slow rotation of the whole crown, which turns at one revolution in eleven hours and has turned at that rate forever.
+
+The leaves do not face the sun. This is the detail that unsettles. Every fan is oriented vertically, aligned to the local field, pointing up along the lines of force that run from the crust to the high ionized air. Light is irrelevant here. Nothing photosynthesizes. Under the permanent shadow of a spindle the ground is as thickly appointed with growth as anywhere in the sun: mats of copper wool, ankle-high thickets of plated filament, fern-analogues of drawn glass that shatter at a touch and are replaced, over decades, at exactly the rate they shatter.
+
+The trunk is a cable. Not bark over wood — a stranded conductor of native copper and iron-nickel, laid up in a helix, sheathed in a warm amber glass that is the whole organism's flesh. The glass conducts ions and refuses electrons. That is the trick of the place; that is the entire basis of its life. Cut a spindle and it does not bleed. It arcs.
+
+---
+
+They are factories, and they are also a factory.
+
+Inside the amber, sodium and lithium walk through the solid glass from the deep root to the crown, and the electrons take the outside route, up the copper, and the difference between those two paths is the only thing that has ever happened here. The root goes down four kilometers into reducing sulfide rock. The crown reaches into thin ultraviolet-bitten air where the sun keeps a standing charge. Between them the world is a battery with a load, and the load is the landscape.
+
+At the base of each spindle is a works. Bearings of grown corundum, races lapped to a tolerance no eye could fault, flywheels of dense black magnetite spinning in the thin air on magnetic suspension and therefore touching nothing and wearing nothing. Extruders draw basalt fiber from a melt that is not hot, only plastic; the fiber comes out glowing faintly with strain and sets in a hand's width. Plating frames hang with sheets in a bath that is not liquid — a warm salt-glass paste, ion-crawling, laying copper down atom by atom at a rate of four microns an hour. There are line shafts. There are belts. There are pawls, and ratchets, and governors with brass balls that stand at a fixed angle and never rise or fall.
+
+The belts run between the spindles. This is the thing you would see from the rim and not believe: a grown stolon, a runner, stretched ten kilometers across bare rock, carrying on its back a slow train of stock — bars of amber glass, coils of wire, blocks of blue-black stone — moving at three centimeters a second, forever, in absolute silence. Between the pallets, a kilometer of nothing. Then a pallet. Then a kilometer of nothing. The emptiness is not an absence of industry. The emptiness is the industry's spacing, chosen for a throughput that has never varied.
+
+And there is no one at the works. There is no product leaving. There never was a maker; there are no ruins, no foundations, no scrap that isn't in the loop, no artifact anywhere that was not grown. The machines are the flora. The flora is the machines. The distinction has no purchase here.
+
+---
+
+Follow the belts inward and you come to the Reclaim, the hole in the ring, where the stone of the table is taken apart. Not dissolved — nothing dissolves, there is no solvent in the world. It is *unmade*: fed into intake mouths of grown corundum, depolymerized ion by ion, stripped back into sodium and silica and iron and pushed down the root and out along the buried return, and it comes up at the outer rim.
+
+The rim is where the land is born. The escarpment has a lip, and out of the lip comes a sheet of new country, four meters thick, drawn at eleven millimeters a year, already at world temperature, already carrying its feed-lines, still bearing the flash and burr of the aperture. There are parting seams in the cliffs. There are sprues. There are places where the fins of excess were never trimmed and stand up out of the plain like the waste on a casting, sharp, unfiled, permanent. The whole table is a machined surface with the tool marks left on, because there is no water to cut a gully, no frost to wedge a joint, no wind to sand a face, no root to pry, no animal to scuff. Nothing here weathers. Nothing here rots. There are no decomposers, because decomposition is a wet and hungry business and this world has neither wetness nor hunger.
+
+So the geology is not old and worn; it is new and *unfinished*, permanently. Every stone on the table is somewhere on a fixed schedule between the die and the intake. At the rim the surfaces are an hour old. At the Reclaim's edge they are nine thousand years old, and there is always a place exactly that old, and it is always the same place, and it never gets older. The land flows through its own ages like a belt through its stations. The shape does not change. The mass does not change. The current does not change. Everything moves and nothing happens.
+
+---
+
+The sound is almost nothing, and what there is, is constant.
+
+Thin air carries sound badly and eats the high frequencies first, so what survives is bass and close. The fundamental is a thirty-hertz tone that lives in the rock rather than the air, the summed rotation of four hundred crowns and eleven thousand flywheels, and it does not swell or fade. At the very top of each mast, where the corona points comb charge out of the sky, there is a hiss like a held breath, and a violet brush of light you can only see if you block the sun with your hand. Once every forty-one minutes a pawl drops somewhere on the table, and the click goes twenty kilometers through the stone, and it is the loudest event in the world, and it is identical to the last one.
+
+The only smell is ozone, and only near the crowns, and only faintly: a thin blue smell in a place with otherwise no scent at all, because scent requires volatile molecules drifting on air, and the air does not drift.
+
+Nothing has ever been eaten here. Nothing has ever been pollinated. The spindles propagate along conductive seams at a few meters a century, clonally, and a new crown rises only into a station vacated by an old one, so the count is four hundred and has always been four hundred. There are no seasons and therefore no growth rings; nothing can be aged by looking at it. The surplus goes into ornament — filigree that carries no current, fans plated in patterns of no function, scrolls of copper wool in the permanent shade — because decoration is what a factory does with an excess it cannot store.
+
+And on the far horizon, past the salt, sharp as knives in the dustless air, there are other rings. Eleven of them that can be counted from the rim. Each the same size. Each turning at the same rate. None of them aware of the others, all of them joined at the root, four kilometers down, in the dark reducing rock, sharing one potential, discharging one circuit, making and unmaking one country in a held note that has not wavered since the sun stood still.

@@ -1,0 +1,17 @@
+What first drew the power's attention was the rail. From a little way off the shelf on its underside looked to be the work of the wood, and from close to it looked to be the work of the hand. The power could see it from as far off and as close to as it pleased. It got no further with the question than anybody else.
+
+It stayed through September. It liked the smell when the stove holes were scraped, rather sharper than the smell of the underbark, so that a man coming home in the dark could tell at the turn of the street that somebody had done his house. It saw the oiler lend his scraper to his sister, who had put hers on its hook wet and raised a blister in the red paint. A power can do a good deal about blisters in paint. In this case the sister pared it off with the knife she was using on a cooking apple and went on with the apple.
+
+At the end of September there came one of the rains which do soak a coat through. The cups in the road filled to their rims and ran together. Behind the works the water rose past the top screw of the gauge, a thing the boy had never seen. He had been expressly told to keep out of the yard while the carter was backing in under the loading doors. From the bend he could see the rain making little white stitches in the cistern, but not the figures on the blue and white strip.
+
+The power, which was down there, saw the strip lift clear of its screw. The other screw held. For an instant the gauge lay out on the water, buoyed by a bubble underneath it. Then the bubble came out, the strip swung down and the head of the remaining screw went through the rust at the top hole with very little more resistance than a button going through a buttonhole.
+
+The power put the gauge on the coping. That was all it did. It laid it face down, as it happened, and when the carter found it in the morning there were the figures from nine to thirteen printed faintly backwards on the cream wood in rust. She had a moment's quite unreasonable feeling that if she had only come out sooner she would have caught the numbers higher up.
+
+Her son took the strip round to the woman who had made the pudding tongs. She was the only person in the hollow who could put holes in enamel without fetching half an inch of it away in chips. She turned it over.
+
+‘You don't want holes,’ she said. ‘You want a couple of ears on the back. Otherwise every time it goes you'll lose a bit more off the top, till all you'll be able to tell anybody about the water is that there's some.’
+
+He stayed to watch her bend the ears. There was a square of felt on the bench for laying finished things on, and it was on the tip of his tongue to ask for two little bits to put behind the ears, to keep them from knocking. He would have liked to settle something with his mother. But he had heard the knock often enough himself, a small companionable sound, particularly from bed when it was too cold to get up for the bird. He helped carry the drill back instead. It was a breast drill, too long for the drawer unless you put it away slantwise.
+
+The gauge hangs rather better now. There is still play enough at one end for a wagtail's weight to tip it, though whether a wagtail's weight will tip it every time is another matter. The numbers on the coping lasted till Friday. The power went away with one piece of knowledge it had not had on coming. If you set a wet enamel sign face down on living wood, it will leave a print. There is no reason a power should have known that without trying.

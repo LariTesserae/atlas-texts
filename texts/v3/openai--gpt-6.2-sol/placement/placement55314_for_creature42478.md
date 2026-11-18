@@ -1,0 +1,15 @@
+I would begin on the stair, a tread below the woman, with a bowl she hadn't asked me to hold. It would take me three evenings to discover that I was holding it too high. The water doesn't come straight out of the joint. It runs a little way along the underside of the brick, and if you put the bowl close enough to see what you're doing, you catch nothing.
+
+But I don't think I'd stay on the stair. The woman has hands enough for what she does there. I'd be inside, at the place where the second jar pours into the third.
+
+I'd think at first that I was a bit of reed mat caught under the rim. I would have a short end in the current and a long end plastered to the clay. When the young in the jar let go, the short end would lift. Afterward it would settle a little to one side of where it had been. Over a morning I could move that way from the wet part of the rim to the dry, though I wouldn't know what to do when I got there.
+
+The first thing I'd do of my own accord would be to draw in the long end. Something below me would have been pulling at it for most of the afternoon. I'd give up a little at a time, thinking it was the water, until I felt two quite distinct tugs with a pause between them. One of the little shell-less ones would be trying to get over the rim. It would have eaten a shallow notch and found the clay harder on the other side. When I drew myself in, it would come up with me, still chewing.
+
+I don't know that I'd be an animal all the way through. The end it held might really be reed. I'd keep that end long after it had ceased to be of any use to me, and when it broke off I'd go back to the notch and feel for it on several successive nights.
+
+By then I'd have worked my way down to where the jar leaned against its neighbor. There'd be a space there no wider than the thick part of a leaf. The jars would touch when the water came hard, and separate when it slackened. I'd learn to get through on the slack, and to stay on one side or the other until the next slack came. Sometimes a root would get caught between them. I could draw its tip out, but only if I took hold a little way back; the very end would come off in my grip.
+
+One evening the woman would reach in to right the lower jar. I'd feel the space open and go farther into it than I'd ever been. Her finger would come down on the other side, warm at first, and then, as she held still, colder than the clay. I'd put my short end against it. She'd shift her finger a little, thinking there was a root in the way, and I'd have just enough room to turn.
+
+She would leave the jar tilted. Not for me: from the stair she could see that if she stood it upright, the water would miss the next one. Where her finger had been there'd be a shallow hollow, and after the evening rain a bead would stay in it. I'd spend the night with one end in that bead and the other between the jars. In the morning, when they touched again, a little of the water would go with me, and a little would stay where it was.

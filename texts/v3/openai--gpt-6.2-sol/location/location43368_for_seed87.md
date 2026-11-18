@@ -1,0 +1,13 @@
+The whole city fits beneath a thumbnail, in a blister on the underside of a stone. The stone lies below the mud, and the mud lies below the sea. The water in the blister is cold enough that a grazer can spend most of the ebb crossing the width of a street.
+
+There is no way in that stays open. At slack tide, a seam in the stone relaxes and admits a little water, a few drifting animals, and sometimes a grain of silt. A grain is a substantial arrival. One stands in a square near the seam, taller than the surrounding roofs. The first inhabitants built around it while it was still sinking. Now it rests on three pale pillars of their shells, and the water passes under it.
+
+Nothing here has been cut or fitted. The walls are the successive lips of tube animals that settle along the edges of older tubes. Where two colonies meet, they leave a passage just wide enough for their feeding fans to open without tangling. Other animals settle along that passage, and in time it acquires a second story. There are covered places where the young gather, steep runs for waste, and little courts kept clear by the traffic through them. The city has no oldest quarter. Even at its foundation the shell is soft enough to take an impression.
+
+Light comes from a short row of animals fixed to the ceiling. They give off a weak greenish glow when the current bends them, so the streets are easiest to see when there is something moving through them. Between pulses, the palest surfaces remain visible a moment longer than the rest. A shallow doorway seems to hang in the dark after the wall around it has gone.
+
+A few tufts of red growth cling to the seam. Farther in, there is almost nothing rooted that is not an animal. Translucent grazers work the narrow ledges, leaving clean crescents in the film. Under each crescent a new skin of mineral begins to cloud the wall. Small hunters wait with their heads level with the pavement. They take mostly the young, which travel in such numbers that a moving brood can briefly close a passage to the current. When it disperses, the feeding fans on either side unfold, one after another.
+
+There is scarcely a sound. A shell closes somewhere; the water carries a tick to the opposite wall. The largest journeys in the blister are made by animals too soft to make any noise at all.
+
+Along the rim, there is a district that has not yet acquired a floor. Its inhabitants hang downward from a new shelf, and the walls they are growing will eventually meet the stone below. For now, water moves freely beneath the whole row. On the ebb, loose threads of shell lift from the building edges and sway there. One of them catches on the floor. By the next tide, there are young clinging to it, and what was open water has become two streets.

@@ -1,0 +1,11 @@
+At first I would put myself in the house, in the little leaf that folds when a cup strikes the lintel. I like that it can be wrong. A stone comes down off the ridge on a day when the water is still, and the leaf spends three days opening again. Nothing comes of the mistake except that for three days the inside of the house is a little darker.
+
+But I think I would be farther down, at the saddle. Not one of the white tips in the paving. I would be the first of the upright stones to come loose.
+
+I would not go far. The current would lay me flat a little way into the road, with the face that had been underground turned up. That face would be lighter than the rest. There would be a nick in it from when I was set in place. The person who made the nick had struck twice, the second blow glancing off the first, and for a very long time the only thing in the valley that touched those two marks would be water.
+
+For a while I would think the plant would follow me. I would be near enough to its last joint to see a tip come out white against the paving. It would reach the quiet water behind me, hold there through one turn of the current, and break on the next. The new tip would go the other way. With my stone gone, there would be too much flow along the edge, and the plant would turn back into a joint it had already passed. From where I lay I could see the distance it had lost. It would be less than the width of a hand.
+
+Years later, in a flow hard enough to put out the green light all the way up the slope, another stone would come down the road and stop against me. In the morning—not that morning would look any different there—the two of us would have a narrow space between us where the water scarcely moved. Silt would begin to fall up through it. A few grains would catch in the nick.
+
+That is where I would find myself: on my side in the road, a little way from the place I had been put. The plant would still be some distance off. On one side of me the water would be going fast enough to keep the slate bare. On the other there would be, by the end of the year, enough white silt to cover the smaller of the two blows.

@@ -1,0 +1,11 @@
+I think I’d be under the stool, though for a long time I’d have the wrong idea about which part of it I was.
+
+There’s a short leg on the quarry side. If you picked the stool up, you’d find a brown crescent on the end of that leg. You could scrape it off with a nail. I used to think the crescent was me, because when the stool was lifted that was where I felt the cold. But the crescent is just the mark I leave. I’m the thin thing that stays on the floor and takes a little while to flatten out again.
+
+I can move when there’s weight on me. Not far. When somebody sits and takes hold of one ankle to pull off a sock, I can get a little of myself out from under the leg. When they put the foot down, I draw the rest after it. There’d have been a whole stretch of years when this took me nowhere. The person with sore feet always bent first to the same side and straightened the same way, and by the time they stood up I’d be back where I started. I knew when they’d had a bad day by how long they left the second sock on.
+
+I was nearly out once when a pale animal came down from the dish. It put two feet on me. I waited for the others, but it had already learned to cross a thing without bringing all of itself onto it. It went on toward the bare stalk. I couldn’t see what happened up there. After the copper crack, though, the person on the stool set both feet flat in the salt and leaned forward, and I got farther out than I’d ever been. The stool made a small knock. They put a hand down and rocked it twice, then sifted a pinch of salt under the short leg.
+
+That’s where I’d be now, a little to one side of where I’m needed. I’d have the patch of light in view for the first time. I’d thought it went out whenever anyone sat down. It turns out they were putting a heel in front of it.
+
+What I’d like is for someone to come in and sit without testing the stool first. They can keep their boots on. If it tips a little, I hope they’ll stay long enough to see the leaf open. There’s a way people shift their weight after something they’ve been watching for has happened. They don’t get up yet, but they sit differently. I think I could get clear in that moment. I don’t know how I’d go on from there. The salt beyond the stool has never had to bear anything as flat as me. I might have to wait for a boot.

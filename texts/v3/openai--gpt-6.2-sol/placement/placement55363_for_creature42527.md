@@ -1,0 +1,13 @@
+I would live where two ways across the plain come close enough that you can recognize somebody on the other one, but not close enough that you can give them what you’re carrying.
+
+For a while I think I’d be one of the people who go a long way for a slab. I’d like the walk home with a good one, stopping at each shelter to slide it off my back and set it down without chipping an edge. But I know what would happen. At the second shelter I’d find the entrance stone loose, and put the slab down to see what could be done about it. By the time the stone sat right I’d have missed the crossing. The slab would spend a night within twenty steps of where I’d found it.
+
+So I’d be somebody who went a little way and took a long time.
+
+There’s a shelter at the fork with room for four if the two nearest the entrance turn their legs sideways. I’d often be there alone at the end of the ebb. One day I’d see a woman on the other route carrying a sleeping child. I’d know her by the way she walked with her basket hung in the bend of her arm, where it hit her at every step. I’d put my hand up. She’d put hers up too, and go on. There’d be a thing I meant to tell her about a trap we both used, and I’d spend some time deciding whether there was enough water left off the stone to go after her. While I was deciding, the little holes would start.
+
+She’d come in after the first blast, from behind the shelter. I hadn’t known there was a way in from behind. The child would be awake and carrying the basket by both handles, bumping it first against one shin and then the other.
+
+There’d be nothing wrong with the trap that couldn’t wait. But I’d want to know about that way in. She’d try to tell me, her mouth against my ear, and twice I’d mistake the word for *under* when she meant *along*. Finally she’d turn my hand palm up and run a cold finger around the base of my thumb. I’d know the bent seam she meant. I’d knelt at one end of it often enough to clean fish and never thought to see where it went.
+
+At the next low water I’d walk it. From the far end I’d look back and see the child sitting outside the shelter with both bare feet in the basket. I’d raise my hand, and the child, who could see perfectly well how near I was, would get up to meet me. I’d go back the way I came, faster this time, because there’s a place halfway along where the seam disappears under a pool. I’d want to be there when the child put a foot down and found it again.

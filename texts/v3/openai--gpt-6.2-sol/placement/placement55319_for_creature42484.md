@@ -1,0 +1,11 @@
+I’d be below the lip, at the height where the two knocks are still distinct but the scrape is gone. I wouldn’t know it was gone. I’d have two knocks, and that would be the whole sound.
+
+At first you might take me for a bit of the white seam that had peeled away from the glass. I’d lie along the underside of a sloping crack, with one end fixed and the other hanging free. The free end would be no thicker than a crab’s egg. On the inside, where the stone kept the water from moving too fast, I’d have a row of small wet ridges that took things out of the uphill current. On good days the meal would reach the fixed end. On other days I’d turn the free end out a little farther, and the cold would make it curl back before I’d eaten.
+
+A crab coming up from the stalks would put a foot through me. There’s a good hold just behind where I’d hang, a tooth of glass too deep for the current to get at. The crab would use it, pull, and take the free half of me along with it. By the next knock its foot would be somewhere else.
+
+I think that’s where I’d begin to be an animal rather than a piece of the view. The torn edge would draw up so hard that for a while I’d be nothing but a white bead in the crack. Then I’d begin putting out a new edge. It wouldn’t grow where the old one had been. A little of the torn flesh would still cling to the tooth, and the new growth would go toward it, not quite reaching. In that narrow space the water would be faster than any I’d fed from before. I’d grow a second row of ridges facing the first.
+
+Another crab would come. Its hook would go into the same dark place and this time meet flesh on both sides. I’d fold around the hook. There would be a moment when I was eating something off the foot and the foot was resting in me. Then the crab would take its weight off it and go on. It might leave a black speck between the ridges that would take me the rest of the afternoon to work down.
+
+From above I’d still look like part of the seam. From below, if there were anything down there looking up, I’d be a small interruption in the white light along the edge. At each knock I’d lift a little. The second one would lift me before I’d quite settled from the first. In the long interval after them I’d stay open, even when there was nothing coming through.

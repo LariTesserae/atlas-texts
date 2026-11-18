@@ -1,0 +1,17 @@
+I would live under a fork that caught things. Not a good fork for getting anywhere: one arm went up into a wet band and came out white on certain mornings, and the other ended in a fan of leaves you couldn’t get through with a coat on. But the two arms came together at a shallow angle, and things that had been falling for a long time sometimes stopped there.
+
+I’d keep them on the outer sill, where you could go through them without waking me. A lid with its handle worn through. A mitten with a good thumb and no fingers. Once, a little bag with something breakable in it, still unbroken. I left that one tied shut. It was enough to have got it back onto a shelf.
+
+People would know me by the sill. Sometimes, coming home, I’d find something set beside a thing that had fallen: the other mitten, once, which was no better than the first. I never found out whether that meant *these are mine* or *see what good care I take of my mittens*.
+
+For a while I’d think my work was to give things back.
+
+Then a sliver would come down with a length of its cord still on it. One notch. In the morning I’d take it up to the fork I thought it came from, which meant going down first, under the wet arm, and then climbing a root whose ridges were just far enough apart that I had to use a knee. There’d be a sliver there already. I’d try the next fork. Two notches, and no water: the cup had grown a lip on the uphill side and split on the other. You could put your hand through the split and feel rain collecting a little at a time on your knuckles.
+
+The place I was looking for would be farther up than I’d ever had reason to go. I’d find the other end of the cord still tied around a twig. Beyond it the branch would go through, just as the notch said, to within the length of my boot of a thin black stem. I could step across. I could even step back. But while I stood there deciding where to tie the sliver, the branch I’d come off rose the width of my hand. With a full bag I could have got across in one direction and not the other.
+
+I’d take the sliver home. For a few days I’d shave at a scrap of bark, trying to make a notch you could read with a cold thumb that meant *only going this way*. All the cuts I tried felt like one notch or two. In the end I’d ask a girl who came by for the little bag to walk up there with me. She’d make the step in both directions without having to put a hand down. On our way home she’d ask why I hadn’t shown her the way around. I wouldn’t know of one. She’d show me herself, a long, easy swing under the fork on a root I’d been stepping over for years.
+
+After that I think I’d spend less time at the sill. I’d go walking with people part of the way home. I’d learn which way they went when they carried a sleeping child, and which way they went when they had a child who wanted to walk. I’d still get things wrong alone. There’d be days when I went out to take down a sliver and came back having hung it a little lower, where somebody shorter could reach it.
+
+The sill would go on filling. One night a man would come by asking if I’d found a pot. He’d heard it go past my shelter, he said. I’d tell him I’d heard it too. We’d sit awhile with our feet out over the fork, listening in case it went a little farther. Then I’d get my pot off the fire. He’d put out a hand for it before I asked, and I’d let him hold it while I found the bowls.

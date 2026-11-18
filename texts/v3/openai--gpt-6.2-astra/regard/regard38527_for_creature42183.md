@@ -1,0 +1,17 @@
+The warmest room was not the one farthest down. It was off to one side, under the place where a person set a cup. In summer the sun lay on the cup place for nearly an hour after it had left the rest of the floor. Below, in the dark, there was a patch of warmth about the size of a hand. The little round ones were apt to be found there, sometimes three deep, holding on to one another in mistake for the floor.
+
+The power that had taken an interest in the pass could feel this warmth through the stone. It could also feel the weight on the stone, which was considerable. Above the entrance to the warm room stood an upright scale with a broken corner. For a long time the corner had rested in a hollow of just the right size to receive it. That summer it came out. The scale stood a little off the plumb, with nothing to prevent its going farther the next time something fell.
+
+There were five young in the room. The power could have taken them out, but would have had to find somewhere to put them. It tried the temperature of several other rooms. In one there was water under the dust; another was warm enough but had a draft, a current of air so slight that it could only be felt by being very small and damp and staying there some time.
+
+In the end it left the young where they were. There was a chip lying loose in the hollow out of which the corner had come. The power set it up on its thick end. When the next scale fell, the one at the entrance tipped as far as the chip and no farther. The noise of its settling was transmitted to the cup place, where it would have been possible, with an ear against the stone, to hear it quite distinctly.
+
+For some days afterward the power attended to the chip. The first time a grown animal passed it, it went over the thick end with its forefeet and under the thin end with its hind feet, drawing itself for a moment into a shape the power had not supposed it could take. On the return journey it went under altogether. Carrying a young one on its wrist made no appreciable difference. The young one put out a foot in passing and acquired a grain of dry dust on each button.
+
+In September most of the roof of the room came down. By then the five could go about quite well. Four had moved to a chamber farther west. The fifth, already showing a little cream along its back, had found a place of its own so near the surface that at noon there was a hair of light across its floor. The power let the roof come down. For a little while there was a smell, even up in the open, of stone freshly broken. The chip lay flat again, under a weight that would have made it a great business to get it out.
+
+The power stayed in the pass that afternoon. It had become curious about the east lip. It knew what there was to see from the height of a standing person, and even from the knee place, but had never looked from under one of those little chins.
+
+From there the cloud was scarcely visible. A roughness in the very edge of the sill, no higher than a barleycorn, stood up in front of it. What came over the roughness was a mild air, warmed on the whole face of the eastern fall. It passed under the loose skin of the throat and lifted it a little. After the close work of getting food, the knocking and the white stuff issuing on either side, it was a pleasant thing to have happen to one's throat.
+
+Two of them were there that day. There was room between them for a third. The power took up no room, but it lay down there all the same, and stayed until the shadow touched their tails.
