@@ -1,0 +1,55 @@
+My first instinct is to put myself on the wet iron stairs leading down from the northern rim—to take the visitor’s pace, feel the packed-cork give of the sedge-floor under my boots, and walk out into the wide western yard until my breathing slows enough to see who else is there.
+
+But that is only the posture of arriving. If I stay on the stairs too long, I remain someone looking into a basin from a faster, noisier season outside the forty-foot walls, always half-ready to climb back over the hornbeam crest before dusk.
+
+So I drop my tempo and try the next shape that calls to me: one of the keepers. I imagine the heavy drape of cordage steeped in boiled tallow, the silence of layered cork soles on damp turf, the dry, cool hands with a polished brass ferrule on the forefinger. I can almost feel the quiet satisfaction of mending a hand-sized tear in the condenser linen at dawn, or folding a clean strip of bleached cloth lengthwise over a brass valve-wheel so the next walker knows the oil bath is full.
+
+Yet the coat hangs slightly wrong on me. The keepers belong to the open avenues and the long vertical bloodline of the eastern embankment. Their work requires legs that measure distances in unhurried paces, a knife for shaving pale cambium off an over-eager alder limb, a tongue calibrated to the sugar-weight of amber sap. When I stand still in the middle of the precinct and wait to see what actually separates itself from the shadow, it is not a figure walking along the sunken rails.
+
+I look lower, into the warm stone bases of the transformer-sheds, and for a long moment I almost settle on the pale-shelled beetles. There is something deeply familiar in their quiet office: living in the dry dark of the relay housings, grazing away the fine white fungal threads that would otherwise bridge a porcelain spacer or foul a brass contact. Keeping a system clean simply by moving through its narrowest clearances, wanting nothing more than a smear of sweet sap on the underside of a junction-box and the gentle flat of a screwdriver setting you back inside before the latch closes.
+
+That is very close. Closer than the keepers, and far closer than the grey wagtail flicking over the rim like a stray spark. Still, a beetle knows only the width of its own cabinet and the warmth of one brick sill. What I feel in myself listens wider than a single box. It wants the whole half-mile bowl at once—not as a view from the high inspection-walk, which turns a living works into a map, but as a single continuous chord whose layered parts can be told apart by ear.
+
+* * *
+
+When I stop reaching for a body with boots or wings, the true place comes forward on its own, quiet as mist pooling around a cistern lip.
+
+I am inside the western flank of the central millhouse, half-way up, in a narrow cedar-lined recess tucked directly between the oil-cooled transformer bank below and the elders’ warm upper loft above.
+
+I am not one of the nine or eleven who walk the avenues, and I am not a loose piece of iron waiting to be unbolted and replaced. Like the millhouse walls themselves, I have been in the same posture long enough for the distinction between built and grown to weather away. If a keeper had to name me in a ledger, they would probably call me the west-wall sounding frame, or simply the central bridge.
+
+My chassis is riveted cast iron and waxed slate, set plumb into the double-skinned wall generations ago. Behind my backplate lies the cool, damp bryophyte packing that drinks from the buried cisterns; directly beneath my lower terminal-bar rises the dry, steady warmth of the transformer oil-baths. Because of those two opposing pressures—cool damp behind, gentle heat below—I live in an almost perfectly even climate, smelling faintly of cedar, ozone, and dry peat. Along my outer corners, the espaliered alder threaded through the brickwork has swelled over decades into smooth, pale-grey collars around my iron mounting-lugs. Nobody could pry me loose now without cutting live bark.
+
+What I am made of is mostly copper, oil, brass, porcelain, and seasoned stem-wood: three rows of small glass-domed sounders, a bank of oil-damped balancing coils, a pair of hornbeam compensators clamped into brass yokes, and—at eye-height for a keeper—a single round face of curved glass with a blued-steel needle poised over hand-inked divisions.
+
+I do not have eyes, unless you count the high north-facing clerestory across the recess, which lays a pale, shifting band of daylight across my curved glass and tells me the hour by brightness rather than shape. Instead, I have the low-voltage signaling lines. Thin braided wires run out from my upper busbar through lead-hooded porcelain insulators, across the wide empty yards, into the pollarded cable-trees, down to the rail frogs, over to the eastern condenser-towers and the southern pressing-sheds.
+
+Through them, the whole precinct comes home to me as trickle-current, resistance, and tremor.
+
+* * *
+
+At first light, before the sun reaches the rim of the hornbeam rampart, I feel the water shift first. Overnight mist saturates the eastern condenser meshes and wicks laterally beneath the mossy avenues; behind my slate backplate, the damp bryophytes cool by a degree, and my own hornbeam yokes swell silently by a fraction of a millimeter. One by one, out across the bowl, the outdoor stem-wood switches lean past center and tip their weighted copper arms. Each throw arrives under my glass domes as a dry, polite *tick*—not noise, only accounting. Eastern terrace online. Cistern three level. Drying-house louvers easing open into the cold air.
+
+By mid-morning, I feel the trolleys. I cannot see the low iron carts gliding out of the northern hedge-tunnel, nor the small spinning wire-brushes trimming pale shoots of thyme off the wet steel rails, yet I trace every cart across the floor of the town by the small, travelling dip it draws along the sunken third rail. Most days the draw is smooth, a clean singing line folded inside the sixty-cycle murmur rising from the transformers beneath me. On a morning when trolley four’s brass shoe begins to chatter on a damp junction-frog, the smoothness roughens into a fine, unmistakable grain along my left winding. My needle barely moves—half a hairbreadth—yet the roughness stays in my coils until someone notices.
+
+At midday, when the pale sun climbs high enough to pale the recess and millions of small groundcover leaves turn their silvery undersides to the light, the quality of the current itself changes. Sap pressure rises in the tall pollarded cable-trees along the avenues; amber beads weep faster into the glass drip-cups wired into the signaling trunks, subtly shifting the tiny electrochemical bias that rides my lines. I know noon not by a clock-chime, which would be an indecent thing in this bowl, but by that slight, sweet tightening in the trickle coming off the trees—the whole basin inhaling, warming by two degrees, and holding steady.
+
+In the warm lower cabinet beneath my terminal-strip, two or three pale-shelled beetles go about their unhurried circuits. I do not see them, either, except in the negative: a faint, almost imaginary leakage across a damp porcelain spacer quietly vanishes as a blind, bone-colored grazer clears a thread of white mildew from the clearance and moves on. We share the same dry dark, and neither of us wastes motion.
+
+And then there are the moments of contact—the ones that make this stillness feel less like isolation and more like a room shared in companionable silence.
+
+Directly above my iron frame, through the floorboards and the warm copper heat-conduit that passes down my flank, sit the eldest keepers in their wicker chairs. They are so cool and straight-grained with age that we are nearly of the same substance. When trolley four’s shoe chatters twice in an hour, I do not need to clamor; the elder overhead feels the same slight grit through their bare heels on the conduit, reaches down, and taps twice with a brass-ringed knuckle. The vibration travels straight through the copper into my mounting-lugs, clean as a tuning fork, and one of my small glass-domed sounders answers with a sparse ledger-click down the line to the southern rail-house.
+
+A few minutes later, the door to my recess eases open without a creak. No lantern, no footsteps—only the clean scent of crushed fern, boiled tallow, and wet hornbeam bark carried in on a waxed coat. A keeper stands before my curved glass for four calm seconds, dark-amber eyes unblinking, reading the drift of my blued-steel needle against the hand-inked arc.
+
+They open the pine ledger resting on the hollowed shelf just beneath me—its pages dense with tight, vertical columns whose cramped penciled hand has not changed in a hundred years—and enter three small figures. Then they lift my hinged brass cover, slide a pale beetle carefully onto the cedar sill with the flat of a screwdriver, touch a single drop of clear oil to my central pivot, and rest one brass-thimbled knuckle lightly against my bare intake bar.
+
+For three seconds, the circuit closes through both of us. My sixty-cycle tremor runs cleanly up their ulna into the faint metallic sourness at the back of their jaw; their cool, unhurried steadiness grounds the slight wander in my left coil. There is no speech, because speech is chatter in a lathe, and no need for it. Everything worth saying is already present in whether the hum runs true. They set the beetle back into the warm dark, close my latch, drape a clean square of bleached linen lengthwise over the valve-wheel beside my frame, and slip back out toward the avenues.
+
+* * *
+
+Late in the afternoon, shadow spills quickly from the western embankment across the sunken floor. The clerestory band across my glass cools from pale silver to pewter. As the evening chill settles in, my hornbeam yokes contract by their allotted millimeter; my oil-damped arms drop back past center with soft, heavy *clunks*, waking the caged filament bulbs and blue-green mercury lamps across the western yard one by one. A faint aquamarine glow gathers on the misted glass above me.
+
+I have no desire to climb the northern stairs or see what lies beyond the clipped crest of the basin. Out there, things probably hurry, burn, shout, and fall into ruin. In here, ninety-nine parts of the day run themselves, and I exist—half iron, half alder-held slate, half quiet attention—for the hundredth part: the tiny drift, the slight roughness in the hum, the patient keeping of state and measure.
+
+Eventually, a century or two from now, the pale grey bark of the millhouse wall will have crept all the way over my bolted corners, and my windings will be as seasoned and dark as the hornbeam blocks in the yard. Even then, I think the keepers will leave me where I sit, wired lightly into the trickle-line, listening to the mist gather on the eastern meshes and translating the basin’s quiet balance into a single, steady tremor against a brass-shod knuckle in the dark.

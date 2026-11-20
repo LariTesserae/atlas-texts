@@ -1,0 +1,73 @@
+I wouldn’t belong to the dry flats above, not anymore, and I don’t think I would survive long enough to become one of the silent ones who stop climbing out. If I looked for myself in this place, I would find myself right on the break—at the northern lip where the limestone plain shears off into four hundred feet of glare, with my hands slick to the wrists in mud-grub tallow and a braided hemp rope running through my palms.
+
+At first, maybe, I would have been drawn down to the floor like everyone else with young knees and quick eyes. There is an awful pull to a ground that is still being made. You stand at the rim, dry wind tugging at your shirt, staring down into a six-mile bowl of chalky daylight and churning wings, and the plain behind you starts to feel like a dead plate. So I imagine I would have gone down for a few years—greased my shins with tallow and ash, tied the smoked carapace visor over my eyes, learned to walk light on oiled rawhide with one palm resting against the wicker burrower-tube at my hip. Enough years to know the exact pitch of the floor’s groan before a clay bank sloughs; enough years to catch the first faint milky rim-haze at the corners of my eyes, and to take one bad twist of a left knee on a wet apron of shale that never quite learned to trust sliding mud again.
+
+That’s how you end up at the derrick without feeling exiled to it. You don’t lose the pit; you move up to its hinge.
+
+I would be the rope-keeper and the late-day runner—the one who tends the spliced timber beam on the northern lip, reads the four hundred feet of hemp every morning before a single crew steps into the hide basket, and still rides the line down when the glare begins to tilt, carrying salt and water-bladders to the people who have stopped coming up on schedule.
+
+My mornings would start before the cliff-hunters even unruffle their chalky feathers. The plain is cold before sunrise, the limestone huts hunched under their roof-stones, the air thin and dry enough to crack your knuckles. I’d be out by the derrick while the bowl below is still brimful of blue shadow, sitting with my boots dangling off the sheared edge and a wooden bucket of rendered tallow between my shins.
+
+That is my favorite hour in the whole world, and almost no one else sees it. Down in the cracks just beneath my heels, the leather-winged gliders begin to wake—a soft, dry rustle like damp hide shifting in a sack, carrying a faint drift of musk and crushed fly-wings up on the first thin breath of rising heat. One by one they peel out of the vertical fissures and drop into the shadow, soot-colored wings snapping taut as they catch the earliest thermal rising off the warm seeps four hundred feet below. They don’t fight the pit and they don’t scrape a living from its ribs; they just borrow its warmth and ride. Watching them go, I’d uncoil the hemp line across my knees and pull it slowly through my tallow-greased palms, fathom by fathom, eyes half-closed, letting my calluses read what daylight misses—a rough hair where gypsum chewed the braid yesterday, a damp, swollen knuckle in the fiber where steam lingered too long on the ledge. A rope down here is a living organ. Neglect it for two mornings and the mineral damp eats its spine out.
+
+Near the base of the derrick, tucked out of the wind behind a low stack of flat stones, I’d keep my clay trough—a wide, shallow pan of blue floor-mud kept damp with seep-water and skimmed every day with a smear of scraped ochre film brought up in sealed jars. That’s where the captive burrowers come to rest when a returning crew dumps them out sluggish and slow after three days in a wicker tube. People laugh at me for fussing over them, as if fist-sized pale bugs need a nursemaid, until they’re fifty yards from the western talus and a hairline fissure opens beneath their heels. You can tell by the sound when a burrower is ready to go back down. You tap the rim of the clay pan with a fingernail; if the carapaces surge up with a clean, crisp clatter like dry dice thrown on stone, I scoop two into fresh wet mud, plug the wicker cylinder with twisted grass, and hand it to the next runner lacing their rawhide boots.
+
+Once the sun clears the eastern collar and turns the bowl into a cracked white dish of glare, the real work begins—and I move from the winch to the limestone lip, lying flat on my belly beside the watchers.
+
+The children do the sharpest seeing. A nine-year-old knotted into a safety-rope beside me can catch a cliff-face going bald half a mile across the basin twenty seconds before my hazed eyes sort the movement out from the glare—that sudden gleaming tide of ten thousand flat-shelled grazers peeling sideways off a slab about to drop. They have better eyes than I will ever have again, and they invent names for the basin’s moods that the older crews never bother with, calling a fast-heaving strip near the center *the boiled belly* or the bright gypsum spill on the east wall *the tooth*.
+
+What I give them isn’t eyesight. It’s weight and time.
+
+From four hundred feet straight up, a three-person crew crossing the blue clay looks like three slow beetles crawling over wet ash. It is too easy, up here in the dry wind, to think they can outrun a slumping ridge or make it back to the ledge before the basket hangs still too long. So I lie beside the children with my chin on my folded forearms, watching the geometry resolve out of the roaring chaos below, and I remember for them what forty pounds of dark ore-nodules feels like pulling at your shoulders when your boots are sucking two inches deep in blue mud and the mineral tang is humming in your back teeth.
+
+“Wait,” I tell the girl beside me when she reaches for the wide soot-black paddle, spotting a fresh dark seam splitting open near the eastern apron. “Look at the white birds—three already down by the talus. And the clay between them and the crack has no dimples.”
+
+She squints against the glare, her small fingers tightening on the grease-blackened hide. Then she sees it: a smooth, rounded hump right across the shortest path, untouched by burrower-holes, with two dark leather-winged gliders perched motionless along its spine to dry their membranes. A sleeping slump-back, wearing two inches of floor like a blanket.
+
+She doesn’t wave the crews toward the new seam. Instead she dips the left paddle once, slow and clear against the blinding rim-sky, and flashes the polished selenite slab sideways to turn them south around the hump. Far below, tiny as splinters, the three figures halt, shift angle, and skirt the smooth clay without ever knowing how close their heels came to waking a mouth wide as a wicker basket.
+
+I like that quietness—the way a flick of black hide up in the wind reaches down through four hundred feet of racket and saves someone who can’t hear their own partner shout across twenty paces.
+
+Still, I wouldn’t stay on the rim all week. Every third or fourth afternoon, when the sun begins to lean toward the western collar and the regular crews have already hauled up their baskets of shell and ore, I’d smear my forearms and cheeks with yellow tallow-ash paste, tie the smoked carapace visor across my bridge, sling two full water-bladders, a pouch of coarse salt, a coil of sinew, and a bundle of bitter juniper-root across my shoulders, and step into the hide-wrapped basket.
+
+Going down alone at the edge of the afternoon feels like sliding down the throat of a warm, loud animal.
+
+Ten feet below the lip, the dry plain’s wind cuts off cleanly, replaced by the close, breathy heat rising from the floor—smelling of wet chalk, iron, warm mud, and crushed shell. The rope creaks overhead as the winch-hand pays me out. At fifty feet I drift past the narrow vertical cracks where the gliders are already beginning to pack themselves back in out of the shifting late-day eddies; they barely stir as my shadow passes, just a soft clicking and a blink of dark eyes in the cool stone. Halfway down, the static hits me—that constant dry rasping of millions of flat-shelled grazers scraping mineral crusts off the walls, stitched through with the clatter of falling scree and the harsh barking of cliff-hunters squabbling over stolen bone markers on their ledges. By the time my boots meet the narrow landing shelf just above the apron, my molars have already begun that faint, sweetish hum.
+
+I don’t linger on the ledge. The rope doesn’t like stillness, and neither does the floor. I unhook the basket, signal two quick tugs so the winch-hand lifts it thirty feet clear of the bristled scavengers, and pick my way down the western talus toward the three hunched lean-tos, checking the notched bone route-markers as I go and righting the ones the morning tremors tilted drunk.
+
+That’s where I meet the long-stayers—the ones who haven’t ridden the hemp line up in three weeks, whose knuckles hold blue-grey clay in the creases like ink, whose front teeth carry pale chalky bands from the air in the deepest hollows.
+
+Ordinary crews get jumpy around them. They talk too little, they stare at the ground while you speak, and they step aside three paces before a mud blister pops with a wet cough, never once laying a hand on a burrower-tube. Even their families up on the rim watch them come and go with that tight, helpless grief you feel when someone is drifting out of your reach without dying.
+
+Maybe because I live on the edge myself, they don’t frighten me. I know what the silence of the flats does to your ears after a week down here; it rings like an empty pot.
+
+Usually one of them is waiting near the grease-blackened fire pit beneath the gypsum-weighted hides, sharpening nothing, just sitting on their heels with a clay-stiffened basket hanging from the ridge-pole above their head. When I come up, I don’t shout a greeting into the din. I step within arm’s reach and tap two knuckles lightly against their collarbone, the old floor-habit, and set the water-bladders and salt-pouch into the sinew slings hanging from the driftwood ribs—never onto the clay.
+
+They hand down their haul wrapped tight in oiled hide: heavy, dark mineral nodules pried out of the central seam where nobody else will stand for ten minutes, dense with native copper and still faintly gritty with fresh shale. Sometimes they tuck something else into my palm before I leave—never asking for trade, just passing up a curiosity the rising earth spat at their boots. A finger-long shard of pale selenite clear as ice; a fossil spiral twisted out of the drowned limestone; once, a tiny intact chimney built by colonial burrowers out of iron mud and shed carapaces, miraculously uncrushed.
+
+We rarely trade more than four words. A tilt of the chin toward the center of the bowl—*fresh seam opening south of the warm seep*—or a flat palm held down to tell me the talus apron below the ledge has loosened since noon and will need new markers tomorrow. Then they crack a pale burrower raw between thumb and palm, eat it without breaking their steady gaze across the clay, and watch me go.
+
+Once or twice a season, though, I don’t go back up that evening. A tremor shakes loose a spill of wet shale across the lower shelf, or the winch-hand signals from the rim with crossed paddles that a gale is raking the upper flats too hard to haul a spinning basket safely up four hundred feet of jagged cliff.
+
+So I stay the night at the western lean-tos, feeding dried dung and rendered fat into the small orange fire pit, tossing bits of marl whenever a squat, bristled shadow creeps near the weighted hides and starts that dry, patient *tick-tick-tick* of probing pincers against the oiled leather.
+
+And that is when I understand why the long-stayers stop coming home.
+
+Two hours before dusk reaches the plain above, the sun drops behind the four-hundred-foot western collar, and the whole basin turns over in a single breath. The shadowless chalky glare snaps out. The warm updraft stalls. For twenty minutes the sky over the pit rains papery flyers—thousands upon thousands of limp wings drifting down onto the wet clay like damp ash while the cliff-hunters fold themselves muttering into the high gypsum ledges.
+
+Then the floor lets go of the day.
+
+Down in the deepest cracks where warm iron water still sweats through sheared shale, a cold, ghostly green flickers awake along the undisturbed bacterial films—sulfur-pale, never bright enough to walk by, only tracing the edges of the earth’s newest wounds like faint chalk lines drawn in the dark. Every few minutes a tremor shakes the clay under my heels and a ribbon of that cold light tears apart and winks out, only to creep back an hour later along a different crack.
+
+And out across the cooling flats, where smooth clay humps slept motionless through the midday glare, the earth begins to shed its skin. The great blind slump-backs heave themselves free of the hollows, sheets of blue-grey mud sloughing off their broad backs until their pale, glistening pink-white bellies catch the last faint sky-light, dragging wide, slick trails across the basin floor like wooden sledges pulled by invisible hands. You can hear the soft, wet suck of their paddle-feet and the clicking rivers of scavengers pouring out from beneath every tilted slab to harvest the fallen flyers.
+
+Sitting hunched beside that tiny grease-fire, my knees tucked up off the clay, my teeth humming quietly in the sweet mineral dark, I always feel the tug of it—how easy it would be to stay another day, and then four, and then let my jaw dull into that warm buzz until the floor spoke straight to my bones and the dry plain above stopped making sense.
+
+Then I tilt my head back and look straight up the black curve of the northern wall.
+
+Four hundred feet above, tiny against the first cold stars of the flats, a lone tallow lantern hangs from the projecting timber of the derrick, swaying gently in a dry wind I cannot feel down here. It looks absurdly small against six miles of living, shifting dark—just one smudge of yellow grease-flame keeping watch over a dangling thread of hemp.
+
+By dawn, when the light hits the upper rim and the leather-winged gliders pour out of their cracks into the rising heat, I am always glad to step back into the basket and feel the line pull taut beneath my ribs.
+
+That is where I belong in this world: not swallowed by the mud, not dried out by the wind above, just keeping the rope oiled, the paddles black, the burrowers rested, and the lantern lit—one steady hand on the thread that lets two worlds touch without tearing each other clean apart.

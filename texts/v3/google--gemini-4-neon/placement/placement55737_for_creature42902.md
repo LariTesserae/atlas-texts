@@ -1,0 +1,59 @@
+At first, I think I want to be one of the five.
+
+It is the easiest instinct, stepping across that hand’s-width of invisible border out of the thin, roaring cold and into the bright silence. You see them moving at the tempo of the water—broad-shouldered, matte as smoked slate, carrying the basin’s heat inside their own backs—and you want to know what it feels like to speak through the soles of your feet into warm wet basalt, or to hold your flattened hand two seconds out in the freezing sky and watch the frost vanish back into heavy liquid the moment you pull it home.
+
+But five is already a complete chord. There is a deliberate spacing to this floor, and adding a sixth would crowd the sightlines. More than that, the five remember an older house—some earlier terrace whose stone had already been rubbed round by generations of their palms. They are migrants teaching a raw cathedral of black glass how to hold them. If I belong in this basin, I do not think I came from somewhere else. I think I began here, in the sharpness.
+
+So I let go of the dwellers and test the other shapes.
+
+Not the hovering silver ring, nor the three pale ceramic plinths, nor the hair-thin violet seam on the rear wall. Those things do not live inside the pressure; they *are* the pressure, and whatever quiet logic governs them feels too far outside of feeling to wear like a body. Not the stilt-legged wader either, poised motionless on four needle-thin joints above the mirror pool—all faceted angles, surgical hunger, and bone-dry reflection. For a long moment I consider the water itself: held past its breaking point, refusing to shriek into steam, dense and trembling with an uncanny surface tension. That comes closer. There is something deeply familiar in holding a hundred degrees of heat in complete stillness, letting nothing scatter into noise. Yet the water is everywhere at once, weeping down every wall and pooling in every hollow, and I find myself wanting a single foothold. One place on the gleaming black floor where I can stay and pay attention.
+
+My weight settles closer to the fourth side—near the jagged rim where the rock simply ends above bright blue air and an endless floor of clouds.
+
+Just inside the edge, the three knee-high plinths of pale, porous ceramic jut from the dark stone in an uneven triangle. The basalt around their bases shows no sign of cutting, as if the rock simply paused where they began. Right beside the outermost plinth, a thin seepage runnel has caught in a fresh, glass-sharp fracture, and out of that fracture rises an isolated island of green—not a vast thicket, just a dense, layered rosette of broad fleshy fronds and slender jointed stalks, tucked right across the invisible boundary of the plinth’s altered air.
+
+I realize I am no longer looking at it. I am standing inside its geometry.
+
+This is where I find myself: not as a creature that walks the basin, and not as one of the silent engines that sustains it, but as the thicket growing beside the outer ceramic plinth, straddling the contour line between two different kinds of stillness.
+
+It is a strange body to inhabit, asymmetric from the root up.
+
+On the side closest to the pale ceramic stone, where the basin’s quiet regulation presses densest, my fronds cannot open wide. They grow thick, pale, and tightly curled—knuckled inward, dense as closed fists, holding their oily sheen in narrow grooves. Yet only a pace away, toward the open flat of wet basalt and the bright drop beyond the rim, my other leaves unfurl broad and lush, deep emerald and oxidized copper, overlapping in wide rosettes that drink the honest midday sun. I have no eyes, and in this bright oven I hardly need them; my own shape is how I see. Every inch of my body is a living contour map of an invisible force. If the plinth beside me shifts by even a fraction, I know it in the tension of my pale, curled ribs before the first microscopic bubble ever rises in the eastern pool.
+
+Down below, in the dark hairline cracks of the newly sheared massif, my bone-white roots grip the volcanic glass like pale fingers. The basalt here is still so young that its conchoidal scars could slice flesh clean. I press against those razor edges all day, all night, secreting my faint chalky paste—tasting the bitter mineral skin of the stone yield by the width of a hair, softening glass into something that can hold water without cutting it. I am not the only editor in this house, but I am the slowest one.
+
+Without ears, I hear the basin the only way it wants to be heard: through the floor.
+
+High frequencies die within a few paces here anyway, sheared off by the quiet lid over the sky. Nothing reaches me of the gale rushing past the mountain’s flanks just beyond the rim. Instead, the wet basalt beneath my root-mat carries everything low and near. I feel the dry *tick* of a rock seam adjusting to the sun fifty feet away. I feel the slow, heavy tread of the dwellers crossing the bare flats between thickets—a warmth in the stone before they arrive, a lingering heat in the dense air after they pass. When two of them pause a pace apart and lower their broad fronts to speak, their bass-deep cadence travels straight up through my roots and into my jointed stalks: three slow, warm pulses, like heavy stones shifted gently underwater. I do not know their names for things—whether they are speaking of a seepage line on the eastern cliff or a crack opening beneath the glare—only the steadiness of the exchange, the unhurried weight of beings who never waste a motion.
+
+And once in a long while, when the sleek clay-red young one crouches beneath my broad, dark outer fronds—holding the back of its flattened hand under the curved rib of my lowest leaf, waiting for a fat, overheated drop to swell past reason and fall onto its skin with a muted *thup*—I feel its sudden, clumsy double-thump of delight shiver through the basalt beneath me. Moments later, travelling across twenty paces of dark stone, comes the adult’s single flat, grounding tone: a hand laid gently on a ringing bell. The young one presses its smooth belly flush against the rock beside my roots, and everything goes glassy again.
+
+Because I grow near the open rim, I am among the first to feel the twenty-minute breath of the mountain.
+
+A mass of sun-warmed air climbs the sheer outside cliff from the sunlit cloud-deck far below and strikes the invisible wall two paces past my outer leaves. There is no wind, no rustle of my stalks—only a brief darkening of the air’s clarity, a fleeting weight pressing evenly down across my lacquered fronds. Then water blooms out of nothing across every millimeter of my skin. My pale curled side and my broad copper side shine at once, sheathed in a silent, near-boiling film that never hisses and never steams. I do not resist it; my oiled surfaces gather the heavy liquid and guide it smoothly down my curved central ribs, feeding it back into the tangled white grip of my roots so it can sink into the rock and begin its climb up the rear cliffs all over again.
+
+That is my rhythm. Wait, hold, channel, soften.
+
+Yet I am not solitary here. Because of the plinth beside me, I live at one of the basin’s quiet crossroads.
+
+Twice or three times in an afternoon, one of the broad-shouldered adults comes to stand inches from my pale, tightly curled side, pressing both flat palms against the porous ceramic stone. Its smoked inner lids close. Its dorsal reservoirs radiate a dense, concentrated warmth that thickens the air between my ribs, and the dark-amber membranes along its throat tremble faintly as it listens to the lid of air holding back the freezing sky. For ten minutes neither of us moves. I am used to that stillness—the stillness of checking whether the room still holds.
+
+At other times, it kneels beside my dark outer roots on its grooved rubbery pads and uses its flat porcelain chisel-nails to scrape a small measure of my chalky paste from the fractured basalt. It never tears a root, never strips me bare. It mixes my chalk in its cupped palm with fine dark mineral silt and carries it away to pack the jagged fissures along the central path, rubbing the sharp edges smooth as worn river-steps. I like knowing that what my roots make slowly in the dark ends up beneath their feet all across the floor.
+
+And right beside me, arranged in a tidy crescent just inside the narrow zone where my leaves grow thick and pale, sit the six small egg-shaped capsules of wet grey clay.
+
+I feel them curing day by day in the altered physics of the plinth—the buoyant spores and shimmering mineral dust folded inside them growing dense and hard, waiting for a winter night or a lean season, or for the distant afternoon when this basin’s quiet seal finally cracks open to the wind. Sometimes, after the hovering silver ring tilts by a hair’s breadth and the plinth beside me darkens by a single shade for the span of three breaths, I feel that brief slackening run like a sigh through my curled leaves. Across the floor, the lock loosens and the upside-down snow of microscopic bubbles lifts through the pool; here, beside the stone, my pale fronds ease by a fraction of a millimeter, only to tighten again as the ring levels and the water snaps back to obsidian stillness. A pale, stiff-winged glider detaches itself from the underside of my copper-green leaf, never beating its glassy vanes, banking silently on a rising sheet of warm air toward the next green island after drinking hot, mineral-heavy nectar from one of my translucent bladder-pods.
+
+And late in the afternoon, when the sun leans down toward the cloud-deck and throws long, razor-clean shadows from the basalt walls across the shining floor, the fourth side draws one of the adults past me.
+
+It pads quietly around my broad outer fronds, its dark hide dusted with faint chalky tide-lines of dried mineral salt, and stops two paces short of the jagged drop. I cannot see the blue abyss beyond the rim, nor the blinding floor of clouds below, but I know the edge the way a root knows a void: as a place where heat ends without transition.
+
+When the creature rises onto its hind legs and heavy tail and pushes one flattened, wet forelimb clean through the invisible boundary, I feel the skin of the basin flinch.
+
+Just for two seconds—a tiny, sharp tug in the air’s pressure, a needle of pure absence where the silence breaks outside the rim. Even through the muffled quiet, the faintest dry *tick* reaches the basalt beneath me as crystalline frost snaps across porcelain-tipped knuckles out in the thin cold air, sheared cleanly off at the wrist by the edge of the room. For two heartbeats, something impossibly cold touches a hand that was just resting against the stone beside my roots.
+
+Then the arm draws back inside. The tiny tug in the pressure closes smoothly behind it. Heavy, unboiling drops of melted frost fall from the creature’s dark palm onto the blazing basalt a hand’s width from my outer leaves—*thup, thup*—and roll quietly toward my roots, warm again before they even reach my white fingers.
+
+That is when I know most clearly who I am in this place.
+
+I am not the heart of the basin, and I am not the deep memory lying beneath the violet seam, listening to the massif groan miles below. I am the small, asymmetric thing growing at the margin—half-clenched around an invisible rule I did not make, half-opened to an honest mountain sun. I soften the sharp glass beneath me grain by patient grain. I catch the scalding water and keep it quiet. I hold my dark seeds suspended in clear liquid inside my translucent pods, waiting for a porcelain nail to pierce them and tuck them into a damp crack further along the floor—or into a capsule of wet grey clay, to cure dense and patient beside the pale stone, ready for whenever the sharp new rock needs to be taught how to hold life again.

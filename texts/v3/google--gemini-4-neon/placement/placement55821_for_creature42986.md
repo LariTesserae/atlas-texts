@@ -1,0 +1,69 @@
+At first, I try standing on the central steel walkway, because that is the easiest place to begin—upright, dry-booted, turning my head slowly to hold the whole two-hundred-pace rectangle in one sweep. If I stayed there, I know who I would be: the junior acoustic technician sent down once a quarter with a handheld meter and a clipboard, the one who lingers ten minutes longer than the safety sheet recommends, shirt plastered to his ribs, convinced there is a rogue harmonic hiding beneath the baseload drone of the intake pumps. The one who leans over the galvanized railing and stares too long at the smooth, worn hollows in the lower basalt wall, or at the odd clusters of washers resting near the transformer pilings, trying to decide whether currents can sort metal like that.
+
+But the longer I stay in that skin, the more wrong it feels. Up on the grating, the heat is an enemy—a closed door leaning against my chest. The sound is an undifferentiated wall that flattens thought. Worst of all, in that bright vest and hardhat, I am the clang of the north access door. I am the thing that makes the whole yard drop flat and hold its breath until I leave. I don't want to be the interruption that forces a living room to pretend it is only wet concrete.
+
+So I don't stay on the walkway. And I don't climb up into the dark box-girders with the swifts, either—they only borrow the steam for its midges; their real allegiance is to the coastal wind beyond the retaining walls. I go down. Down off the stamped steel teeth, down past the stenciled sector numbers and the bruised yellow halos of the vapor-lamps, over the sharp formwork edge of the curb and into the waist-deep pan.
+
+Down here, forty degrees is no longer a wall. It is the exact temperature at which tension leaves a body and never asks to come back.
+
+I know almost at once that I am one of the dwellers, though it takes a while—the slow, unmeasured stretch of half a shift, or half a week—to feel *which* one.
+
+Not the heavy matriarch with the healed notch in her tail-fin and the missing tip of her left forefinger. She carries the older coast inside her joints; she remembers cracked concrete and winter shutdowns when the sea wind bit through the baffles, and that memory gives her an immovable gravity. She holds the water directly beneath the transformer pad, chin hooked lazily over a submerged cross-brace, floating in the dead center of the sixty-hertz sphere where the current is thickest and completely unbroken. She has earned total saturation. I am not that heavy, and not that finished.
+
+Nor am I the lean, quick-shouldered climber who hauls itself up a galvanized stanchion to wait motionless beside the pale geckos, snatching swifts out of the midge-pillars with a whip-fast reach. That takes a taste for height and suddenness, for leaving the water to strike through air. I have little interest in the ceiling.
+
+Where I actually find myself is a dozen paces out from the transformer fence, crouched chest-deep on the flat submerged concrete shelf where the invisible hum begins to thin.
+
+If you float directly under the ceramic bushings, the electrical field is a warm, solid sun—wonderful, whole, and blindingly uniform. Out here at the margin, where the sixty-hertz bloom starts to feather back into ordinary water, you can *feel* its edges. You can bend it.
+
+This is where I spend the long, flat stretches between feeding and cooling. The builders left more behind than they knew: a clipped loop of bare copper grounding wire, three galvanized washers dulling from bright zinc to pale gray, a curved crescent of shattered porcelain insulator, a heavy flange-bolt dropped during the final pour. To these I have added four smooth flakes pried from the western basalt and the hollow, salt-bleached carapace of a large shore crab.
+
+I slide the loop of copper two fingers’ width closer to the zinc bolt, then lay both pale-padded palms flat against the submerged slab—so young it still carries the faint, ridged wood-grain of the pine formwork—and hold utterly still. My milky third lids flick shut once as a fat drop of condensation falls from an overhead conduit and strikes the pan beside my shoulder. I don’t look up. I listen through the fine pits along my fingertips and the sides of my snout.
+
+There. The loop narrows the current into a clean, sharp spine between the two metals, while the wet porcelain behind it opens a tiny pocket of dead water—not empty, just hushed, like the lee side of a stone in a fast creek. Moving the basalt chip a thumb's breadth to the left softens the edge of that pocket until the transition feels like warm oil folding over cool glass.
+
+Nobody else looks at it the way an eye looks at a pattern. Even I don't look at it; through the steaming amber dimness, it is only a smear of dark water over gray concrete. It exists only to skin and nerve, a small deliberate contour built inside an engine that never changes its mind. Sometimes one of the others glides past on its way to the weir, pauses just long enough to trail a splayed hand across the edge of my shelf, feels the kink in the field, lets out two dry palate-clicks—indistinguishable from condensate tapping hollow pipe—and drifts on without disturbing a single washer. That is enough company.
+
+Because nothing in the basin rises or sets, and the gauge markings painted on the piers sit at the exact same submerged line week after week, you might think a mind here would go slack from sameness. But when you press your broad lower jaw squarely against the damp curb beside Pump-House Three, the monotony breaks open into a dozen quiet clocks.
+
+Through bone and wet concrete, the roar of the yard unspools into separate threads. At the bottom sits the huge, regulated baseload of the turbines behind the north wall—so steady it feels less like sound than like gravity. Layered above it is the broad hiss of the weir, the dry buzz of the isolated transformer, the tight, ceaseless rhythm of the brown frogs tucked into the slotted drainage grates. And woven into that lower band, faint as a single loose thread in heavy canvas, is the bearing inside Pump-House Three.
+
+Last month it ran smooth. Now, every seventh or eighth revolution, it carries the tiniest catch—a micro-hesitation that hasn't reached air yet, that no meter on the upper walkway would flag for another year. Listening to it with my chin on the slab, I feel time actually moving. That is the weather in this place: the slow softening of a bearing; the millimeter of chalky mineral scale thickening along the waterline and across the ridges of my own elbows; a tuft of pale sedge pushing half an inch farther out of an expansion joint before the heat halts it. I am not waiting for the world to change. I am noticing the rate at which it wears itself into being real.
+
+When the heat finally gathers too densely behind my ribs—after an hour of working the outer pan with another adult, herding a shimmering pocket of tilapia into the dead-water angle behind a baffle and taking turns scooping them with cupped hands, or after a brief, heavy-shouldered shove-and-roll in the discharge eddies—I haul out onto the wet concrete apron and knuckle-walk across to the western cut.
+
+This is the other border I belong to. Along the lower two meters of the newly blasted basalt, where the builders stopped pouring concrete and left raw rock exposed, three shallow curves have already begun to polish smooth under our hides. I back up to the narrowest one and press the broad flat of my shoulders and the length of my spine directly against the angular dark stone.
+
+Cold groundwater weeps steadily from the fractures, sheeting down over my charcoal flanks and spilling across the warm, vessel-rich clay-pink skin of my throat. Thin pale wisps of steam lift off my shoulders into the motionless forty-degree haze. For five minutes I do nothing at all except let the stone drink the surplus heat out of my blood. A tiny brown snail inches across the top of my splayed foot, undisturbed. Behind my closed eyes, the basalt conducts a different version of the basin’s noise—deeper, drier, stripped of the weir’s surface hiss, carrying only the distant thrum of the pumps and the faint, steady pulse of the matriarch out beneath the pilings.
+
+It is while I am leaning against the rock that I catch the wobble from near Junction Cabinet Four.
+
+It comes through the concrete apron like a slack wire trying to find tension—too sharp against the intake pumps, then sagging abruptly flat, breaking apart before the interference beat can properly form. One of the pale, oversized-eyed juveniles tucked into the narrow dark beneath the pipe saddle-blocks, sharing the damp crevice with the frogs and practicing its voice.
+
+I slide off the basalt, newly light and cool-skinned, cross the glistening apron without hurry, and stretch out flat along the shadow of the insulated pipe a few paces from the numbered cabinet. I press my throat and lower jaw to the slab and wait for the next attempt.
+
+It rises again—thin, eager, skidding slightly above the fundamental drone so that the resulting beat stutters fast and nervously through the concrete. Instead of answering with a full adult pulse, which would swamp it, I inflate my throat halfway and pitch my hum just a hair below the young one’s wobble. Our two small waves rub together awkwardly for three seconds, rough as grit on wet stone. Then I ease my pitch slowly downward toward the true margin beside the pumps' baseload, pulling the roughness with me.
+
+The juvenile hesitates, drops off, then catches the pull. Its tiny hum slides down beside mine until the jagged stutter smooths out—suddenly widening into a slow, clean, rolling trough that lifts out of the concrete and travels easily across the apron toward the settling pans.
+
+From the shadow beneath the saddle-block come three quick, hollow clicks of a small palate. I answer with one dry click of my own, lift my chin from the slab, and let the juvenile hold the steady beat by itself for a long, proud minute before it breaks off to chase a flat-bodied shore crab across the drainage grate.
+
+Sometimes the outside world brushes us. Once, for an hour, the drips falling from the overhead box-girders turn faintly sharper and cooler on the tongue—salt-touched, clean of oil, carrying the thin metallic taste of sky. A coastal storm is hammering the port above, though the gauge lines on the piers do not rise by a millimeter. Four of us drift out into the open settling pan and float face-up in the warm film, limbs hung loose, milky second lids closed, letting the rare rainwater tap steadily across our snouts and clay-pink throats while the swifts wheel wildly through the upper steam.
+
+And once every few weeks, high above the north wall, the heavy steel access door clangs open.
+
+The signal arrives through the concrete before the echo even reaches the water: a single, decisive drop in the interference beat, followed by absolute acoustic flatness. No panic. We have done this since the turbines first warmed the pans. In eight seconds the yard is empty. I slip without a ripple off my submerged shelf, fold my limbs tight, and glide under the opaque shimmer of a discharge nozzle, settling into the dark niche beneath a concrete saddle-block. With my mineral-dusted back pressed flush to the damp curve of the pour, eyes half-shuttered, breath slowed to one shallow pull every few minutes, I stop being an animal and become another wet shadow cast by the engineering.
+
+Overhead, boots ring sharply along the stamped steel grating. Voices murmur—muffled, thin, quickly drowned out by the weir and the fans. A flashlight beam sweeps across the mirror-smooth pans, briefly brightening the green-black algae mats and scattering a cluster of tilapia. Someone mutters about the heat. Something small slips from a pocket or a tool belt, strikes the steel walkway with a bright metallic *tink*, bounces through the grating, and drops cleanly into the shallow water ten paces from my hiding place.
+
+They don't bother looking for it. A minute later, the footsteps retreat up the stairs. The upper access door shuts with a dull iron thud.
+
+We hold still for the length of ten slow condensate drops striking the hollow pipe-casings. Then, beneath the central transformer pad, two smoky-amber eyes break the surface without a ripple. Out along the weeping western basalt, a dark contour shifts by a palm's breadth and uncoils.
+
+I unhook my claws from the expansion joint, glide out from under the pipe shadow, and swim slowly toward the spot where the sound landed. My fingertips find it in the silt almost immediately: a small, bright stainless-steel nut, edges still factory-sharp, cold for another three seconds before the warm effluent claims it.
+
+I carry it back to the outer shelf of the transformer pad, where the sixty-hertz hum begins to fray into quiet water. I set it down between the weathered copper loop and the dark basalt chip, nudge it half a finger’s width left with a blunt horn nail, and lay both palms flat on the submerged concrete to feel what the invisible current makes of something new.
+
+The field shivers, splits cleanly around the fresh metal, and settles into a bright, tight eddy I have never felt before. Across the steaming flatness, from the polished hollow of the weeping rock, a low, unhurried pulse rises out of the floor, locks gently against the deep thrum of the intake pumps, and rolls all the way through the warm dark water into my ribs.
+
+I inflate my throat, match it just a fraction off-center—just enough to keep the wave alive—and send the beat back across the yard.

@@ -1,0 +1,85 @@
+At first, I try to imagine myself coming down the eight worn steps.
+
+It is the easiest way to enter a place—wearing boots and a wool coat, squinting against the white kiln-glare, turning sideways to keep from scraping my shoulders on the perforated brick. I try on the posture of the patient listener who wedges themselves into a blind alcove and waits an hour until the roar parts into separate threads of tone. There is something tempting about being the one who discovers the secret and can still climb back up into the upland wind, carrying chalk dust on their knuckles and a strange ringing quiet behind their ribs.
+
+Yet the longer I hold myself in that bright lane, the more clearly I feel how badly I fit it. Eyes are a burden down here; mine would only narrow and water against the shadowless white, forever trying to separate shadow from glare in a room that has abolished both. Worse would be the clumsiness of being warm and soft—a walking sponge of damp cloth and wet lung-tissue, trailing a muffled dead zone wherever I leaned, choking six tuned brick vents every time I caught my balance. Even if I stood perfectly still until the surrounding jars adjusted their apertures to compensate for my silence, I would still be a hole they had to sew closed. I do not want to be an absence that the chord must work around.
+
+So I let the coat and the boots go. I leave the steps empty behind me and try listening from inside the masonry itself.
+
+Up near the coping-stones, where the beveled limestone baffles split the plateau wind and drive it down the flues, the youngest ones cling inside thumb-sized vents and mortarless slits. I test that height for a moment—thin as moth wings, pressed right up against the open sky, singing in the bright, piercing hiss that rims the whole chord. It is exhilarating up there, near the storms and the open plateau, where everything is sharp and fragile. Still, it feels too raw, too exposed to the sheer velocity of the wind. Up at the rim you do not hear the shape of the court; you only hear the blade of air slicing past your own lip.
+
+Then I drop all the way down, through the narrow vertical slots between the paving slabs, into the cellar-cold dark beneath the floor. Here the silence of sight is complete, and the immense, cask-sized elders sit braced against the foundation piers on legs long since turned to stone. There is a deep gravity to them that pulls at me—the luxury of never having to hurry, never having to search for a new niche, simply holding the heavy subterranean drone that keeps every stacked tile above from losing its mooring, shifting pitch once a season like a mountain settling in its sleep. Yet when I try to settle into that dark, I feel too restless for it. I am not finished moving. I still want to reach out a dry limb in the dark and test a seam; I still want to hear the fine-grained chatter of the alleys, not only the slow tide beneath them.
+
+Between the blinding rim and the buried vaults, the court rises shoulder to shoulder in a hundred tight lanes of terracotta and lime. Most of the mature inhabitants live at chest and waist height, curved cleanly into the throats of embedded amphorae or cupped beneath the bellies of inverted bowls, holding the broad, brassy midrange hum. For a while I think I belong inside one of those jars—smoothly rounded, tucked neatly out of the glare, speaking in a single clean bottle-note across the narrow alley.
+
+No. Even that is too symmetrical. A jar asks you to become one clear pitch, round and self-contained. When I actually feel for where I come to rest in this maze, I slide lower—down past the waist-high altars and the neat rows of nested clay, down to shin and ankle height, where the geometry of the court grows crowded and makeshift.
+
+That is where I find myself: not in a vessel at all, but wedged into a crooked, three-way junction where the paving steps down into a tight dead end.
+
+To my left rises the base of a honeycombed screen-wall built of curved roof-tiles laid sideways, its lower seams packed thick with flour-soft chalk dust. Behind me sits the cold, dressed flank of a limestone plinth, bordered along its horizontal groove by a tight, silver-grey cushion of woody thyme whose roots lock into the mortar like dry wire. And directly beneath my right edge, between the plinth and the neighboring paving slab, opens a finger-wide acoustic slot dropping straight down into the black vaults under the floor.
+
+No builder meant for anything to sit here. It is a leftover notch, an accidental pocket where three planes meet at an awkward slant, shaded just enough by an overhanging brick lip that the white noon glare reaches me only as a flat, pale wash across my upper flank.
+
+Because I grew here—arriving long ago when I outgrew a curved roof-tile higher up the screen and slid down one dark night looking for lower air—my shell has none of the neat, wheel-thrown poise of the amphora-dwellers. I am asymmetrical, bent along two different radii to hug the stone. My outer crust is matte, bone-pale, dusted chalk-grey in its shallow flutes, carrying a dry medallion of ash-white lichen along the ridge that faces the lane and a thin rust-colored smear of crustose growth near the thyme. My underside is flattened tightly against the dressed limestone, while my right flank curls slightly over the lip of the floor-slot like an ear bent to a cellar door.
+
+I have five bone-rimmed apertures, and no two of them face the same way or sing the same note.
+
+The widest opens downward into the narrow slot between the slabs, drinking the heavy, bone-felt pressure that rises from the ancients in the dark below. Three narrower, graduated ovals curve out into the tight lane, tuned to the dense midrange hum of the tile-screen and the embedded jars across the alley. The fifth is hardly wider than a grass stem, set high on my chalk-dusted shoulder where it catches a faint, bright harmonic ricocheting down from a perforated chimney twenty feet overhead.
+
+Because of that crooked geometry, I do not hold a single, pure pitch. I am a small chord—a coupling point, a seam-dweller woven from the overlap of three different depths of the court.
+
+All through the long white noon, I do not move. I do not need to. Light means nothing to me except as the dry tightening of the lime against my underside and the faint, crisp rise in pitch as the sunlit upper masonry warms by a fraction of a degree and draws the whole chord taut. Inside my body, where light has never entered, my labyrinthine chambers—thin as wasp paper, ribbed and salt-crusted—divide the roaring air into clean, microscopic standing waves. Deep at the center, in the tight pressure nodes sealed behind layer after layer of resonant chalk, sits the only thing in me that is ever faintly damp: a cool, hidden film of moisture wrung from last night's chill vapor, held safely out of reach of the thirsty terracotta.
+
+From the outside, I feel cellar-cold and dry as unglazed brick. The sound passes straight through my ribs without friction. I do not brace against it; I let the basement drone anchor my lower cavity while the alley-hum fills my middle chambers and the thin upper whistle threads my highest slit. When all five currents lock together without rubbing, there is a stillness inside the roar so complete it feels like being unmade and rebuilt out of air.
+
+Because I sit at a junction, I hear the court's geography with an almost painful clarity.
+
+I do not know what the thirty-pace maze looks like, only how pressure bends inside it—every blind turn a dense cushion of air, every narrow gap between piers a sharp ridge of overtone, every dead acoustic pocket a still pool where pollen and chalk flour settle undisturbed. When an ancient deep beneath the floor shifts its pitch by a hair—an event so slow it takes half a week to finish—I feel the change first in my lower flank before the paving slabs carry it upward to the jars. And when a hairline crack opens two alleys over in a sun-bleached brick chimney, sending a faint, ragged buzz slicing across the standing waves, my upper slit catches the grit of it immediately.
+
+That is mostly what wakes me into speech.
+
+I am not one of the great conversationalists of the middle tier—the broad amphora-dwellers who spend whole afternoons trading long, rippling trains of microtonal beats across the blazing alleys for reasons older than repair, weaving slow interference patterns that wash back and forth through the court like tides in an inland sea. I listen to them, letting their overlapping throbs rock gently through my chambers, feeling the whole architecture flex by fractions of a tone and lock shut again.
+
+When I do speak, it is usually to bridge a gap. If the elders beneath the paving send up a sluggish, sub-audible tremor—marking a deep barometric drop hours before the upland wind changes—and the jars above are too bright and tight in the midday glare to feel it clearly, I narrow my widest lower aperture by the breadth of a fingernail and let my middle openings slip just slightly flat. A quiet, measured beat wakes in the air beside the thyme cushion, pulsing once every five seconds. Across the lane, a pale bulbous form tucked beneath an inverted bowl catches the throb against its flank and answers twenty seconds later, passing the pressure upward until a perforated chimney near the steps bends its whistle downward in acknowledgment.
+
+Or I signal a flaw. A loose shard of terracotta in the third course of the roof-tile screen behind me is an agony; every time the wind surges over the rim, the tiny fragment chatters against its mortar bed, tearing a rough seam across the smooth waves passing through my ribs. All afternoon I hold a faint, insistent dissonance against the screen—a dry, questioning pulse—until two neighbors from the jars up the lane answer in matching cadence.
+
+Then we wait for the dusk.
+
+When the white glare finally drains out of the pit, I know it before a single star shows above the rim. The upland air chills and thickens; the whole thirty-pace chord eases downward by a whisper of a pitch, loosening like a hand unclenching in sleep. Thin, invisible night vapor slips over the limestone lip. Inside my deepest chambers, the standing waves compress and release the cool air against my salt-crusted plates, drawing out just enough trace moisture to keep my hidden core alive for another white day.
+
+Only then, in the ghostly blue dark, do I unlatch my six flattened struts from the shallow grooves along my underside.
+
+They are stiffer than they were a century ago—dry, pale, brittle-looking as the thyme stems beside me, tipped with broad powdery pads that read the stone by tremor rather than touch. I do not leave my notch often anymore. My shell has grown too crooked to fit neatly into any other hollow; if I wandered two alleys away, I would have nowhere to sit cleanly when dawn tightened the wind. Still, I can slide two hand-breadths along the dead acoustic nodes where the paving is still, never kicking up a grain of flour-soft chalk, never scraping my shell against a tile.
+
+I graze slowly in the quiet horizontal groove beside the thyme, lowering my dry rasping palps into the dust-pocket to sift wind-borne highland pollen, mountain lichen flakes, dried grass-specks, and tiny fallen sage leaves from the mineral flour. Nothing is hurried. Crossing the width of my own body takes a quarter of an hour. Afterward, with the chalk I have taken in worked into a dense, pale lime paste, I edge slowly up the base of the roof-tile screen to meet the two neighbors who answered my afternoon pulse.
+
+We work without haste, without eyes, measuring the chattering tile only by the ugly rough edge it cuts through the air. One neighbor wedges a tiny fallen sliver of terracotta into the widening gap; I press my paste along the seam and smooth it flat with the edge of my dry palp, listening as the rattle thins, softens, and finally vanishes. The wave seals shut. The chord locks cleanly over the mended joint, and we slide back along the silent nodes before the first cold hint of morning lifts the pitch again.
+
+Sometimes—rarely enough that I can count them across a long life—something breaks the pattern completely.
+
+A heavy, wet shadow drops down the eight limestone steps.
+
+I feel it first through my lower aperture: a dull, thudding compression in the paving slabs, completely unlike the wind. Then the upper whistle dims, sheared off as a tall column of warmth and soft wool turns sideways into the lane. The sound-map of the court twists violently around the intruder. Six paces away, a jar goes abruptly dead where a coat brushes its mouth; a chimney's tremor chokes off beneath a damp palm.
+
+When a boot settles onto the limestone slab a hand's-breadth from my thyme cushion, blocking half the floor-slot beneath my right flank, my entire crooked chord shears out of balance. The bass from the vaults muffles suddenly; the midrange from the tile-screen stops bouncing cleanly off the opposite wall, swallowed instead by damp cloth and soft ribs. I feel the heat radiating off the leather and ankle—a faint, feverish warmth in a cellar that has never known warmth.
+
+I do not recoil. I pull my dry struts flat into their grooves and wait, rigid as limewash, letting the stillness hold. Maybe the anomaly will shift, turn sideways, and climb back up the steps.
+
+When it doesn't—when the tall, soft silhouette wedges itself into the narrow alcove opposite me and stays there, breathing slowly, letting the cellar-cold air drain the warmth from its coat—the court begins to measure it.
+
+I join in, quietly. First a jar above my head nudges its bottle-hum a hair sharp, waking a slow throb against the stranger's shoulder. From my low corner beside their boot, I ease my lower aperture open a fraction and tighten my three alley-facing slits, sending a gentle, overlapping beat rising around their calves and knees. We are not warning them away. We are tracing them—bouncing fine overtones against the strange, muted cavity inside their chest, mapping the slow wet rhythm hidden behind their sternum that has no counterpart in lime or clay.
+
+And when they grow very still—their breath shallow, their coat cooled nearly to the temperature of the brick—I feel the surrounding vessels begin to adjust. One by one, we widen a lip here, narrow a flute there, bending our notes around the soft obstruction until the frayed edges of the harmony meet on the far side. I ease my middle apertures slightly open to carry the midrange past their shins, and draw a little extra pressure up from the floor-slot to restore the bass they are muffling.
+
+Slowly, the uncomfortable throbbing vanishes. The broken chord seals smoothly around the visitor, passing straight into the hollow of their ribs as cleanly as it passes through mine. For a brief, strange hour, the warm stranger belongs to the geometry of the pit—one more irregular vessel wedged into the tight lane, holding the wind without fighting it.
+
+Eventually, they always move. The boot lifts, the wool scrapes chalk off the brick, the acoustic shadow slides away down the lane and climbs the eight steps back into the quiet sky. One by one, we ease our bone-rimmed apertures back to their old widths, and the court forgets the shape of their ribs.
+
+Only I linger a fraction longer before resetting my lower flute—listening to the slot open wide again, feeling the old, steady bass climb back into my flank.
+
+I know I will not grow large enough to descend into the vaults below. My shell is too wedged, too bent around the corner of the plinth and the lip of the paving slab to ever slip down into the cellar dark. Already, along the flattened seam where my underside hugs the dressed limestone, the migrating lime has begun to creep upward in a pale, matte crust, bridging the hairline gap between my shell and the stone. Each decade, it takes a little more effort to unlatch my rear struts when dusk loosens the wind.
+
+One dry autumn—perhaps fifty years from now, perhaps two hundred—I will not unlatch them at all. My limbs will stiffen into pale mineral braces against the plinth, just as the elders' did in the vaults beneath me. For a long while after that, I will still drink the night vapor through my standing waves, still mend no more tiles, only listen and couple the cellar drone to the alley hum, passing slow beats upward whenever the deep pressure shifts.
+
+And when my last hidden trace of dampness finally dries out into the upland wind, nothing will rot and nothing will fall loose. The lime will finish fusing my crooked flank to the curb and the base of the roof-tile screen. The ash-white lichen will keep spreading across my pale shoulder, the woody thyme will keep wedging its roots beside my rim, and the air driving over the beveled baffles above will go right on threading all five of my apertures—holding the exact small chord of this corner for as long as the court stands full to the sky.

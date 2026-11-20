@@ -1,0 +1,115 @@
+If you walk the avenues for a single day, you can leave believing the gliders and the armored grazers are all the plateau holds. The city is too open for secrets, and the light is too flat to hide a moving thing; anything larger than a hand, crossing half a kilometer of bare wet slate, should announce itself immediately.
+
+You only begin to see the others when you stop scanning the plazas and start looking at the geometry of the towers.
+
+Halfway up a hollow basalt pier, thirty meters above a transformer plinth, a dark shape clings to the underside of a ceramic cross-beam. At a glance it is an extra gusset plate, or a bundle of old insulated cabling rimed with turquoise scale. Wait ten minutes—wait until a long iron tie-rod ticks in the heat and a thick drop of condensate detaches itself from the girder above—and the shape adjusts its weight by a hand's breadth. Two long, slender limbs unhook from the rivets. It turns, slowly and without urgency, and the ash-colored light of the sky passes straight through the middle of its body.
+
+They are built on the same principle as the city: very little solid matter, arranged around a deliberate void.
+
+Seen closer, down at street level when one descends a corner pier to walk the copper-inlaid kerb, they are tall—nearly two and a half meters when they stand upright—yet disturbingly spare, as though drawn out by long tension. Their skin is dark, smooth, and permanently slick, the color of wet slate or steamed basalt, catching the dim overhead glare with the same muted sheen as the paving tiles. Where their collarbones, elbows, and long ankles meet the humid air, thin rimes of pale silica and iridescent bismuth-scale bloom directly along the ridges of their flesh, like frost on the hottest iron joints.
+
+Their torsos are not closed. From the base of the narrow throat down to the pelvis, the chest is an open, arched basket of dark, mineralized ribs—smooth and hard as kiln-glazed ceramic, spaced wide enough that you can read the numbered porcelain plaques of a distant tower right through them. There are no lungs inside that cage, and no pounding heart. In air this thin and scalding, drawing heavy breath in and out would burn a creature alive from the inside. Instead, hung across the sheltered interior of the ribcage like damp sails inside a lantern, are folded curtains of translucent, pale amber-violet membrane. As the hot vapor rises off the pavement, it passes straight through their open middles, sliding across those wet internal pleats, condensing into tiny films that deliver dissolved oxygen, heat, and trace sulfur directly into their tissues before drifting out between their shoulder blades.
+
+When the air goes stagnant before an exhalation, you can watch their ribs flex gently outward and back—a slow, silent pulsing, identical in rhythm to the bimetallic louvers on the cooling-spheres—coaxing a mild vertical draft through themselves.
+
+Even their circulation belongs to the municipal grid.
+
+Notice how carefully one walks along a boulevard. It does not stride carelessly across the broad dished paving tiles; it sets its long, splayed, dark-soled feet squarely onto the copper-inlaid kerbs, moving with an unhurried, liquid deliberation. Beneath the thick pad of each heel and palm lies a dense mat of conductive, copper-darkened tissue, while the four slender fingers of each hand end in pale, blunt nails of pure insulating silica. As long as a foot or hand bridges the wet stone and the charged metal, the city's steady direct current bleeds gently upward through the fine, mineralized capillaries of its legs. Fluid climbs inside its body by slow electro-osmosis—the same quiet force that pulls glassy films of water up the basalt pillars—requiring no muscular pump, wasting no metabolic heat.
+
+To step far out onto uncharged stone, away from the kerbs and buried conduits, is not fatal to them, any more than holding your breath is fatal to a swimmer. They cross the wide bare plazas when they must, leaning slightly forward, their internal curtains fluttering a little faster. Still, you can feel the relief in their posture the moment a bare heel touches the next copper strip: the slight settling of the shoulders, the quiet straightening of the neck, as the current takes up the weight of their blood again.
+
+***
+
+Their faces give very little away at first. The head is narrow, smooth, and tilted slightly downward, as if always listening to the stone beneath its boots. Where eyes should sit are two pale, recessed lenses clouded with a permanent salt-fog film—good enough to distinguish the dim slate horizon, the distant amber filament globes, and the hair-thin halos of blue corona light spitting from wet insulators, though useless for fine detail in a world without shadows.
+
+They do not navigate by sight anyway. Along the underside of the jaw, down the outer edge of each forearm, and fanning softly behind the narrow shoulders run rows of dark, hair-fine filaments, each tipped with a microscopic bead of precipitated metal. Through those filaments, and through the soles of their feet, the entire plateau is legible at once.
+
+In a city coated from rim to rim in a single unbroken film of mineral-heavy water, nothing moves in isolation. Every step onto a wet kerb, every hand laid against a riveted girder, introduces a tiny impedance—a shallow, moving shadow in the direct current flowing through the district. Standing motionless at the edge of a plaza, one of them can feel another resident leaning against a pier four hundred meters away, simply by the faint, warm dip in voltage arriving through the damp slate. They feel the submerged substations humming beneath the lower avenues as a steady bass note in their shins; they feel the distant drop of a counterweight inside a corner column as a crisp tremor climbing their ankles; they feel the heat-thickening of an approaching steam surge long before the first white wisps curl out of the median grates.
+
+What looks to an outsider like utter solitude—one lone dark figure perched on a viaduct, another half a kilometer east kneeling by a transformer plinth—is in fact a quiet, continuous awareness. They live inside a shared circuit the way fish live inside a pond.
+
+And they speak through it.
+
+They have no voices for the open air; the thin, scalding vapor swallows sound too quickly, and the constant patter of hot rain drowns anything softer than a clacking sluice-gate. Instead, their conversation is a craft of resistance and frost.
+
+Watch one kneeling beside a low junction pier after the mist ebbs. It reaches out with a pale silica fingernail—carefully insulated, never shorting the gap unintentionally—and nudges a tiny sliver of fallen basalt or a twist of oxidized wire into the narrow wet seam between a positive strut and a grounded flange. Then it rests two conductive palms on either side of the joint and holds utterly still for twenty minutes, letting its own body regulate the trickle of current crossing the damp gap.
+
+Under that patient voltage, the steam begins to precipitate. Delicate pale silica lacework and powdery turquoise verdigris grow outward from the rivets in fine, deliberate ridges—branched, stepped, knotted in patterns too clean to be mere weather. To an uninformed eye passing an hour later, it is only another patch of mineral bloom riming a hot bolt. To another resident who pauses there a day later, lays a wet palm over the crust, and reads both its delicate electrical drag and the ridges beneath its fingertips, it is a message: *the southern cisterns are running hotter; a rich seam of sulfur slime has thickened below the third viaduct; I waited by the eastern sphere; I went toward the rim.*
+
+Nothing they write is meant to last forever. The slightly acidic rain softens the silica within a few weeks; the armored grazers creep out from beneath the transformer hatches and rasp clean lanes straight through the turquoise letters. Sometimes a resident, finding a grazer chewing through a fresh ridge of crust, will gently tap its kiln-pale shell with a silica nail. The little creature clamps down hard against the hot stone, turning back into a bolted junction cap, and the tall figure simply moves two paces up the pier and begins again on higher iron.
+
+They do not begrudge the grazers. In the dry-seamed pockets tucked inside the hollow piers, you can sometimes find empty grazer shells that the residents have collected after the small animals die—smooth, non-conductive domes of pale silica and calcium. They use them as tiny insulating thimbles when bridging high-voltage joints, or hold the concave rim pressed flat against a humming viaduct girder and tilt their narrow heads into it, listening to the magnified, deep-water murmur of the buried induction coils miles away.
+
+***
+
+For sustenance, they take almost everything from the same thin seams that keep the city alive.
+
+The voltage gives them half of what they need—the quiet electrical push that drives their slow chemistry and seals small tears in their dark, rubbery skin. For the rest, they tend the only flora the plateau permits. Down in the lowest sunken yards, where scalding runoff glides continuously over blackened iron grates, the rubbery ochre and charcoal sulfur-slimes cling like wet paint. Left to themselves, the slimes grow thin and patchy, choked out where mineral crust seals the grate teeth shut.
+
+In the quiet intervals between mist-tides, the residents descend into those steaming trenches. Using thin shards of snapped ceramic cross-bracing, they carefully scrape away excess scale to keep the hottest sulfur vents open, and lift slick, glistening ribbons of the ochre skin from the iron. They do not have mouths built for chewing; instead, they slip the warm, oily sheets directly between the dark ribs of their chests, laying them flat against the damp amber-violet curtains inside. Over the next several hours, as hot vapor rises through their open frames, the slime softens, dissolves into the film of condensate, and is absorbed cleanly into the membranes, leaving only a faint smell of wet chalk and iron behind.
+
+Between feedings, they are mostly still. A being that does not burn food for warmth has no need for haste. One may perch on an upper tower cross-beam for six hours without shifting more than an inch, drinking the faint, precious coolness of the high ironwork—three or four degrees less scalding than the streets below—while fat drops of condensate bead along its collarbone and fall thirty meters into the tiled sumps beneath.
+
+Up there in the open scaffolding, they share the empty air with the translucent vellum gliders. The two species take very little notice of one another, except in one respect: the gliders can read invisible shifts in the rising thermal plumes long before the steam thickens enough to show them. When a resident perched high on a viaduct watches three or four pale diamond-membranes detach from the shadowed beams all at once and bank steeply toward the western quarter, it knows a deep pocket of hotter air is climbing out of the lower grates. It hooks its heels around the iron and prepares to descend.
+
+There is only one thing in the city that makes them move for the sheer pleasure of speed.
+
+When a cistern float-switch trips somewhere down the slope and the lone maintenance carriage glides silently out of the haze along its elevated monorail—an open iron flatbed with no seats, no cab, only a heavy ceramic counterweight and a brass collector arm spitting faint blue sparks—a resident waiting on an empty concrete landing will sometimes step quietly onto the wet deck as it rolls past.
+
+They do not stand upright on it; the live rail is too close, and the rush of air too sharp. They crouch low beside the heavy ceramic counterweight, gripping the dripping iron lip with their insulated nails, and angle their open, ribbed chests squarely into the wind of the carriage's passage. For creatures that spend nearly their whole existence in heavy, motionless steam, the sudden forced draft tearing across a kilometer of open void is intoxicating. Vapor rushes straight through their internal curtains in bright, scalding ribbons; the hum of the collector shoe vibrates straight up through their hunched knees into their skulls; tiny needles of blue static prickle along the sensory filaments of their jaws. Sometimes two will ride together, crouched back-to-back on opposite sides of the counterweight so their body heat does not mingle, letting the unmanned flatbed carry them through three silent quarters before they step effortlessly off into the mist at a distant platform and walk the long way home along the kerbs.
+
+***
+
+In the clear, dim hours, they keep their distance. When a city has no walls, space itself is courtesy. Even two residents crossing the same plaza will pass thirty meters apart, acknowledging one another only with a brief, subtle pulse of lowered resistance through the wet stone—a quiet *I see your shadow on the line*—before continuing on toward their own piers.
+
+Then the plateau exhales, and the walls arrive.
+
+As dense banks of white, scalding mist well up from the median grates, erasing the slate avenues to waist-height, then shoulder-height, until the skeletal towers seem to float untethered in bright chalk-smelling vapor, the whole tenor of their presence changes. Visibility collapses to two arm-lengths. The wet insulators overhead begin to spit their pale-blue corona halos; the hidden counterweights slide down inside the corner columns with their muffled *shhh-clack*; the bimetallic louvers built into the vast hollow cooling-spheres groan slowly open.
+
+Down from the high cross-beams, out from beneath the viaducts and sunken transformer lips, the residents come into the blinded streets.
+
+They walk faster now, leaning into the whiteout, guided entirely by the hum underfoot and the soft, crisp *tick-tick* of silica nails tapped deliberately against the brass catch-basins. They converge on the lower districts, slipping through the wide louvered ribs of the cathedral-sized cooling-spheres while the steam churns thick and bright inside the dark domes.
+
+Even here, they do not crowd. Eight or twelve of them—a rare gathering, drawn from kilometers of grid—will arrange themselves around the lower curve of the hollow sphere, perched along the broad iron ribs three or four meters apart, facing inward toward the swirling empty center. For a long while, nobody does anything except let the hot cloud roll through their open chests as the great dome groans and expands around them.
+
+Then one of them lays both dark, conductive palms flat against the riveted iron rib beneath its knees. A second follows, then a third, until the whole ring is grounded into the same sweeping curve of charged metal.
+
+What happens next makes almost no sound in the air—only a faint, damp hiss, like water warming in a sealed kettle. Inside the iron itself, however, the dome wakes up. By subtly tightening and loosening their wet internal curtains, shifting the moisture along their palms, and flexing their mineralized ribs in slow, deliberate rhythms, they modulate the direct current running through the ribs of the cooling-sphere.
+
+Waves of shifting voltage and fine, almost sub-audible vibration travel through the blackened iron from one resident to the next. They answer one another in slow overlapping phases—a long rising hum from the north curve met by a rapid, dry-clicking stutter of resistance from the east, weaving in and out of the natural groan of the expanding bimetallic louvers and the steady bass pulse of the substations beneath the floor. It is neither speech nor music in any sense that depends on ears, yet it carries everything they have accumulated across weeks of solitude: the heat of a particular trench, the slow creep of a hairline fracture sealing itself in a viaduct pier, the memory of a bright corona storm, a loneliness shared without ever crowding another's skin.
+
+Now and then, before the steam thins and the louvers begin to groan shut again, two of them will rise from their separate ribs, walk slowly across the slick dished floor of the dome until they stand a single pace apart, and extend one slender hand each. They do not embrace—pressed chest-to-chest, their open ribs would trap suffocating heat and tangle their delicate membranes. Instead, they bring the conductive pads of two damp knuckles close without quite touching.
+
+A single bright, hair-thin needle of pale blue spark snaps across the wet gap between them.
+
+It lasts less than a heartbeat, smelling sharply of hot copper and ozone. Through that tiny bridge pass dissolved ions, trace salts, microscopic chemical signatures of where each has been and what slimes and waters it has fed upon—and a sudden, clean flash of physical presence that lingers in the nerves of the arm for hours afterward. Then they draw their hands back, step apart into the fading mist, and return to their separate towers before the ash-colored light clears enough to expose the avenues again.
+
+***
+
+How they begin, and how they end, is why no traveler ever finds their nurseries or their graves.
+
+When two—or sometimes three—choose to leave something after them, they seek out one of the dead-air pockets tucked high inside a hollow corner column, above the reach of the descending counterweights, where the steam hangs warm and still and the falling drops do not strike directly. There, working patiently over several mist-tides, they weave a small cradle out of scavenged filaments of corroded copper wire and brittle silica struts, spanning the narrow gap between a live tie-rod and a grounded seam of basalt.
+
+In the quivering film of electro-osmotic water pooling at the center of that web, they deposit a dark, glistening sac no larger than a closed fist—dense with amber-streaked slime, mineral salts, and living membrane—and leave it bridged directly across the quiet trickle of voltage.
+
+Over the span of three or four years, the current builds a body inside the sac the same way it builds lacework along the rivets. Fine cartilage and silica precipitate along the electrical lines of force, branching, arching, and hollowing out into a miniature basket of ribs. The parents—and any passing resident who senses the tiny, persistent hunger pulling gently at the voltage of that pier—pause beside the column every few days. They adjust a sagging copper thread with an insulated nail, flick away any armored grazer creeping too close to the web, and smear fresh ribbons of ochre sulfur-slime onto the wet sac so its current can draw the iron inward.
+
+When the casing finally splits, what climbs clumsily out onto the shadowed ceramic beam is pale, almost completely translucent, no wider than a spread coat—all fragile glassy struts and trembling violet membrane. For its first few seasons, perched high in the dim scaffolding while its skin darkens and its silica nails harden, an observer glancing up from the street would swear it was simply an unusually restless vellum glider that had forgotten how to leap into the thermal plumes. Only when it descends its first pier, sets its tiny dark heels awkwardly onto a copper-inlaid kerb, and feels the city's quiet current climb its legs for the first time does it begin to walk like the rest of them.
+
+And at the far end of a long life—decades, perhaps centuries; it is impossible to tell in a place without seasons or shadows—the same chemistry that built them quietly reclaims them.
+
+Age here is a slow mineralization. Over the years, the bismuth-scale and pale silica frost along a resident's joints grow thicker and refuse to flake away in the hot rain. Turquoise verdigris creeps along the edges of their open ribs, stiffening the ceramic-hard arches so they flex less easily in stagnant air. Their internal resistance rises; it takes longer for the electro-osmotic film to climb their legs, and the wide plazas begin to feel impossibly broad to cross.
+
+When one knows the end is near, it does not lie down in the street to be stepped over.
+
+Sometimes it climbs to the highest cross-beam of a skeletal tower in its own quiet quarter. More often, if it still has the strength in its stiffened legs, it makes a slow, days-long journey along the copper kerbs toward the far western edge of the basin—the abrupt terrace where the gridded streets stop without a railing, and weathered stone piers and projecting iron sluices jut straight out over the bottomless gulf.
+
+Even the younger ones come to the western rim from time to time, drawn by the strangeness of a boundary where the grid gives out. Out on those wet, projecting sluices, the hum of the submerged induction coils fades to almost nothing. There is no pavement ahead to carry the city's voltage, only the dizzying, ungrounded open air where the drainage channels spill their steady silver plumes of hot water, watching them evaporate completely before they have fallen a hundred meters and curl back upward as mist.
+
+For beings whose whole lives are held inside a closed loop of hot stone and direct current, leaning out over that void is the closest thing they know to prayer—or to terror. Far down in the churned, dim vapor beneath the plateau hangs that faintest possible suggestion of dull amber warmth, utterly silent on the grid, unmeasured by any float-switch or relay. Sometimes you will see a lone resident standing motionless at the tip of a western pier for an entire day, its narrow salt-fogged eyes turned downward, its sensory filaments trembling in the uncharged mist curling up from the abyss, trying to feel whether that distant warmth has a rhythm—whether there is another city down there in the dark, or only the deep fire of the mountain itself.
+
+When an ancient one finally chooses its place—whether out on a western sluice, or high on a tower girder, or tucked against the inner curve of a cooling-sphere—it wraps its long, frosted fingers tightly around a positive strut and a grounded iron flange, opens its stiffened ribcage wide to the rising steam, and stops fighting the crust.
+
+It does not rot. There is nothing here to rot it. Within a single year, electro-osmotic water has crept silently up its locked ankles and across its hunched shoulders, sealing its joints to the blackened iron with pale silica lace and powdery turquoise bloom. Within a decade, the slightly acidic hot rain has polished its dark, mineralized ribs down to the same hard hematite glaze as the riveted girders around it. Its delicate internal curtains dry, dissolve, and wash away down the gutters into the dark cisterns beneath the streets.
+
+If you walk beneath that tower twenty years later and look up through thirty meters of hollow scaffolding, you will see nothing out of place. Just another slender dark bracket braced between two basalt piers, rimed in glittering mineral frost, holding its small hollow space open to the steam, letting the hot air pass through its bones and turn to water and rise again.

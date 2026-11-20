@@ -1,0 +1,63 @@
+If you stand motionless inside the pocket for a long while, it is easy to believe that nothing larger than a snail shares the dark with you.
+
+In an ordinary cave, a living thing betrays itself by contrast: a pocket of warmth against cold limestone, a damp flank in dry dust, the rustle of breath carried down a draft, the pale gleam of an eye catching stray light. Here, every difference has been erased. The stone is already the temperature of a living palm. The stone is already slick with sweat. The air neither moves nor carries scent more than a hand-span from its source, and the crowding baffles of volcanic fins swallow sound before it can travel the length of an arm.
+
+So you do not discover what lives here by hearing it approach.
+
+You notice it, if you notice it at all, by a tiny disagreement in the stillness. A sagging membrane of warm water stretched between two basalt fins holds its tension a fraction longer than its weight should allow, then parts quietly downward without a splash. Three paces away, the stiffened plant-fiber cord gives off a single muffled hum—not loud enough to call a note, hardly more than a change in the pressure behind your ears. Or your knuckles, brushing a vertical blade of rock to steady yourself in a sideways squeeze, meet a surface that does not quite stay stone: wet, faintly gritty with glassy crust, yet yielding by the thickness of a thumbnail, carrying beneath its glaze a slow, heavy give that basalt never had.
+
+It is already beside you. It has been there the whole time.
+
+Its body belongs to the geometry of the clefts. Stretched from snout to tapered tail, it is roughly the length of a human arm and shoulder—yet laterally flattened so deeply that across the flanks it is scarcely thicker than two palms laid flat together. Nothing about it is round or barrel-chested. Where a wider animal would wedge fast and open itself on the glassy fractures, this body slips sideways along the narrow twisting aisles the way a knife slides back into a folded sheath.
+
+Four long, spare limbs hinge out from its narrow torso, double-jointed at wrist and ankle so they can fold flush against its ribs or bridge wide across an aisle. When it moves, it rarely drags its flank along the razor edges; instead it braces its splayed extremities against the flatter faces of opposing stone fins, suspending itself between blades, advancing an inch at a time with an unhurried, measuring reach that breaks almost no water-films and wakes no drips.
+
+Its skin has made two opposite bargains with the chamber.
+
+Along its narrow spine, its shoulders, and the outer ridges of its long limbs, the hide is tough, leathery, and finely creased. Years of pressing against the weeping volcanic rock have trapped the chamber's mineral-laden water inside those creases until dissolved silica and volcanic salts have precipitated right into the dead outer tissue. The result is a dull, dark, jointed mosaic of glassy crust—tasting faintly of iron and wet ash, indistinguishable to blind fingers from the hardened froth and raw stone blisters around it. When it tucks its limbs tight and wedges vertically between two fins, it is simply another plate of young rock, slightly warmer than the wall by a degree too small for human skin to measure.
+
+Everywhere that faces inward, however—its narrow belly, the underside of its throat, the hollows of its joints, and the long, clawless, faintly webbed digits at the ends of its limbs—the skin is pale, bare, and tender as the inside of a wrist. It keeps these surfaces slick with a clear, slow secretion that shares the lingering cohesion of the chamber's own water; where a sharp edge brushes it lightly, the viscous coat lets the glass slide past without biting in.
+
+It has no eyes—not even sealed sockets, only a smooth, gently domed brow tapering into a blunt snout stippled with tiny, barely raised pressure-pores. There are no outer ears. Instead, its lower jaw is unusually broad and thin-boned, built to be laid flat against a damp stone shelf so that vibrations swallowed by the wool-dead air pass straight into its skull through solid rock.
+
+What solves the contradiction of the thin, hot, drenched air sits hidden along its neck and down both sides of its narrow back.
+
+Tucked beneath the overhanging rims of its silica-crusted dorsal plates are rows of folded, wet curtains—pale as the dangling alpine roots, fine as pleated membrane, laced through with a faint, sluggish blush of vessels. In a dry room they would wither in minutes; here, in air saturated to its limit, it can wear its lungs outside its body. When it settles into a vertical cleft to rest, those stony outer eaves part by half a finger's width, and the inner pleats unfurl slowly into the still dark like fans opening underwater. There is no heaving of ribs, no panting, no wasted heat that sweat could never cool. Oxygen slips directly from the warm vapor across those wide, glistening folds while its heart turns over once every forty or fifty seconds, a pulse so slow it barely registers as motion.
+
+If a heavy drop lets go from the ceiling nearby and strikes a catch-pool with its soft *tock*, the veils draw back in a single velvet recoil beneath their crusted shelves, wait through the returning hush, and quietly open again.
+
+It lives on almost nothing, moving at the tempo of condensation.
+
+Nothing in this sealed blister could feed a brisk hunger, and it never hunts with haste. Every few days—if days existed where neither light nor temperature ever turns—it braces itself high between two fins and draws a sodden beard of alpine root-tassels slowly through its blunt, rasping gums, stripping away only the tender outer skin and leaving the pale core unbroken so the scrub far above in the mountain wind keeps pushing new growth downward into the warmth. Along the damp seams where the waxy, cartilage-dense nodules cling, it grazes with the same quiet restraint, taking a thin crescent from a cluster and leaving the rest to swell again over the long, flat months before it passes that shelf once more.
+
+Once in a long interval, it lowers its broad chin into a palm-sized warm basin and holds completely still until the water's surface tension settles back around its snout; when a wheat-grain amphipod or blind crawler brushes its lip, its mouth opens by a hair and draws the tiny thing in with a single soundless pull of water. Rarer still, when its searching fingertips encounter a solitary snail glued to the underside of a fin, it hooks one pale inner digit beneath the shell's mineralized rim, pries it free with patient, steady pressure, and crushes the leaf-thin spire softly against its palate.
+
+Even its aging obeys the chamber's equilibrium.
+
+Over years, the glassy crust along its back and outer joints thickens. Silica creeps steadily into the hinges of its shoulders and crowds the edges of its breathing-eaves, threatening to glue them shut the way an unmoving snail's lip cements itself to basalt. When the stone begins to outpace the flesh, the creature retreats into one of the tightest vertical slots near the pocket's margin. It drinks slowly from a deep seam until its inner tissues swell taut against the mineral carapace, then leans its narrow spine against a razor-crisp rib until the rigid glaze parts in a single clean crack from crown to tail.
+
+Over hours, with infinite care, it peels its pale, gleaming, vulnerable self out of the stiffened husk.
+
+And because decay here moves at a geological crawl, outpaced by dissolved stone, the shed shells do not rot to slime. Wedged deep among the papery volcanic plates at the pocket's pinched edges hang generations of its own cast-off backs—thin, curved, hollow ridges glazed steadily over with fresh silica until no hand groping in the dark could tell where the cooling mountain ends and the creature's earlier bodies begin.
+
+It knows every blade, every ruptured pod, every catch-pool of this small universe by heart. Yet there are four places in the chamber it returns to with an attention that has nothing to do with hunger.
+
+They are the smooth places.
+
+In a world made entirely of cooling fractures and raw glass, smoothness does not belong to nature. Wherever its long, bare fingertips meet it, its pace slows even further.
+
+Passing sideways along the flat mineral plate near the floor, its forelimb reaches out without hesitation, and the pale pads of its digits settle into the five shallow dimples pecked at shin-height. It does not count them, and it has no name for the hands that struck them into the rock; it knows only that these five cups match the spacing of touch in a way no blister of volcanic froth ever could, and it rests its weight against them for a long breath before sliding on.
+
+At the narrow shelf holding the hand-pinched clay saucer, it never disturbs the glassy-crusted pool standing brim-full inside. Instead it lowers its blunt snout or the bare inside of a wrist to the thick, unglazed lip, tracing the faint thumbnail grooves scored around the rim—the only curve in the pocket that cannot cut. Sometimes it stays there through the long swelling of a single drop overhead, listening through the clay to the rounder, clearer note the water makes when it strikes the saucer's surface.
+
+At the sideways squeeze where the three bone pegs hold the stiffened plant-fiber cord, it lingers longest. The mineralized thread has become its widest ear. Laying the flat of its lower jaw gently against the taut, wire-like strand, it gathers everything the wool-dead air refuses to carry: the distant *tock* of a drip behind three baffles of rock, the faint wooden creak of alpine roots drinking snowmelt high overhead in some unseen thaw, the tiny shudder of stone settling a thousand feet below. Once in an immense while—perhaps after seasons in which nothing at all has changed—it hooks a single pale fingertip beneath the cord and lets it slip free. A dull, muted tremor runs from bone peg to bone peg, through the two basalt fins and into its skull, fading almost at once into the wet dark. Not a signal, not a song—only a way of feeling that the sealed vessel is still whole and still answering.
+
+And when its skin is freshly molted, raw and tender before the silica glaze has begun to mend along its back, it climbs to the ruptured stone blister and slides its soft inner limbs into the hollow where the four river pebbles lie arranged in their tight crescent.
+
+It leaves the knapped flint sliver strictly untouched; sharpness is the common language of the entire mountain. It presses its bare palms and pale throat against the satin-smooth valley stones, keeping their slight glaze polished clean by the sheer quiet repetition of its resting there, nudging a pebble back by a hair's breadth if its weight ever shifts the arc. Beside them lies the dull, heavy bead of cold-hammered copper. In a chamber with no gradient—where ceiling, wall, floor, and water hold the exact same tepid warmth—the tarnished metal steals the faintest ghost of the creature's own slow inner heat faster than any stone can, answering its bare skin with a whisper of coolness and tasting sharp, bright, and electric against the tip of its wet tongue. It is the single note of difference in a world of iron and wet ash.
+
+How long it has lived inside this warm, breathless pocket is impossible to reckon. Perhaps it slipped in long ago as a thread-thin juvenile through some hairline geothermal fissure beneath the floor, feeding slowly on roots and nodules until its limbs grew too long and its narrow ribs too deep to ever pass back down the crusted seam. Perhaps it was already wedged vertically between two fins when human hands first squeezed into this dark blister carrying valley pebbles, clay, copper, and bone—listening through the basalt to the alien rattle of a tool pecking five shallow pits into rock, its stony eaves drawn tight, its pulse slowing until it became another shelf of volcanic glass beside an elbow that never knew it was not alone.
+
+Or perhaps the hands came precisely because someone once stood still long enough in the warm dark to feel a drop fail to fall, and left the only smooth things they carried where blind fingers would be sure to find them.
+
+If you stay quiet now, letting the thin, drenched air settle in your chest, you will hear nothing change. The chamber remains crowded, tepid, and completely full. Only, two hand-breadths from your shoulder, a narrow ridge of dark, weeping basalt slowly parts along its seam by the width of a thread—unfolding its pale, wet pleats into the dark to share the same thin breath, unhurried, older than the glassy skin on the clay, waiting out the long interval before the next drop falls.

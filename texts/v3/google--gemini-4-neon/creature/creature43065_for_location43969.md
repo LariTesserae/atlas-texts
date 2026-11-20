@@ -1,0 +1,91 @@
+They did not vanish.
+
+If you walk the alleys for half a day and see only wet slate and gray haze, it is for the same reason you miss the blind shell-crawlers clinging at your elbow: you are looking for something that moves against the basin, and nothing that survives here moves against it.
+
+Look longer, during the slow pause between one chimney’s dying note and the next vent catching pressure two corridors over. Where a towering fin of dark shale leans hard against a bridge of newer crust, a shadow detaches itself from the vertical seam—not stepping forward, not breaking the silver line of the edges, only sliding sideways a hand’s breadth to let a heavy drop fall clear of its shoulder. Even then, your eyes try to give it back to the rock. Its skin is the dull, wet pewter of fresh-split shale, dusted along the elbows, knees, and knuckles with matte blooms of pale mineral chalk. Its shoulders are narrow and sloped cleanly, angled to slip through wet squeeze-gaps without brushing the flint crests. Only when it turns its head—slowly, without haste—do you catch the pale, wide glint of eyes set beneath a brow slick with mist.
+
+They are people, or were once, before uncounted generations down inside the chord began to re-tune them.
+
+Stand close to one in the dimness and you can read the valley written across their body. Constant vibration does something quiet and stubborn to living bone: years of walking over a floor that never stops humming have thickened their skeletons, squaring their jaws and lifting their collarbones into heavy, pale ridges beneath thin skin. They rarely clench their teeth. As they move through the alleys, their mouths stay slightly slack, letting the vast bronze drone enter through the hinge of the jaw and travel softly across the skull. The outer ear is too fragile a thing to trust to forty-minute booms and the rifle-crack of snapping plates; during the louder hours, many of them keep their ear canals stopped with soft pellets of wet clay and crushed crystal-paste. They do not go deaf for it. They listen through their ribs, their cheekbones, the wide flats of their soles, and the calloused undersides of their fingers, reading the acoustic shadows of tilted walls fifty paces ahead the way a highland walker reads sunlight on a ridge.
+
+Their skin is its own armor. Nothing woven lasts long down here—cloth drinks the cold mist, grows heavy, and shreds on the first brush against fresh cleavage—and there is no timber, no wool, no iron anywhere beneath the pewter sky. Instead, their palms, shins, and feet are plated in dense, slate-colored horn, hardened by a lifetime of salt water and smeared daily with the greasy bacterial film skimmed from the floor pools. Over their torsos and thighs they wear slick, pale wraps stitched from the cured hides of older vent-dwellers: rubbery, cool, faintly translucent skins that stay supple in the damp and let razor-sharp edges glide off without biting. Along their forearms and over their knees, many lash overlapping rows of carbonate crawler-shells using pale, tough gill-cord pulled from cast-off wader carcasses. When they shift their weight, the shells give a faint, wet *clack* that disappears straight into the bell-choir of the drips.
+
+Even their hair is kept scraped down to a dull, salt-frosted velvet. Long hair catches condensing mineral water and crusts into brittle snarls that snag on crystal whiskers and wedge fast in tight corners. To shear it—or to pry a crawler, or split a hide—they never carry a blade. Why carry metal when the floor of every corridor is made of fresh knives? A hand reaches down, tests a thin shard of dark shale, snaps a clean edge with a single press of a calloused thumb, uses it, and drops it back into the wet shingle. Five minutes later, even another basin-dweller could not tell the tool from the floor.
+
+---
+
+Time down here does not belong to the sky. The pewter ceiling brightens to bruised silver and dims to slate, offering neither noon nor midnight, neither winter nor thaw. What orders their lives is the slow, hidden breath of the groundwater beneath the crust.
+
+They divide existence into the Rise, the Slack, and the Draw.
+
+During the Rise—three or four days while the dark water inches upward through the flooded honeycombing below—the valley grows fierce. Every whistling fissure pushes harder; the overlapping foghorns climb a fraction of a tone and swell until the mist itself trembles visibly over the pools. Plates wedged tight by fresh rime are likeliest to shear now, sending sudden shotgun cracks rolling across miles of tilted stone. During the heavy hours of the Rise, the people move little. Small knots of three to seven—usually a mated pair, a grandparent, a child or two, an unmarried sibling—retreat to the multi-story pockets beneath the crusted stone bridges or fold themselves inside the clay-caulked silence-pockets wedged between leaning fins.
+
+There is no ownership of a silence-pocket. They are commons scattered across the basin like dry caves in a storm. A hunter caught far from kin when a corridor’s vents begin to roar will slip into whichever triangular alcove lies nearest, sit cross-legged in the cold dark, and let the hammering behind their ribs fall back to a dull throb in the heels. One law binds every shelter: before you crawl back out into the fog, you gather a pinch of wet gray clay and crushed crystal-paste from the floor and press it firmly into any hairline seam the vibration has opened. You leave the pocket quieter than you found it.
+
+Then comes the Slack—a few eerie hours at the crest of the swell, and again at the bottom of the trough, when the water beneath pauses. Dozens of chimneys bend flat and die away together. The bass thins out until the valley sounds almost hollow, given over mainly to the slow metallic *tong* of falling drops. In the Slack, the basin wakes. Figures glide sideways out of the shadowed creases, moving swiftly for people who never run—knees loose, heels testing every chip before taking weight, hands skimming the wet walls to feel for fresh cracks.
+
+And in the Draw, as the subterranean tide sinks and the vents begin to *inhale*—sucking cool mist and faint highland odors down into the dark cavities with a hoarse, dry sigh—they harvest.
+
+There is no fire in the basin, nothing to burn, no smoke ever rising to smudge the low clouds. Everything they eat is cold, raw, or cured in mineral brine. As the water drops half a hand’s breadth in the floor hollows, the people move from pool to pool with broad, shallow dishes of pale sinter, skimming the thick, milky-oily bacterial film that coats the margins. Pressed in cupped stone hollows and dusted with scraped gypsum-salt, it firms into a gray-white curd—slick, dense, faintly bitter, rich with the fat that keeps their bodies warm in the eternal damp. It is food and salve both; a mother feeds a smear of it to a waking infant with the pad of her thumb, then rubs the remainder across the child’s knees so the wet shale will slide harmlessly off skin not yet old enough to grow horn.
+
+They gather the flat shell-crawlers along the lower walls, waiting for a momentary dip in a nearby chimney’s drone—when the shifting acoustic shadow briefly confuses the blind grazer and loosens its grip—to slip a fresh shard beneath its rim and pop it cleanly free. They never strip a wall bare; a bare wall grows slick with unchecked slime that turns slippery underfoot and spoils the pitch of the stone.
+
+Vent-dwellers are rarer meat, and taken with a craft that looks like play. A hunter does not reach blindly into a whistling crack; disturbed, the worm-thick creature swells its ridged tail against the jagged rock and will tear in half before yielding. Instead, the hunter sets a flat stone partly over the chimney’s mouth and flutters it with careful fingers, bending the rush of air to mimic the faltering breath of a sudden Draw. Fooled into thinking the stream of highland spores is ending, the pale filter-feeder inches upward toward the lip to spread its feathery gills one last time—and is lifted cleanly out in hide-wrapped hands. Its flesh is soft, peppery from the distant dust it strains from the sky; its skin becomes the next season’s shoulder-wrap.
+
+Only the translucent, stilt-legged waders are left untouched. In the deeper courts, a person wading ankle-deep past one will freeze until the ripples flatten, respecting the creature’s vigil. Waders feel shifts in the crust minutes before even the most seasoned jaw-listener. When a wader that has stood motionless for three hours suddenly folds its glass-thin legs and vanishes into a submerged crack, everyone within sightline braces against the thick base of a leaning fin and covers their ears: somewhere nearby, an over-tightened plate is about to snap. Sometimes, as they pass a court where a wader keeps watch, the people toss a crushed crawler into the black water—not quite worship, not quite domestication, just the quiet courtesy paid to a neighbor who keeps the walls from falling on your head.
+
+They pay a different courtesy to whatever moves beneath the floor.
+
+Once every few swells, while sitting still in a low corridor, a person will feel three vents in a row go briefly dull—not stopping, just muffled in neat succession, as though a broad, slow shadow were drifting through the drowned honeycombing fifty feet below their soles. No one has ever seen what lives down in the flooded cavities; the fissures are far too narrow for a human chest, and nothing from below ever comes up into the air. When the muffled line passes underfoot, the people simply lay both palms flat against the wet shingle and wait without moving until the bronze chord straightens out behind it.
+
+---
+
+An outsider following one of the trails of silenced chimneys—flat pale stones wedged tightly into whistling mouths to cut a quiet seam through the booming fog—assumes they are merely road-markers. They are that, and more.
+
+They are the tuned strings of an instrument the people spend their whole lives playing.
+
+Outside the caulked pockets, the human voice is nearly worthless. Shout in a narrow shale alley and the bass swallows your chest-tone while the clattering drips chop your words into meaningless gravel. So they have learned to speak with the basin itself. A scout three alleys ahead presses the wet heel of a palm partly across an open chimney, bending its long foghorn note downward by half a step, holds it for four heartbeats, releases, bends it again. To a stranger, a vent-dweller shifted in its throat. To kin listening with their jaws angled toward the mist, the slow warble says: *The bridge ahead has dropped. Turn left at the double drip.* Closer in, they tap the hollow-ribbed gypsum plates with the edge of a tied crawler-shell—*tong, tong-tong*—slipping deliberate triplets into the random percussion of falling water.
+
+And at the ends of those quiet seams, in the wide sunken courts ringed with waist-high walls of stacked shards, you see the deepest art they possess.
+
+They do not carve stone. Carving fights the valley and leaves only fresh razors. Instead, they have learned to *garden* the standing waves.
+
+Where a court opens wide around a milky pool, a band will spend a decade choosing which surrounding chimneys to choke with flat shale wedges and which two or three to leave singing—paring a vent’s lip by a single careful snap to raise its pitch a hair, stacking loose floor-chips into a curved, waist-high baffle around the water. Gradually, the discordant racket of twenty miles of leaning plates is broken, filtered, and braided inside that circle into two or three clear, steady harmonics.
+
+The mist-heavy air responds. Instead of frosting the walls with jagged whiskers and splintery rime, the mineral water settles along the quiet nodes of the tuned court in thick, patient coats of translucent sinter. Over years, the jagged ring of stacked shards vanishes beneath a sleek, pearlescent glaze. Rounded lips grow outward from the wall at sitting height; smooth, cupped basins form naturally beneath steady drips; even the harsh edges of the surrounding shale grow blunted beneath a glossy mineral skin.
+
+These ringed courts are the only truly smooth places in the lowland—sanctuaries grown slowly out of wet sound. A grandfather wedges three shale blocks in his youth, adjusts the ring of shards in middle age, and his grandchildren lean their bare forearms across a rim smooth as river-glass, untouched by a single cut.
+
+It is here, during the Slack, that separate knots of kin meet.
+
+They do not rush into one another’s arms or call out across the water. They step quietly up to opposite sides of the glossy sinter ring, lower their wrists into the cool milky pool, and read each other first through the tiny, intersecting rings that cross the black surface. Then they walk slowly around the curved lip until they stand shoulder to shoulder. A greeting is a flat palm laid gently against the other’s collarbone, feeling the steady thrum of breath and bone beneath the wet skin—checking for the tight, shallow rattle of sickness or the bruised stiffness of a fall. Across the pool, two people can converse without raising a sound into the air simply by tapping blunt fingernails against the smooth, mineral-sealed rim; the stone carries the crisp little pulses cleanly around the whole circle to every hand resting upon it.
+
+When they need real words—to trade news of which outer corridors have buckled shut, to arrange a young person’s move to a new knot, to teach a child the names of the old swells—they duck two or three at a time into the broad, deeply caulked silence-chambers tucked into the leaning walls around the court. Inside that heavy, velvet hush, away from the crushing weight of the basin’s song, their spoken language comes out startlingly delicate: low, unhurried, full of breathy vowels and soft clicked stops, almost shy of disturbing the dark. Nobody raises their voice in a pocket. Loudness belongs to rock; quiet belongs to living things.
+
+---
+
+Now and then, every few years, a young person climbs the outer tilted plates all the way to the low lip of the basin rim and looks out across the dry highlands beyond.
+
+They almost always come back down before the sky dims.
+
+Up beyond the haze, the air feels thin and raw in the throat, stripped of mineral damp. The ground sits dead beneath the heels, offering no pulse, no shadow of what lies twenty paces off. Worse than the harsh, unshielded glare is the silence—not the warm, cradling hush of a hand-caulked alcove, but an immense, weightless emptiness that feels to a basin-dweller like being struck blind all at once. Nothing tells you where the world begins or ends.
+
+They feel a strange, cautious pity for the rare travelers who stumble down from that empty expanse into the mist.
+
+Long before an outsider clears the third crooked corridor, the basin-dwellers know they are there. Strangers walk terribly—too fast, too upright, boots kicking loose shingle in frantic, jagged clatters that shout through the floor for half a mile. Their breathing is panicked and high in the chest; they grab blindly at wet walls to catch their balance and leave bright smears of red iron-scent along the shale crests that draw every crawler in the lane.
+
+The people do not hunt them, and rarely show themselves. As the clumsy clatter approaches, they simply glide sideways into a wet vertical shadow, turn their gray-plated backs toward the alley, and match the stillness of the rock. A traveler can walk three paces from an entire family—mother, child tucked tight against her ribs with one small hand clamped gently over the child’s mouth, elder braced motionless on a high sinter ledge—and see only leaning stone and cold fog.
+
+Yet if the stranger wanders too deep into the active maze, circling endlessly in the identical silver lanes while the groundwater begins to Rise and the vents build toward their punishing roar, something quiet happens three alleys ahead. A booming chimney abruptly cuts off. A minute later, twenty paces farther toward the rim, another vent goes mute. Then another—a soft, sudden seam opening through the deafening wall of bass. Most travelers never realize they are being steered; they only feel a faint relief in their teeth and follow the quieter air until the floor slopes upward beneath their bruised heels and the gray haze thins back into open sky.
+
+Behind them, once the clatter of boots has faded over the lip of the ridge, a calloused hand reaches down, levers the pale wedge back out of the chimney’s throat, and gives the note back to the valley.
+
+---
+
+When one of them grows too stiff to keep balance on the shifting chips, or when a shearing fin catches someone faster than even a bone-listener can move, there is no earth to dig and no fuel to burn. Their kin carry them during the Slack to one of the old, narrow troughs in the deep center of the basin, beneath a pale gypsum curtain where heavy clear drops swell and fall without ceasing.
+
+They lay the body straight along the wet shingle, hands folded lightly over the broad collarbones, jaw resting slack as it always did in life. They take back only the slick vent-hide wraps and the tied crawler-shells, leaving the gray skin bare to the silver film.
+
+The valley is patient. Drop by drop, ten seconds to swell and a resonant *tong* as it strikes, the mineral water lays down its translucent coat. Within a few dozen swells, the sharp hollows of the face soften under milky glaze. Within a lifetime, nothing remains that an outsider would recognize as a grave—only a smooth, pearlescent ridge seamlessly joined to the floor, catching the bruised pewter glare, humming steadily along with the twenty miles of wet stone around it.
+
+And a few corridors away, in the mist-hung courts and the leaning alleys, the living glide sideways through the dimness—listening with their bones, tending their quiet seams, letting the slow roar of the earth turn patiently into shelter around them.

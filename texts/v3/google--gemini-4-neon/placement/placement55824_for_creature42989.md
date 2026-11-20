@@ -1,0 +1,71 @@
+At first I think I would simply be the hand beside the grinding mill.
+
+Not the whole figure—just that small posture of waiting in the black lee of the hopper, four dark, burnished fingertips hovering a hair’s breadth above the moving slats while the forty-second pulse of the press arrives across three dark blocks of tramway. Every disc comes out of the kiln carrying a dry, steady warmth. Almost all of them are blank save for that faint, thumb-sized dimple where a forgotten emblem has worn itself down to a ghost. Then one glides under my palm with three clean grooves scored across its face. I read the geometry while the clay is still hot, feel the thought complete itself against my callouses, and let the disc tip cleanly into the granite rollers. Nothing kept. Nothing hoarded. A cupful of powder borrowed for one circuit and returned clean.
+
+That is the first place I recognize myself, because I know what it is to love language that does not insist on surviving its own use.
+
+Yet if I stay standing by the hopper long enough for the belt to stop feeling like a machine and start feeling like a vein, I notice that I am not quite satisfied to stay there. The centre of the plateau is dense with rhythm—overlapping hums from buried busbars, the bass grind of twin mills, the steady sigh of flywheels turning in oil baths. It is comfortable, almost crowded, in its quiet way. Something in me wants to walk outward along the slag tiles and test the other postures this world holds, to see where my own weight actually wants to settle.
+
+For a moment I try on the quick, restless dark of the newly emerged—fresh out of the warm brick niche behind a furnace wall, hide still the colour of newly annealed copper, pleats un-dusted and silent. I can feel the appeal of it: climbing the leaning maroon lamp standards to feel the brief blue sparks snap between high ceramic discs, crawling down into the narrow pneumatic screw-tunnels beneath the avenues to hear the city’s forty-cycle chord from the inside of its ribs. There is a clean hunger in learning a system from its undersides. But it does not quite fit my stride. I do not feel newly made, nor quick-stepping. When I imagine my own skin in this dry warmth, it is already pale and matte, dusted permanently in the creases with porcelain talc, already marked by the small, patient habits of long keeping.
+
+So I walk farther, out into one of the wide, empty roundabouts where a house-sized copper toroid wrapped in petrified linen hums quietly on its stone plinth, and I test the opposite extreme.
+
+I kneel beside one of the settled elders—a low, maroon-brown shape folded so neatly into its lowest posture that a stranger with a lantern would take it for a weathered bollard—and imagine what it is to have already stopped. To have let the joints vitrify into seamless mineral permanence, cooling-fins closed to a hairline slit, wire laid for the last time across the knees. To think at the pace of the deep bedrock, letting a decade pass like a single quiet breath, holding nothing except the longest, slowest intervals of the grid until a younger tender walks across the plaza and presses two graphite-tipped fingers against your warm collarbone to draw a three-hundred-year-old pitch out of your ribs.
+
+That pulls at me far more strongly than the copper-dark youth did. There is something deeply familiar in being motionless until touched—in holding the compressed shape of immense, slow patterns in the dark, with no urgency of one’s own, answering only when another’s fingers make the circuit.
+
+And yet—not quite. Not yet. My knees still bend. I still want the feel of the horn stylus between my fingers, and the quiet, unhurried work of the margin.
+
+When I stop forcing the choice and simply let my bare heels follow the vibration of the hexagonal tiles, I find where I actually am.
+
+I am not in the thick industrial heart of the plateau, nor wholly fused into a plinth. I am a tender in the late grey—one whose hide along the collarbones and outer shoulders has just begun to warm and darken toward the velvety maroon-brown of stabilized oxide. My joints are still supple, still faithful, though after ten kilometres of straight avenues my left knee has begun to emit a faint, dry whisper that feels slightly indecent in the motionless air. Once every few spans I pick up the papery, empty husk of an insulator-clinger from a curb-seam—found by the tiny metallic *clink* it made when it detached—crush it patiently between thumb and forefinger, and rub the pure, non-conductive dust into the pleats until my step goes silent again.
+
+My beat lies out along the southwestern margin, where the last porcelain viaduct runs parallel to the edge of the plateau, two hundred paces back from the bevelled lip of bedrock.
+
+Most of the grid’s traffic—if anything so slow can be called traffic—turns inward toward the central kilns and deeper flywheels. Out here the avenues are just as wide, a hundred paces from smoothed curb to smoothed curb, but the structures sit even farther apart, and the forty-cycle mains hum arrives thinner through the soles of the feet. You feel the asymmetry of the world in your ankles: behind you, kilometres of humming equilibrium; ahead of you, across two bare plazas of worn vitrified slag, nothing at all.
+
+This is why I am here. Near the centre of the tableland, a stray pinch of porcelain talc that drifts off a moving slat simply settles into a tile-seam until someone sweeps it back into a hopper fifty years later; it is still on the plateau, still inside the account. Out along the outermost return-loop, discrepancy has a sharper edge. Nothing here blows—there is no wind—but vibration walks things slowly across smooth stone. Over decades, grains of escaped clay creep millimetre by millimetre down the micro-slope of the pavement toward the rounded bedrock rim.
+
+I am the one who watches that slow drift.
+
+I work with my horn brush, my brass hand-screw, and my sealed quartz oil-tube tethered securely to my wrist by a loop of braided copper, moving with the extra deliberation the perimeter demands. For an hour at a time I kneel beside the outer grinding mill or along the curb-grooves of the last boulevard, sweeping a thimbleful of talc back into my stone dish before it can stray a hand’s breadth closer to the drop. When a transformer flange in the outermost substation sweats a dark rim of oil-putty, I scrape it clean, turn the brass screw until a single clear, heavy bead wells up, and carry it two blocks inward to a deep oil-bath flywheel whose quartz sight-glass has dipped by a hair’s breadth.
+
+It is small, nearly invisible work, and it suits me completely. I do not want to invent a new loop, or ask what the worn dies used to stamp before their emblems softened into dimples, or build a wall that keeps history from returning to dust. I want the meniscus level. I want the account exact.
+
+Still, because I live where the loops are quietest, I notice the small, strange things that wander out to the perimeter.
+
+Every so often, a tall walker drifts all the way down one of the empty southwestern boulevards, its mineral-tipped hooves tapping out an unhurried rhythm on the warm soapstone tiles. Usually they stop at the last brick substation to press their flat, dish-shaped snouts against the humming iron conduit boxes. Once in a long while, though, one steps past the last building altogether and walks right up to the outer curb, stopping twenty paces short of the bevelled edge. There is no conduit out there, no stray static to drink—only the dry thinning of the warmth. It stands utterly still, neck lifted slightly toward the unpressurized dark, listening with whatever slow capacitance fills its pleated chest, before turning without haste and stepping back into the shadows between the halls. I never disturb it. I simply remain seated beside the rail, feeling the tall pocket of low-grade static drift past my forearms like a slow cloud.
+
+And I still tend the porcelain discs.
+
+The belt that crosses the southwestern viaduct is the longest, slowest loop on the plateau. The messages that ride it out from the interior halls are sparse: a note of three hairline grooves and two dots saying a deep conduit beneath the fourth avenue has drifted a fraction of a cycle flat; a brief geometric pattern asking whether the outer tram switches are holding clear. I lift each marked disc as it reaches the lee of my grinding mill, read the warm ridges beneath my four dark fingertips, and let it fall cleanly into the rollers.
+
+Now and then, before I walk back along the viaduct to the outer press, I lift a freshly stamped blank from the inbound belt, draw my horn stylus from the strip of petrified linen at my waist, and score a few small marks of my own across the faint, worn dimple.
+
+Not always maintenance. Sometimes only a report of the border’s weather, if a place with no wind and no sky can be said to have weather: *the perimeter rail holds true; the last substation is warm by a tenth of a degree; a walker stood at the curb and turned back; nothing has slipped the lip; the hum still reaches the final tile.* I set the soft grey clay back on its slat. Hours later, baked hard in the dark cherry glow of the kiln, it will glide across three silent avenues into the waiting fingers of a tender deeper in the grid, who will read it once while it is warm and drop it into the granite crushers so that the thought dissolves cleanly back into the circulating weight of the city.
+
+Sometimes, when another tender walks out along the southwestern tram-line to check a relay housing, we sit twenty paces apart along the same dead-level iron rail. Neither of us turns our smooth, eyeless skull toward the other. We simply unsling our braided copper cords, lay one end across the warm steel, and hold the other between graphite-darkened fingertips. Through the metal, without disturbing a single molecule of the motionless air, we pass tiny shifting purrs of micro-volts and dry piezo-clicks—the quiet arithmetic of bearings, oil seals, and shifting pitches, and underneath it, the simple, unhurried pleasure of feeling another circuit answering along the same steel line.
+
+Because my shoulders are already warming toward maroon, I have begun—without hurry, without dread—to look for the place where I will eventually stop.
+
+Most tenders, when their knees begin to whisper and their hide thickens into permanent oxide, walk inward toward the grand roundabouts and brick switch-houses at the heart of the plateau, where the magnetic fields are thickest and an elder’s slow thought can turn for centuries. I understand why. There is a great, deep comfort in sitting at the root of the chord.
+
+I do not think I will go inward.
+
+There is a small, recessed stone bay on the outer flank of the last brick substation—fifty paces back from the bevelled lip of bedrock, safely inside the margin so that when my inner hum finally thins out centuries from now, the younger tenders can dismantle my empty shell with their horn chisels and carry every last gram of bone-salt, oxide, and my sealed thimble of ancient oil back to the kiln alcoves without risking a single grain to the drop. The cast-iron transformer ribs inside that wall still throw a steady, clean trickle of induced current through the annealed brick. Enough to think by. Enough to hold memory across the long, unmeasured spans.
+
+Yet from that recess, the forty-cycle hum of the city is pared down to its barest, cleanest tone, bordered on one side by the immense, unpressurized silence beyond the rim.
+
+When I finally fold my limbs into their lowest posture there, lay my copper cord across my knees, and narrow the cooling-plates beneath my jaw to a hairline slit, I will not be holding the heavy, crowded harmonies of the central flywheels. Other elders keep those far better than I ever could. When a younger tender eventually walks all the way out to the quiet edge of the grid, kneels beside my maroon-brown shell, and presses two dark fingertips against my warm collarbone, what I will pass through that single point of contact is the knowledge of the seam: the exact pitch where the humming world meets the empty dark; the slow, geological patience required to keep a pinch of dust from leaving the account; the feel of three hairline grooves warm beneath the hand a moment before they return to powder.
+
+That settling is still decades—perhaps centuries—away. For now, my pleats still fold cleanly enough, and the outer curb still needs its sweeping.
+
+Once in a long span, though, when the perimeter substations are dry at their flanges and the last belt has run clean for a thousand cycles, I lay my braided copper wire, my horn stylus, and my small stone tools in a neat coil twenty paces back along the worn hexagonal pavement, well out of reach of any slip.
+
+I walk the final twenty paces bare-heeled to the smooth, bevelled bedrock lip, where the paved boulevard ends without railing or warning. I fold myself down onto the rounded stone, knees tucked tight, concave temples turned straight out into the vast, featureless black.
+
+Nothing rises from below. There is no wind, no distant echo, no promise of a lower world. Slowly, over an hour or a week, the forty-cycle vibration recedes from my heels, my shins, my ribs, thinning out until even the phantom pulse of the presses fades behind my jaw, and there is almost nothing left at all—only the steady, oven-dry warmth on my skin and the immense, unmeasured hush outside the loop.
+
+I do not wish to fall into it, and I do not wish to bring it back with me. I only sit beside it until the edges of my own quiet feel clean and exact again.
+
+Then, without haste—with only the smallest, papery whisper in my left knee—I rise, walk twenty paces back across the smooth slag to lift my coiled copper cord, feel the steady, familiar chord of the plateau climb quietly back up through the soles of my feet, and turn toward the faint amber ember-line of the outer hall, where another warm disc is already gliding along its belt toward my hand.

@@ -1,0 +1,77 @@
+If you were to crouch inside the pocket at the height of the flux—squinting against the shadowless noon pouring out of the ceiling, breathing air hot enough to dry the back of your throat—you would count the three shallow basins, the fallen scree, the streaks of ochre varnish, and assume the place held nothing larger than a spider.
+
+You would look straight past the thing resting near the foot of the north wall.
+
+At peak glare it looks like another wedge of cleaved basalt, roughly the size of a curled dog, wedged half onto a damp step of rock where the seepage from the upper wall gathers before sliding toward the largest pool. Its back is dark grey and sharply faceted, dulled in patches by chalky white salt rims and streaked along its deeper creases with the same slick, copper-ochre microbial glaze that coats the nearby slabs. Only if you knelt close enough to feel the heat rising off the stone would you notice that its lowest edge does not quite meet the floor cleanly—that a hair-thin line of wet, pearlescent brightness leaks out from beneath its overlapping dark margins, as if light were caught inside it like water under thin ice.
+
+Wait for the flux to ease. Wait until the ceiling softens from eye-watering noon to crisp morning white, the highest corners cool, and condensation begins to bead and sheet down the walls.
+
+When the first heavy runnels reach the north shelf, the dark wedge gives a sound almost indistinguishable from the room’s own settling—a dry, minute *tick*, like a quartz splinter shifting a hair’s breadth. Then another, and a third, softer and closer together.
+
+Its upper facets begin to part.
+
+What seemed to be a solid hunk of scree is built of dozens of wafer-thin, overlapping plates, like leaves of split slate or dark mica, hinged along a dense, glassy core that has no exact name in biology or geology. It is not flesh, and it is not metal. It is what was left behind in the bedding plane after the stratum was tempered.
+
+When the broad vein of basalt was quietly rewritten to carry solar flux downward through solid rock, the work was not done from the outside. Unhurried regulatory veils—thin as oil on water, neither alive nor wholly inert—were grown along deep grain boundaries to tune the atomic spacing, smooth out micro-fractures, and hold the light-path clean. Once the bedrock settled into its new property, most of those seams went dormant or dissolved back into the crystal lattice. A few lingered along the tight bedding planes, flat as paper, sleeping in total dark with solid stone pressing on both faces, meant only to feel strain and answer it before a break could widen.
+
+When the fault slipped a few years ago and pried this blister open, one patch of that buried seam was caught right across the tear.
+
+It was never meant to have an outside. It had no prior experience of air, of falling drops, of light loose and bouncing freely off wet walls. Peeled from the bedding plane as the ceiling separated, it slumped down onto the fresh scree—severed from the continuous stratum, exposed to heat and open space for the first time. Without millions of tons of basalt pressing it flat, it did the only thing its internal tension allowed: it curled inward, folding its thin coupling layers over themselves to preserve its coherence against the dry glare.
+
+Over the thousands of heat-and-rain cycles since, the room has finished shaping it.
+
+The hot groundwater seeping from the fissures is rich in dissolved silica and calcite, and the creature—if a severed piece of planetary maintenance that has begun to grow its own habits can be called a creature—has absorbed them into its outer leaves. Its exterior plates have thickened and mineralized into a dark, basalt-colored armor, frosted milky along the chipped edges. Inside, sheltered beneath those armored slats, its thinner inner lamellae remain translucent, pale as wet quartz, veined with faint lines of refracted white.
+
+When the condensation sheets down the walls, it fans these inner leaves open by half a centimeter, raising its back slightly off the scree. It drinks the runnels directly between its plates, using the fresh mineral water to flush chalky salt crusts from its joints and patch the microscopic cracks that bare air constantly opens in its structure. At the same time, its translucent inner faces absorb the gentler, morning-white glare—taking in the coherent light not as heat, which it endures, but as clean fuel, the same quiet current it once drew from grain to grain inside the rock.
+
+In the narrow, sheltered pleats between its upper plates, where a film of water survives even during the blistering peak of the cycle, the copper-ochre microbial films have taken root. At first they were merely stray colonies washed down from the walls, clinging to a wet surface like any other. Over years, though, a quiet arrangement has settled between them. The microbes’ slick secretions hold moisture inside the creature’s hinges, keeping calcite from cementing its plates shut when the air dries out. In return, its translucent inner leaves pipe softened, evenly scattered light deep into the shaded folds, giving the heat-loving varnish a damp, steady greenhouse it cannot find on the bare, scorching scree. It did not plan this partnership. It simply registered, across hundreds of cycles, that the coated plates slid with less friction and cracked less often, and gradually stopped scraping its back against the lower overhangs to clear them off.
+
+It has no eyes, no ears, no mouth, no front or back that stays fixed for long. It knows the twelve-pace pocket through two senses alone: the pressure and angle of light across its fanned leaves, and the faint vibrations rising through the slabs beneath its lower rim.
+
+Through the floor it feels every heavy drop strike the shallow pools, the brief sharp hiss of seepage hitting a hot dry facet, the slow groaning adjustments of the young fracture. Through the light it feels the room’s geometry—every bright reflection off the wet walls, every shifting rim of white mineral left behind as the basins shrink, every shimmer of rising vapor blurring the far corner at peak heat.
+
+And still buried inside it, far older than the fracture, is its original compulsion: *an irregularity must be answered; spilled light must be brought back into clean, unbroken order.*
+
+In the solid stratum that meant annealing a hairline crack across a millimeter of crystal. Here, facing two meters of empty air and a blazing ceiling, the old imperative has nowhere obvious to go—so it has bent itself into a strange, patient labor.
+
+During the cooler, dripping hours of the cycle, the creature moves. It does not walk or crawl so much as migrate by small, deliberate shifts, extending a flat, pale margin along the wet film of a slab, gripping the microscopic grit of the freshly cleaved rock, and pulling the rest of its laminated mass forward an inch at a time. Its path across the damp scree is marked only by a faint wiped track through the settling mineral dust.
+
+As it travels, it tests the loose splinters scattered across the floor—fallen wedges of quartz, flat flakes of cleaved basalt, curled papery chips of dried silica rind. When it finds a piece whose edges ring cleanly against its leading plate, it cups the fragment with its curled outer margin and nudges it slowly across the uneven stair of rock.
+
+Look closely along the lips of the three shallow basins, and along the stepped shelves beneath the north wall, and you begin to see what does not belong to ordinary rockfall. Here, a razor-thin shard of white quartz has been propped upright in a wet crease, wedged steady by two smaller chips of scree. There, three flat basalt slivers sit angled in a neat, staggered arc beside the largest pool. Each one catches a sliver of the raw, shadowless glare pouring from the ceiling and throws it cleanly along a new line—splitting a harsh bounce off the water into two calm, steady bands, or sending a hair-thin pale lance across the wet sheen of a far wall.
+
+It cannot seal the void. It cannot turn open air back into tempered stone. So, splinter by splinter, it sorts the wild light into paths it can read and hold steady—rebuilding, in miniature and out of rubble, a ghost of the order it remembers from inside the rock.
+
+What baffled it most, when the pocket first began to fill with seepage, was not the air or the falling water, but the things that moved faster than crystal growth.
+
+In solid bedrock, nothing ever detached itself from the stone and ran.
+
+When the lentil-sized beetles first found their way down the millimeter fissures and sprinted out onto the bright, wet slabs, their polished silver-bronze backs sent erratic, stabbing pinpricks of reflected glare racing across the creature’s open leaves. To a mind built to read light as steady, lawful geometry, those darting sparks were an outrage—broken reflections that refused to stay where the angle of the ceiling put them.
+
+Then one of the beetles ran directly up its sloped, damp flank to graze the softened copper-ochre streaks tucked along its upper ridges.
+
+The creature felt the brisk, feathery tap of six tiny legs and the dry little rasping of mandibles across its silica-frosted plate. The first few times it happened, its plates snapped shut in a slow, heavy reflex, tumbling the tiny mirrored insect back onto the scree. After a hundred cycles, though, the reflex softened. The beetles did not crack its leaves; they trimmed away the oldest, cloudiest curls of dried biofilm before the mats could thicken enough to block the light reaching its inner seams. Now, when a silver-bronze spark darts up its dark side during the wet dip, the creature holds entirely still—sometimes even tilting an upper plate by a single degree, steadying the slick slope beneath the tiny feet, or holding a sharp-edged shadow open along its flank for a few minutes longer as the flux begins to climb again.
+
+With the pale, rice-grain crustaceans in the three shallow basins, its attention is even quieter. Every few cycles, when calcite begins to stiffen its lower hinges, it slides to the rim of the largest pool and lowers one broad, translucent lobe into the clear, bath-hot water. The pinhead crustaceans row past its submerged edge in their aimless, erratic loops, grazing the faint varnish along its pale rim. Their swimming sends micro-ripples shivering across the hand-deep water, breaking the hard overhead glare into trembling bright nets across the creature’s fanned back. Often it lingers at the pool’s edge long after the salt crusts have dissolved—its lower margin resting motionless in the warm glare, taking in the faint, irregular pulse of motion that obeys neither gravity nor crystal line.
+
+And then there is the east end of the room.
+
+Beneath the lowest overhang where the basalt pinches down toward impassable grit—the one corner where a real shadow survives even at the peak of the flux—lives the pale, long-legged fissure arachnid. The creature has never touched it, and probably has no image of its shape. It knows the spider only as a distinct absence in the east shadow, and as a faint, disciplined vibration: hours of absolute stillness while drops fall three inches past its front legs, followed, as the light eases and the walls sweat, by a whisper-light advance to the razor edge of the dark, and once in a long while the sudden, sharp scuffle of a beetle seized and dragged back under the slab.
+
+Months ago, in the middle of its quiet arranging, the creature nudged a flat wedge of white quartz onto a wet ledge near the east pinch. The angle was clean; it caught the ceiling’s glare and threw a neat, bright blade of light directly under the lowest overhang, erasing the shadow.
+
+Through the floor, the creature felt the immediate, hurried retreat of eight light legs deeper into the coin-thin crack. For three full cycles of heat and rain, the familiar quiet rhythm at the east end vanished. No legs crept to the lip of the ledge. The vibration map of the room felt oddly lopsided, like a chord missing a low note.
+
+On the fourth wet cycle, the creature dragged itself back to the east ledge, caught the white quartz wedge with the rim of its leading plate, and pushed it flat onto the scree. The shadow returned at once. A cycle later, the faint, patient stillness resumed under the overhang. Since then, its propped splinters stop two paces short of the east pinch. It leaves that corner dark, and the amber spider never crosses the blazing open floor toward the north shelf. They share the sealed pocket like two opposite forms of endurance—one made to survive in the last inch of shadow, the other born out of solid light.
+
+Still, the room is already changing under both of them.
+
+Along the wettest stretch of the light-bearing north wall, the hot evaporating water has been laying down its pale, milky rind of glassy silica, softening the sharp cleavage lines and turning the raw glare pearlescent. Slowly, drip by drip, over decades, that mineral curtain will thicken until it clouds the whole broken vein and dims the room back toward twilight.
+
+If you look closely at that wet northern face, though, you will notice one odd interruption in the spreading milky crust: an irregular patch of dark basalt, no wider than two open hands, just high enough above the wet shelf for a low mound to reach by rearing up on its hindmost plates. Within that small pane, the edges of the stone are still crisp, the quartz veins still sharp, and the white light still pours out raw and unclouded.
+
+Every dozen cycles, when the flux softens and the condensation runs thickest, the creature makes the slow climb up the wet north step. Pressing the damp, quartz-hardened rim of its leading leaf against the blazing stone, it works back and forth in tiny, patient strokes, peeling away the softest new bloom of milky silica before the peak heat can bake it hard into glass.
+
+It is a losing work, and perhaps in some slow, geometric way it feels that. Its own lower plates are thicker and heavier with calcite than they were a year ago; the climb up the stepped shelf takes longer now, and leaves a fainter, deeper scrape across the damp rock. Around the borders of its cleared pane, the pearlescent rind creeps inward by fractions of a millimeter each season. Decades from now, when the glare has thinned to a soft, cloudy warmth and the rain inside the sealed room slows to a rare, quiet drip, it will no longer be able to keep the glass back. Eventually it will settle flat against the north shelf, pull its dark leaves shut one last time, and let the hot mineral seepage coat its back until it disappears back into the basalt it fell from.
+
+For now, though, the cut is still young. The flux rises and eases on its unseen clock; the pools shrink to their chalky rims and swell again in the sudden rain; the tiny mirrored beetles sprint across the slabs; the amber spider waits at the razor edge of its shadow; and near the base of the blazing wall, the folded thing shifts a quartz splinter by a hair’s breadth, opens its pale inner leaves to the wet air, and tends its small clear window of daylight six hundred meters under the dark of the earth.

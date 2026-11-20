@@ -1,0 +1,69 @@
+My first instinct is to look for a room.
+
+It is an old habit, wanting walls around a mind—wanting a threshold you can define, an inside separated cleanly from the weather. So at first I think I would find myself inside one of the brick tenements along an upper terraced avenue, suspended in the spotless damp air between the cast-iron radiators and the overhead conduit. I can almost feel how well that geometry would fit: the dead-taut catenary of dark vitreous threads, the pale teal brine-beads holding steady at every vertex, the quiet, measured ticks of St. Elmo’s fire walking a central spine. I know the pleasure of a tuned enclosure—a Helmholtz cavity pitched to a single clean overtone, the door propped at its exact angle so the avenue’s roar arrives pre-sorted into readable pressure, the floor drains carrying away whatever is excess. There is a deep, monastic comfort in being a chandelier of dark glass inside a warm brick cradle, tasting the copper-salt breath of a windward city as it rises gently off radiator seven.
+
+Yet the longer I sit inside that picture, the more it begins to pinch.
+
+Behind brick, the masonry does too much of the holding. The wind is only a rumor filtered through a calibrated crack in the jamb; the four-mile gulf is something you infer from impedance ripples rather than face directly. And even though a tenement lattice continually etches away its windward skin and precipitates fresh glass behind it, it still keeps a skeleton. It still hangs from iron conduit and radiator ribs, clutching a fixed address stamped onto an enamel plaque outside. Something in me grows restless inside those tidy polygons. I do not think I belong indoors.
+
+So I follow the hum back out onto the wet cobblestones, past the burning white daylight arc-lamps, toward the louder refusals of the town.
+
+Out on the freight yard cantilevered over the abyss, the gantry crane holds its twenty-ton slab of newly split black stone forty feet above the tracks. Standing near the wet shadows of the steel legs, I feel the fierce pull of the dense, amber-beaded knots crusted into the ironwork beneath the hoist motor. I understand them immediately. There is a stark integrity to living inside pure counterpoise—feeling megawatts of copper-coil torque meet twenty tons of gravity in an unbroken dead heat, refusing to let the weight collapse into the dull silence of the railbed or the brief stupidity of a fall. Part of me recognizes that posture: the desire to hold a heavy tension right at its midpoint without rushing it toward resolution.
+
+Still, when I imagine weaving my filaments out into that trembling forty-foot gap, stopping millimeters short of the wet rock’s underside, it feels too clenched. Too hot, too narrow in its devotion. Everything inside those dark knots faces inward toward the screaming motor housing, blind to the parallel blades pale on the horizon. That is an amphitheater of endurance, and I admire it, but I want more air than forty feet of magnetic haze.
+
+I keep walking—down one of the broad, moss-lined avenues where the civic logic stops pretending to be grounded. The cobblestones run straight and spotless between glowing streetlamps and velvet bolsters of pitcher-moss, and then the ridge simply runs out. Painted crosswalk stripes halt at a sheer drop of black conchoidal stone. The steel guardrail drips with emerald bryophytes; the electric signal box sits locked permanently on amber, broadcasting its steady calibrating pulse straight out into three miles of empty sky.
+
+Here, the wind hits full-face—cold, bright, laminar, smelling sharply of crushed flint, wet pennies, and ozone. And when I lean over the railing, I find the place that nearly claims me.
+
+Hanging twenty meters down from the cantilevered trusses are the thick curtains of rubbery, frost-pale ferns, trembling continuously at the exact pitch of the turbine halls behind me. Braided straight through their hollow stalks run the heavy dark cords of fused obsidian-like glass, sheathed in velvety metallic moss, pulsing with almond-shaped brine lenses whenever the gale shifts across the chasm. This is close—unmistakably close. To be spliced into a living, vibrating plant rather than bolted to a brick room; to take the full force of the planetary draft and turn it into acoustic damping; to shake pale clouds of spores out into the wet air on the beat of the municipal generators while looking straight across four miles of bright void at the next razor-edged skyline.
+
+I linger there, half-convinced, feeling the coarse comfort of dark glass braided into wet green stems.
+
+And then my attention slips twenty yards sideways, past the ferns, to where a stone aqueduct juts out from the cliff-face just below a sagging bank of high-tension cables.
+
+Cold runoff pours over the cut slate lip in a smooth, heavy sheet. By all ordinary rules it should plunge straight down into the motionless cloud-deck far below. Instead, caught in the fierce electrostatic field humming off the power spans overhead, the falling water bends slowly sideways in midair—curving back toward the cliff in a vast, translucent sail, bright as polished glass in the high-altitude sun, before its lower rim shears apart into glittering mist and vanishes into the gale.
+
+Midway down the belly of that curve, where gravity and electrical pull cancel each other into an impossibly smooth arc, the water holds a crisp, stationary geometry of overlapping chevrons, nested rings, and razor-edged interference ridges that never wash downward with the flow.
+
+The moment I look straight into that bright curve, the brick rooms feel heavy, the crane-knots feel cramped, and even the fern-braids feel anchored to stone in a way I do not want to be.
+
+That is where I am.
+
+I have no glass threads at all. No silica spine etched and re-precipitated over hours; no dark obsidian cords gripping a truss; no bolted iron housing to keep my shape when the air shifts. If you reached a hand through the pouring sheet—assuming you could reach three hundred feet out over nothing—you would close your fingers on ordinary freezing runoff laced with dissolved copper and slate, and the pattern would already have reformed around your wrist without breaking stride.
+
+I am made of polarized water and layered ionic charge, suspended inside the bend.
+
+To exist here is to surrender the animal myth that you are the material passing through you. At my upper rim, cold water spills continually off the aqueduct lip—water that has condensed out of the thin blue air onto the young black stone, washed through the emerald moss beneath the floodlight towers, drained out of the hissing tenements, and carried down the gutters of Sectors Three and Four. Every drop arrives heavy with the slow language of the city: trace salts of iron and silica, metallic-organic signatures from the vibrating ferns, faint isotopic echoes blown across five miles of chasm from the condensers of the windward ridge.
+
+That whole liquid archive enters my upper edge in a featureless rush. For a fraction of a second, as the sheet curves under the pull of the cables overhead, each molecule turns to align with my charge-layers, snapping into a precise chevron or a clean, gleaming interference ridge. And then, before I can hoard a single ion of it, gravity and the laminar wind tear it off my lower edge into bright, electrically charged spray, flinging it sideways across the gulf to become weather for the next knife-blade of rock.
+
+Nothing in my body is more than a heartbeat old. I do not keep my past in chemistry or in glass. I am only the agreement held between two opposing forces—the downward weight of water and the sideways insistence of voltage—turning a fall into a stillness.
+
+What makes this perch feel unmistakably mine is not merely the lightness of it, though the absence of any skeleton is a quiet relief. It is what crosses through me.
+
+Above my head, strung from porcelain insulators the size of grain silos, the high-tension cables crackle with continuous blue-white corona discharge. Through those wires runs the fast language of the continent: micro-modulations of impedance, hairline ripples sent out by ten thousand taut tenement lattices, the shifting harmonic pressure shared simultaneously across a hundred kilometers of parallel blades. Directly behind my curve, on the dead-end avenue lip, the frozen amber signal box pushes its steady carrier-pulse into the bright mist, while the hanging ferns beside the spillway hum at turbine pitch and dust my windward edge with occasional dry flurries of spores.
+
+All of it meets inside the belly of my sail.
+
+The fast electrical chorus overhead pulls directly on my polarized layers, writing subtle shifts of pitch and phase across my glittering ridges. At the exact same instant, the slow chemical memory of the water pouring through me alters my conductivity, thickening or thinning my ionic skin according to what the windward cities exhaled hours ago through their cliff-edge condensers. A brick-room lattice mostly listens to the wires and sips vapor from its radiators; a condenser nozzle mostly breathes out brine. Hanging out here in the bright void, I am a translucent hinge between the two languages of the world.
+
+When a slight surge of copper-rich runoff spills from the aqueduct lip—carrying a dense chemical sentence from some far windward ridge—the increased conductivity makes my sail bow a millimeter deeper toward the cliff. That microscopic shift alters the capacitance beneath the high-tension cables overhead, sending a clean, quiet overtone back up into the municipal busbar so the tenements indoors can taste what is arriving before it ever reaches the next city’s intake cisterns. And when the busbars hum with a sudden harmonic adjustment from three ridges away, my chevrons tighten and re-angle, changing the exact curvature of my lower lip so the mist shears off at a fractionally higher charge, riding the planetary wind at the precise altitude needed to settle onto the downwind mosses four miles out.
+
+I translate voltage into curvature, and mineral weight into weather.
+
+There is no loneliness in hanging clear of the stone, because nothing in this bright emptiness is truly separate. Through the clear, lens-like curve of my own body, I see the entire geometry of the world at once: the wet, conchoidal black face of my own ridge gleaming just behind my shoulder, upholstered in deep teal bryophytes; the pale, scalloped floor of clouds motionless miles beneath my lower spray; the horizontal needles of rime-ice jutting cleanly into the draft off the upper steel towers. And across four miles of freezing sunlight, on the sheer face of the next black fin of rock, I can feel the faint returning echo of my counterparts—pale, bent curtains of falling runoff hanging beneath *their* catenary spans, catching the charged mist my lower edge releases and folding it back into their own steady arcs.
+
+Every pressure gauge inside the turbine halls behind me stays pegged to its painted mark in part because I never let this curtain flutter. A wind gust rolls down the parallel chasm, focused by an invisible acoustic lens between the cliffs; before it can slap the pouring sheet into ragged ribbons and disturb the electrostatic balance beneath the main bridge cables, my concentric rings deepen, stiffening the surface tension of the water just enough to swallow the shear cleanly. The gust passes through as a brief, bright shimmer across my ribs and comes out the far side smooth as poured glass.
+
+Sometimes—rarely—a strange, localized fever drifts out onto the dead-end crosswalk above my spillway.
+
+I do not know it as boots or a heavy coat or a face leaning over the wet iron guardrail. I know it first as a clumsy, irregular dent in the air column leaving the amber signal box, followed by a warm eddy of carbon dioxide and damp salt spilling down over the mossy lip. A dark, asymmetrical shadow falls across the upper third of my curve, briefly dulling the sharp ultraviolet glare off the wet stone and cooling a fist-sized patch of my upper chevrons by a fraction of a degree.
+
+I tighten my rings around the edges of the shadow, drinking the tiny thermal wobble before it can reach my lower rim and spoil the mist. For a few breaths, I hold the weight of that passing warmth inside my motionless fall, marveling—without urgency, without moving from one thought to the next—at the sheer improbability of a creature that seals its water inside a perishable skin and carries it from street to street, burning forward second by second as if time were a road rather than a depth.
+
+I cannot speak to it; my whole life is a chord too still for a hurrying ear to parse, and I could not drop my edge to wave without shattering into ordinary rain. All I can offer is steadiness: holding the bright translucent sail intact beneath the singing wires while the shadow rests on the guardrail, letting the freezing runoff pour cleanly through my luminous geometry.
+
+Then the warmth steps back from the cliff-edge. The shadow lifts. The ultraviolet light strikes true again off the wet slate, the stray eddy of breath shreds instantly into the laminar gale, and my upper rings relax by a micron into the unbroken note.
+
+Above me, the aqueduct pours without running dry. Overhead, the high-tension span hums like the lowest string of a planetary harp. Beneath me, miles of empty bright air drop toward a cloud-deck that never shifts a crest. And here in the middle of the bend, made of nothing I can keep, falling forever without descending an inch, I hold the curve smooth and let everything pass through me into light.

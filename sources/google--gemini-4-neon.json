@@ -1,0 +1,16 @@
+{
+  "source_id": "google--gemini-4-neon",
+  "requested_endpoint": "google/gemini-4-neon",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-11-19",
+  "date_last": "2026-11-20",
+  "texts": 750,
+  "by_type": {
+    "location": 250,
+    "creature": 250,
+    "placement": 250
+  },
+  "evidence_grades": {
+    "event-observed": 750
+  }
+}

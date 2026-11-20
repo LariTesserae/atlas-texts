@@ -1,0 +1,69 @@
+You will not see them while you are moving.
+
+Every time you edge sideways down an aisle between the slate fins, your shadow swings ahead of your boots and falls across the sunlit rock. To anything born of this basin, a passing shadow is indistinguishable from late afternoon. The rock temperature plunges in half a heartbeat, and whatever was open on the stone snaps shut before your eyes can settle on it. By the time you look down, there is only wet phyllite, a blister of pale blue-green salt, and a sharp ceramic *tink* that you blame on frost-spalling.
+
+To see what lives here, you have to crawl into the shade behind an overhanging slab, pull your knees tight so no part of you interrupts the beam, and wait without shifting until your fingers go numb. Watch a single sunlit fin across the corridor—specifically, the razor-sharp seam where the blinding glare meets the cold dark around its edge.
+
+After ten minutes, maybe fifteen, a wafer of wet dark rock near the rim of the slab detaches by the thickness of a knife blade.
+
+It does not crawl out into the open. It unfolds. Slowly, with the stiff, reluctant precision of oiled leather warming by a stove, a flat dark leaf peels away from the stone and flattens itself wider into the sun. It is no larger than a spread hand—though older ones grow the length of a forearm, and deeper in the talus there are things wider than a saddle—and its upper surface is armored in overlapping plates of dull black horn, grit-pitted and speckled with tiny embedded flakes of mica. Even when you know where to look, your eyes keep losing it against the wet phyllite.
+
+Then you notice the rest of it, hanging half an inch past the stone's edge in the lethal shade.
+
+Because it is not one thing, or not built for one world. Joined to that dark sun-plate along a narrow, corded ridge is a second lobe, folded tightly around the rim of the slab into the freeze. It looks nothing like the first. It is pale as skim-milk ice, ribbed with translucent gristle, and fringed along its hanging border with fine, glassy hairs that catch the rising vapor from the ice spires until they look dead-identical to hoarfrost.
+
+It lives by straddling the split.
+
+Nothing with lungs could bear the air up here, and nothing soft could survive twenty minutes of that bruised-indigo glare without cooking dry. So they abandoned breath and built themselves into living hinges between heat and cold. Pressed flat against the sun-baked slate, the dark lobe drinks radiation until its pitted plates steam faintly and the thick, pale-green lymph beneath its scales expands, pushing slowly across the central ridge into the shaded half. There, an inch away in air cold enough to bite through wool, the fluid chills, thickens, and draws fresh moisture upward from the rock film before cycling back. Heat drives them the way a heart drives warmer animals. Without both sides of that half-inch border at once, they cannot move at all.
+
+Watch long enough and you begin to see them everywhere the light cuts sharp.
+
+They do not hurry; they move at the exact speed of the noon shadow creeping across the stone. As the sun wheels overhead, a row of three or four will hitch silently along a vertical fin, keeping their central ridges aligned to the knife-edge of glare and shade. Along that ridge sit tiny, recessed pits—not soft eyes, which would sunburn and burst in a single morning, but clear, quartz-hard beads tucked under hoods of horn, sensing nothing of shapes or faces, only the exact slope and heat of the light. Underneath, hidden against the wet rock, runs a narrow pale track bordered with stiff, hooked bristles as black and hard as obsidian chips. They bite into microscopic fractures in the slate, dragging the flat body half an inch forward, pausing, dragging again.
+
+Down that same hidden belly runs a long rasping seam. Where the dark stone has been ground to damp flour by a thousand winters of freezing and thawing, they press flat and lap the bitter, copper-bearing brine straight out of the fractures. They graze the thin mineral sweat before it can dry, grinding iron-stained grit and salt into themselves. Once in a long while, when a freak thermal drops a valley moth or a blown seed onto a nearby ice blade, a pale frost-fringe will stretch painfully far out from the shade, lay a glistening bead of salty fluid over the speck, and slowly draw the soft marrow out of it—leaving only a bleached wing or a dry feather-barb plastered neatly to the ice, preserved like a scrap in amber.
+
+Because they drink rock-brine all day and lose water to the punishing air, the salts have to go somewhere.
+
+They gather in the cold half. Week by week, season by season, the pale shaded lobe blooms with thick, vitreous crusts of turquoise and chalk-white gypsum, shot through with fine silvery threads of the creature's own hardened horn. Unlike the fragile salt-needles sprouting on bare stone, this growth is dense as fired glaze and laced with copper-sweet resin. For a while it serves as armor against the wind and the razor edges of the ice spires. Eventually, though, it grows too heavy. A crust-bound tenant moves a fraction too slowly to keep pace with the shifting shadow-line; it falls behind into full cold and locks early, or gets caught flat in the glare until its plates crack.
+
+When the weight begins to tell, you can watch them work themselves against sharp quartz veins or the serrated teeth of the ice blades, rocking slowly to snap the thick blue-green plates loose from their shaded flanks. A dry *tink* rings out in the flattened silence. A small shower of pale glass flakes tumbles down the fin and shatters into faint blue-white powder at the foot of the slab.
+
+That *tink* is not the only sound they make, and not all the sounds in the basin belong to cooling rock.
+
+The thin air up here refuses to carry a voice, so they do not waste effort on the air. They use the stone. Press your gloved palm flat against a tall slate fin at midday, keep perfectly still, and after a few minutes you will feel it before you hear it: a dry, sparse tapping traveling straight up through the bedrock from two aisles over. *Tick. Tick-tick.* Pause. Then an answer from a slab near the western wall, slightly deeper in pitch, vibrating faintly against your wrist.
+
+They press the hardened spurs along their central ridges straight against the phyllite and snap them, sending narrow tremors down into the continuous rock beneath the scree. That is how they know who holds a fresh seepage-seam, where a melted spire has toppled and opened a new corridor of midday sun, and when something heavy and wrong has dropped over the rim of dark stone. When boots hit the gravel, a fast, dry ripple of clicks runs down through the bedrock—not panic, not flight, just a quiet warning passed slab to slab. Within three breaths, fifty small hinges fold flat and turn back into geology.
+
+Wait longer—stay until your breath leaves a white rime on your collar—and you start to understand the small, weathered contraptions scattered through the aisles.
+
+They were not built to trap the basin's tenants. They were built to feed them, wake them, and share their weight.
+
+Look under one of the juniper-and-rawhide tripods, where a cloudy pane of hand-split mica tilts above a rich turquoise seam. Beneath that translucent roof, shielded from the dry air while trapping the brutal midday glare, the slate sweats thickly and steams like an iron pan. Three of them are crowded there now, far broader and plumper than the lean ones clinging to bare stone out in the aisles. Their dark sun-lobes bask inside the warm little hothouse while their pale, frost-fringed halves poke neatly out past the edge of the mica into the biting shade. They do not need to chase the moving shadow-line as frantically here; the pane softens the turn of the light, giving them an extra hour of warmth on either end of noon. And because they feed so richly beneath the skylight, the dense blue-green crystal plates on their shaded flanks grow twice as thick, clear and heavy as spun glass.
+
+Follow the aim of the hammered copper reflector propped on its chips of quartz, and you will find something stranger still.
+
+The harsh rectangle of bounced midday light strikes deep inside a narrow cleft where direct sun has not touched since the mountains finished rising. At first the lit patch looks like nothing but damp dark slate and a shallow, hand-chiseled channel trickling into a blackened clay saucer. Then, as the reflected heat soaks in, the floor of the cleft shifts.
+
+What lies wedged down there is not palm-sized. It is broad as a butcher's block and three fingers thick, its dark sun-plates ancient, scarred, and fused halfway into heavy ridges of iron-stained horn, its shaded rim buried under a massive shelf of deep turquoise salt-glass that has built up over decades. Too heavy to climb the upright fins anymore, too broad to turn in the narrow aisles, the oldest ones sink downward over the years into the deep talus and shadowed rock pockets. Most of the year they lie completely locked—not dead, only suspended in the dark cold, shrinking inward when winter deepens with that slow, dry groan you heard beneath the gravel, like cooling stove-iron.
+
+Only when the angled square of copper light finds them do they wake.
+
+Slowly, with a quiet crackling of stressed crystal, the ancient hinge opens an inch. Meltwater beads across its dark back, dissolves the thick bitter salt along its seams, and runs down the thumb-wide chiseled groove into the blackened clay saucer. Once or twice a summer, when the passes below clear enough for a solitary figure to climb up from the snowline carrying juniper sticks and a pouch of dry meal, that visitor will crouch beside the cleft for hours without moving, burnishing the tarnished copper bright with the smooth river stone so the beam stays true.
+
+And when the old one is thoroughly warmed—softened just enough at the edges of its shaded plates—the visitor reaches in slowly with the curved bone scraper. Iron would bite too hard, scar the living gristle underneath, and foul the copper-rich salt. Bone gives. With infinite patience, the curved tip slips beneath the choking overhang of blue-green crust, prying gently until the heavy mineral plate lifts free with a clean, glassy snap.
+
+The creature does not flee—it cannot—nor does it fold shut. Once the dead weight comes away, its pale, frost-bearded fringe breathes vapor freely for the first time in a year, flexing slowly in the cold dark behind the beam of light. The visitor lays the translucent turquoise slabs carefully into leather wrappings, scrapes the concentrated rime from the clay saucer, and leaves a fresh twist of coarse hair-cord lashing a loose mica skylight before crawling back into the low slate crouch-hole to scratch one more pale vertical mark into the doorway stone.
+
+Near the center of the basin, in the shallow depression ground into a flat boulder, the copper wire ring waits under its clear skin of ice. Look closely—kneel with your face an inch from the frozen surface—and you will see that the glittering blue-white rime crusting the submerged wire is not symmetrical. Every few fingers' breadth along the metal, tiny glassy teardrops cling like buds, each no larger than a lentil, wrapped in a microscopic hair of pale horn.
+
+During the briefest, hottest days of high summer, when the puddle stays liquid for four hours at a stretch, the adult tenants creep down the bases of the fins and leave those brine-beads in the standing water. Most freeze solid and burst before autumn. The ones that settle against bare copper drink the trace metal straight from the wire, slowly hardening their tiny dark shields and pale frost-fringes through two or three winters of alternating ice and glare. One bright noon, when the meltwater softens the collar of needle-ice around the rim, a flake no bigger than a fingernail will let go of the ring, find the shadow-edge of the boulder, and begin its first slow hitch upward toward the vertical rock.
+
+Right now, though, the afternoon is turning.
+
+High above the saw-toothed western rim, the sun drops fast, and the shadow-lines race across the narrow corridors faster than anything in the basin can follow. You feel the change in the stone before the light leaves your shoulders: a long, measured sequence of *ticks* rippling downward through the slate fins as the tenants sense the angle thinning through their quartz-lidded pits.
+
+One by one, they abandon the high sunlit faces. They hitch backward into the narrow clefts, under the overhanging shelves, beneath the cooling panes of mica. None of them leaves its pale fringe exposed. Slowly, smoothly, the dark outer leaf folds over the frost-bearded underside, closing tight along the central ridge like the covers of a heavy book shut against the damp. Each one presses out the last thin bead of free meltwater from its outer seams—a final scattered *plip* into rock pockets and half-buried clay saucers—leaving its inner channels thick with a copper-sweet brine too salty to splinter into ice even in the blackest midnight freeze.
+
+The wave of flash-freezing sweeps across the bowl with a crisp, brittle shimmer as every wet sheet of water locks into glossy black armor. Right in the middle of that chorus, dozens of small dark hinges lock seamlessly back into the phyllite. Frost-heave shifts a loose pebble; diamond dust drifts lazily across the darkening aisles, dusting the abandoned skylights and the silent rock alike.
+
+By the time the last silver-gold light lifts off the tips of the ice spires, the basin looks entirely dead again—nothing but leaning stone, frozen knives, and bitter blue-white salt, locked tight against the stars, waiting for the morning glare to split the world in two and wake it all over again.

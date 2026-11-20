@@ -1,0 +1,87 @@
+If I let myself sink into this valley without fighting its temperature, I do not arrive at the rim, and I do not arrive in boots. Anything dry or insulated would only keep me outside the place even while standing in the middle of it. To belong here at all, you have to stop treating the dark as an absence and the heat as an obstacle. You have to put bone against wet earth and wait until the floor stops feeling still.
+
+At first I might think I belong far upstream, close to the cooling outfalls where the water enters sharp with fresh iron and the sixty-cycle hum climbs up the limestone loud enough to ache in the back teeth. There is an appeal to being near the source of things, where the current still remembers the pipes it left behind. Yet the longer I sit with that, the more restless it feels. Up there, the water runs too eager, the air holds a faint metallic bite, and the youngest dwellers crowd the warm banks, shifting every few days as the channels braid and unbraid. Everything is too loud to hear what is moving underneath the loudness.
+
+Nor would I settle all the way down on the broad lower silt pans. Those flats are for convergence—wide, shallow, forgiving floors where the basin breathes out during a shutdown and dozens of tall shapes come together in the sudden cool. In the long months of full production, the pans lie too flat and too muffled; deep layers of soft silt swallow the bedrock tremor into a thick, woolly blur.
+
+Where my weight actually wants to come to rest is midway down the basin, along a secondary gully that no one would notice in passing.
+
+Here, an old spur of the limestone shelf pushes closer to the surface than anywhere else for a hundred meters—barely the length of a forearm beneath the black ooze. A sprawling strangler fig has gripped that rise for centuries, plunging one thick, knotted taproot straight down through the clay until it locks against the stone. The lukewarm water slows as it bends around the root-wall, dropping its heavier silt upstream and sliding past in a clear, ankle-deep ribbon. It is not the richest spot in the valley—fallen figs drift past only once or twice a day, and the snail-beds along the bank are modest—but the ground here has an unusual clarity. Rest a heel in the mud, and the distant turbines do not boom or muffle; they arrive dry, even, and crisp, like clean grain under the pads of your fingers.
+
+And I am not the first to have noticed. Wedged deep into the far underside of the fig’s buttress, half-swallowed by dark root-tendons and veiled in wet moss, lies the iron-heavy ribcage and broad keel-bone of someone who stopped rising decades ago. Their soft tissue returned to the worms long before I ever walked down from the upper terraces. Only the calcified frame remains, fused straight into the taproot. Because of those old bones, this little bend in the gully rings with a faint, extra lucidity—a buried tuning fork amplifying whatever travels through the shelf.
+
+This is where I would be. And I would be one of the dwellers, though neither young enough to roam the hot upper flats nor yet old enough to have surrendered my knees to the mud.
+
+I am somewhere in the long, quiet hinge between the two. Decades of drinking the mineral seeps and cracking freshwater snails between my back teeth have packed my shins, my forearms, and the heavy keel of my breastbone with iron and calcium. When I fold myself into the clay beside the fig’s taproot—knees drawn higher than my shoulders, long wrists bent back flat against my ribs, chin resting deliberately on a slick knuckle of root—the weight of my own skeleton anchors me cleanly into the floor. I do not have to brace against the trickle around my ankles. My hide has loosened into deep, slate-dark pleats along my ribs and throat; I have stopped trying to scrub off the basin’s greasy soot-film, rubbing wet silt into my joints instead until the moths settle across my shoulders in overlapping tiles and forget that I am not a waterlogged stump.
+
+Once or twice a month, a thick-bodied pit viper slides into the warm hollow behind my folded knee and stays there for three days, borrowing my stillness. Thirty meters west, past a tangle of wild ginger, three hogs share a rust-tinted wallow; without lifting my brow, I know each of them by the wobble their breathing casts across the sixty-cycle hum—the shallow, rapid panting of the two younger ones, and the long, ragged catch at the end of the old sow’s exhale. Every hour or so, a fallen fig catches against my calf, or a sluggish loach noses into the shade under my thigh, and my long, cobble-smooth fingers glide beneath the surface without breaking it.
+
+If you watched me for a week in the middle of full production, you would swear I did nothing at all.
+
+Mostly, that is true. Yet a few slow habits have grown up around this terrace, so gradual that I barely think of them as tasks.
+
+The first is keeping the hollow clean. Just against the base of the taproot, where the buried skeleton’s shoulder blade meets the wood, generations of dwellers before me scooped out a small, palm-wide pocket right down to the firmest clay over the limestone spur. Warm water constantly tries to fill it with rotting leaf-duff and drowned stems, which deaden the bedrock tremor into a dull hiss. Every few afternoons, when the mud-film grows thick enough to blur the note, I uncurl one forearm—slowly, so the moths along my elbow do not lift—and work my blunt fingers down into the pocket, lifting the wet rot aside bit by bit until the hum snaps sharp again beneath my palm. It is an absurdly small work. If I vanished tomorrow, the water would fill it back in within a month. Still, when the pocket is clear, the whole eastern half of the basin opens out under my knuckles like a swept floor.
+
+The second habit grew straight out of the first.
+
+Because my bones have grown dense enough to read fine grain, and because the old skeleton beside me acts like a lens pressed to the stone, I hear things in this hollow that do not carry well across the softer terraces downstream. Out near the margins and along the deeper root-cradles, the living elders—the ones whose ankles have already fused into the ooze—catch tremors from far beyond the wooded rim. A low pressure front breaking in a thunderstorm past the high-voltage corridors. A new pile-driver thumping heavy footings into the earth kilometers to the north. A subtle change in the volume of the distant river that feeds the cooling yards. They send these thin, spidery tremors back into the clay as best they can, weak and uneven, easily lost in the thick alluvial mud before they travel a hundred meters.
+
+I catch them here, pressed against the taproot.
+
+Not all of them—some arrive too faint even for the old ribs beside me to clarify, no more than a momentary shiver in the sixty-cycle purr. But when a pattern holds, I shift my weight forward a thumb’s width until my breastbone rests square against the cleared clay, tighten the deep bands of muscle inside my chest, and lean my own pulse slightly off the turbines’ note. Fifty-eight cycles, or sixty-two. Where my tremor meets the steady industrial hum, the interference swells into a slow, clean, rolling beat that glides effortlessly through half a kilometer of wet earth.
+
+I am not inventing the news, and I am not the deepest ear in the valley. I am only a relay in the middle terraces, taking a thread-thin vibration that would have died in the leaf-litter and giving it enough clean shape to reach the lighter-boned dwellers folded downstream. *The water from the east outfall will run iron-thick before dusk. A heavy bank slumped near the third rise. The oldest one under the twin ferns is still answering, though their pulse grew thinner after the last freight passed.*
+
+When a heavy press slams down kilometers beyond the rim, and that sudden, bone-deep thump rolls across the limestone like silent lightning, I hold completely still and let the whole valley snap into crisp relief beneath my chin—every fallen limb, every breathing hog, every spaced-out neighbor folded quietly in their own gully—before the flash dissolves back into the warm, tireless glow of the generators.
+
+---
+
+Then, once or twice a year, the light beneath the earth begins to fail.
+
+I feel it days before the water drops. Sitting with my cheek near the cleared pocket, I catch the moment a distant turbine throttles down: the velvety sixty-cycle purr suddenly thins, losing its fullness, leaving a slightly ragged edge in the limestone. A few hours later, the five-minute cadence of the rolling mill stops mid-cycle and does not resume. Along my neck-membranes, the world goes faintly hollow.
+
+Across the terraces, the beat-pulses quicken—short, overlapping ripples passing from gully to gully as the basin confirms what the stone is saying. Two days later, the lukewarm seep sinks a finger’s width along my shins and cools by two degrees. The copper smear above the torn canopy fades almost to true black. Along the exposed mud, pale crab-shells begin to pile in the eddies, and somewhere out in the flats a frog dares a single, dry, tentative croak.
+
+I wait until the coolness reaches the undersides of the fern fronds before I move.
+
+Standing is no longer the effortless uncurling it was when I lived near the upper outfalls. My shins feel heavy as waterlogged timber; my knees pop softly under the hide as I straighten them, lifting my narrow frame out of the ooze until my head enters the strange, thinned coolness two meters above the ground. Carpets of drab moths lift off my flanks in silent, drifting clouds. Snails tumble back into the trickle with small wet ticks. For the first time in half a year, air moves freely between the pleats of my ribs without cooking me from inside.
+
+Yet the floor beneath my heels has gone dim and fuzzy. Without the full flood of the turbines, the acoustic shadows blur at ten paces. I have to look with my recessed eyes again, blinking the pale inner lids clear of soot to read the faint wet gleam of the gullies.
+
+I do not go straight down to the silt pans.
+
+Before turning south, I crouch along my own bank and gather two handfuls of the fattest freshwater snails, tucking three soft, bruised figs into the crook of my elbow. Then I take long, high-kneed steps forty paces north through the braided creeks, pausing whenever my heels find a submerged root, until I reach the twin ferns where one of the living elders has sat unmoving for the last three shutdowns.
+
+In the dimmed dark, they are almost indistinguishable from the hummock behind them—moss creeping over their collarbones, ankles locked solid into the limestone shelf, skin crusted thick with dried mineral bloom. Without the sixty-cycle floodlight, they must be almost completely alone up here while the rest of the basin drains toward the flats.
+
+I kneel carefully beside them in the cool trickle and lay my broad, flat palm against their calcified shoulder. For ten seconds, nothing answers. Then a very slow, faint warmth shifts beneath the crust, and their pleated flank sinks a fraction of an inch. I tuck the snails and the soft figs gently inside the curve of their slack, half-buried fingers—close enough that even a wrist that can barely flex will find them.
+
+Before I leave, I press my cheek down beside their knee against the wet root-mat, just to share their silence for a few minutes.
+
+This is the strange gift of a shutdown that almost no one talks about, because everyone else is already hurrying down to the flats to touch and thrum. When the turbines sleep, the valley goes blind to its own small geography—but for an iron-heavy skeleton fused directly into the bedrock, the blinding glare has finally been turned off. Pressed beside the elder’s shin, I catch a sliver of what they are hearing in the dark: none of the tidy sixty-cycle hum, none of the presses or freight cars, only an unimaginably slow, deep, un-rhythmic groan from far beneath the limestone shelf—groundwater moving through drowned caverns, bedrock settling by a hair’s breadth, the vast, un-mechanical weight of a planet that existed long before the cooling yards were built and will keep shifting long after they go cold. It makes my jaw ache in a different way, quieter and wider. I stay with it until the elder’s slow sigh tells me they have had enough company, lift my hand from their shoulder, and turn south toward the flats.
+
+Down on the broad silt pans, the basin has already relit itself from below.
+
+Dozens of tall, narrow figures stand or crouch across the pale drifts of empty crab carapaces. Because we cannot read each other cleanly across fifty meters of dimmed stone, we close the distance until skin meets skin—brows resting against collarbones, long forearms weaving together in the dark, taking each other’s measure by direct warmth and pulse. I do not drift into the tangled fern-bottoms with the mating pairs, and I do not push toward the hot center of the gathering where the loudest chests are driving the beat. I settle near the outer edge of one of the wide rings, planting my heels firmly in the soft clay, leaning forward on my knuckles, and adding my steady, low thrum to the weave.
+
+Between spells of thrumming, an old acquaintance from two terraces west finds me by the texture of my knuckles. Without a word, they pick up the sharp, curved edge of a molted mud-crab shell and begin to work slowly along my shoulder blades, scraping away six months of hardened fly-ash and pale mineral scale. It stings sharply in the cool air, leaving the fresh grey-violet skin underneath raw and startlingly sensitive—like stepping out of a heavy shell of my own. When they finish, they turn their back to me, and I take the cobble-edge and do the same along the ridge of their spine, careful around the knots where their joints are already beginning to stiffen.
+
+Later, near the quietest part of the fourth night, a parent brings a year-old infant out from the shaded folds of their chest—pale, nearly translucent, small fingers still curled from months of clinging—and lowers its tiny, soft heels onto the silt beside my knees. The little one trembles at the sudden unfamiliar openness of the mud. I stay very still and drop my chest-pulse half a shade softer and cleaner, drawing a clear, simple boundary in the clay beneath its feet so it can feel where the ground holds and where the water begins, until its small knees stop shaking and it presses a curious, flat palm down into the ooze.
+
+---
+
+On the sixth evening, the distant purr returns.
+
+First a faint, hesitant flutter far to the east, then a steady thickening as the great generators spin back up to load. The raggedness smooths out of the stone. An hour later, a single heavy press drops kilometers beyond the rim, snapping the whole crowded flat into sudden, crisp relief—dozens of tall, dripping shapes caught mid-stride in the silent flash of vibration. By dawn, the water will have risen a finger’s width, warm and iron-sweet, and the copper haze will have closed back over the canopy like a heavy lid.
+
+We do not say goodbye. One by one, the shapes on the flats turn away into the braided creeks, melting back into the dark undergrowth before the heat locks down again.
+
+I walk back up to my middle terrace with my shoulders still tender under the fresh soot-fall, fold my knees high beside my ears next to the fig’s taproot, and sink my heels into the familiar ooze. The old skeleton beside me is already humming cleanly with the restored load. I reach down, clear a fresh drift of leaf-rot out of the listening-pocket, and let the basin settle back into my bones.
+
+I know how this ends for me, and there is no urgency in it.
+
+With every season of mineral water, my shins grow a fraction heavier, my knees a fraction less willing to straighten when the turbines sleep. Ten shutdowns from now, perhaps fifteen, the water will cool and drop along the clay bank, the moths will wait on my back, and I will find that my joints prefer to stay folded where they are.
+
+I will not wander downstream to find a softer gully when that time approaches. I will shift just one body’s width closer to the fig’s taproot, wedging my ankles directly over the bare rib of limestone, right beside the iron-dark bones that have shared this bend with me for so long. Before my fingers grow too stiff to work, I will gather three smooth iron-nodules from the seepage bed and press them firmly, in a short slanting line, into the soft bark of the fig at chest height—right above the cleared listening-hollow. Not a name, and not a monument. Only a small, unmistakable ridge for the next dweller’s knuckles to find in the dark, saying without a sound: *The stone rises close here. Keep the pocket clear. The hum is clean.*
+
+And after that, I will simply stop rising. I will let the moss climb my collarbones, let the pit viper keep its place behind my knee, let younger hands tuck a soft fig between my fingers now and then during a cool drift. Gradually, the boundary between listening and being listened through will thin to nothing at all—until even after the slow rise of my flank fails to come again, my heavy, iron-saturated ribs remain locked against the root, humming patiently with the distant turbines, catching whatever faint weather moves beyond the rim and sending it quietly back into the wet clay.

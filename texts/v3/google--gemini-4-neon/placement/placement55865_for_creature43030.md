@@ -1,0 +1,49 @@
+At first, I think I would try not to be a person at all.
+
+When a place is that wide and that quiet, there is a strong temptation to dissolve into its edges—to be one of the silver-backed foxes curled three steps down from a warmed doorway, eyes narrowed to slits against the sleet, belonging to the masonry without owing anyone an explanation. Or even quieter: to be the clean shear of air above a wind-curb, holding the gale back from a civic terrace without humming, without asking to be noticed. Something purely attentive. Something that lasts as long as the basalt.
+
+But stay on a high terrace for an hour while the western squall drags its grey hem across the flats, and that temptation begins to feel too easy. The stillness here isn’t emptiness; it’s a room waiting for someone to set a kettle on the hearth. To actually *know* the bite of the thin air, you need lungs that have to pace themselves on the long causeways. You need hands cold enough to care about the rough glaze on a thick stoneware cup, and a shoulder that learns, after a few winters, to lean half a pace ahead of the wind-curb without looking up.
+
+So I have a body. A heavy coat of peat-brown felted wool, pale along the bottom hem with dried mineral bloom. Soft-soled boots that grip wet fracture-edges without making a sound on the stairs.
+
+For a while, I aren’t sure where my feet are taking me.
+
+I find myself watching the bench-walkers first, out along the northern rim where the mist sits low and permanent over the ascending slabs. I understand their patience—the way they kneel on wet rock with flat acoustic plates, listening for a stress-line two kilometers down, nudging a bedding plane by a millimeter so an avenue nobody has named yet will drain cleanly in fifty years. Part of me wants that ceramic-tipped staff in my hand.
+
+And then, walking back toward the central terraces, I pass a grandmother and a child kneeling beside a raw gravel pocket with canvas satchels of dark, sweet-smelling loam, pressing a thumb-thick cutting of alpine willow into the cold seam, and I feel the pull of *that* instead—the stubborn, small-scale tenderness of making dirt where the world hasn’t gotten around to it yet.
+
+Neither one quite settles over me on its own. The bench-walkers listen to what is deep beneath the surface; the soil-keepers tend what is trying to root on top of it. Walking the straight stone avenue between them, three kilometers of gleaming wet bedrock opening out on either side, I realize I keep stopping at the things in between.
+
+A mirror-pan barely ankle-deep that wasn’t spilling eastward last Tuesday, and is now feeding a brand-new, silver thread of water down a staircase of raw scree. A line of pale mineral salt weeping from a dressed retaining wall where a shaggy grazer has worn a smooth patch with its tongue. A vacant residential quarter—clean, thawed, shutters latched, built for people who won’t unpack their crates for another century and a half—where forty pairs of cliff-birds have already found the warm recessed vents under the north eaves.
+
+That is where I find myself. Not out on the mist-shrouded edge where rock is still being born, and not tucked deep inside the oldest, most settled courtyards, either. I am on the seam between the inhabited districts and the unopened ones.
+
+If I live anywhere, it is in a single small room above an outer transit pier—Pier Eleven, say, on the northern shoulder of District Six, where the stone guideway runs arrow-true across four kilometers of wet flat before the next cluster of low roofs appears on the horizon. The pier itself sees maybe a dozen passengers a day. Above the waiting arcade, tucked behind heavy recessed glass, there is an old warden’s room that nobody else needed. I lined it slowly over the years with oiled ash planks and heavy slate-and-cream wool mats. On the deep stone sill sit three speckled clay pots: wild thyme, a crooked cushion of moss I took from a weeping wall before the crust-minders sealed it, and a stunted juniper I have been keeping company with for seven winters. It has grown perhaps half a finger’s length in all that time. Neither of us is in a hurry.
+
+When I step out in the morning, with a tin of hot salted broth in one deep pocket and a rolled waxed-linen case strapped flat against my back so it won’t knock in the wind, I know what my trade has quietly become.
+
+I am a keeper of early habits.
+
+Nobody calls it anything that grand—on the plateau, grand titles sound ridiculous in air this thin. The neighbors mostly call me a *water-walker*, or just ask, when I sit down at the district table in the evening, what the empty blocks are doing this week.
+
+Because a city built centuries ahead of its population doesn’t just sit still while it waits. The rock is still learning where to put its rain. A shallow rill cuts three millimeters deeper into sharp gravel after every squall; a weeping seam slows to a dry white crust after a deep-crust *tick* shifts the weight underneath it; a patch of chartreuse lichen crosses the invisible border where natural basalt meets civic masonry, stitching geology and architecture together. And inside the unopened quarters—mile after mile of quiet, frost-free stairways and sunken plazas—the animals are already deciding which alcoves catch the afternoon glare and which undercrofts hold the gentlest draft.
+
+Someone ought to watch that while it’s happening. Someone ought to write it down plainly, without trying to steer it, so the people who finally unlatch those shutters in a hundred and eighty years don’t walk in blind.
+
+So I walk the wide intervals after a weather front moves through. I carry waxed-linen charts, dull-finished calipers, a pewter case of dry-weather graphite and iron-gall ink, and—always, out of habit—a small oiled pouch of dark compost from the courtyard troughs, just in case I find a sheltered crack behind a retaining wall that no one else has noticed yet.
+
+When I reach an unopened quarter, I unlatch the heavy civic doors just to check the quiet. The air inside smells faintly of cold mineral dust and warmed stone. My boots make no sound crossing an atrium built to hold three hundred voices. I walk the perimeter slowly, opening a shutter here and there to see where the sleet drives hardest against the sills, checking the recessed vents where the cliff-birds have stacked dry sedge, noting in clean, small hand on a linen sheet: *Block Nine, west courtyard—water gathers along the third step after a southwest squall; drains clear in four hours. Fox den beneath the south loading stair, third winter running. Do not seal the upper north vent; thirty nests at least.*
+
+Once a season, I fire the most durable of those notes onto thin, flat slips of pale stream-bed clay, glazed with dark iron runoff scraped from the weeping faces, and tuck them neatly into the dry masonry alcoves beside the main doors of the empty halls. Small, quiet letters left on a mantelpiece for strangers who haven’t been born yet. *Here is what lived here before you arrived. Here is where the water likes to go when the wind comes off the western flats.*
+
+On the walk back, if the midday glare breaks through and turns the whole plateau to hammered silver, I stop along the outer boulevards and pluck thick hanks of lanolin-rich ledge-fleece off the basalt corners where the grazers have been rubbing their shoulders, stuffing it into my coat pockets for the weavers in District Six. Sometimes I sit on a warmed retaining wall beside an empty square just to rest my knees and let the broth warm my palms. A herd of slate-and-cream ruminants drifts past twenty paces away, broad hooves clacking softly on wet dressed stone, ignoring me completely. Overhead, a hawk circles in the invisible column of warmth rising from the plaza roof, wings barely twitching.
+
+And once in a while, as I lean my bare palm against a newly dressed ledge to feel the slow, steady coolness of rock that is still finishing its work, a single crisp *tick* sounds deep under my boots.
+
+I don’t startle. I pull out my notebook, check the date, and make a small mark in the margin—just a quiet line beside the name of the basin, so the bench-walkers will know later, over barley bread and smoked fish, that the northern shelf took another fraction of its weight this afternoon.
+
+I think that is what settles into me most deeply as the evening sleet begins to hiss against the raw seams and the silent carriage slides past across the wet flats, its amber windows glowing like lantern-light on dark water. I wouldn’t want to be the architect who drew the plateau’s master plan, nor one of the citizens five hundred years from now who will finally walk beneath tall willows along a crowded avenue.
+
+I am most myself here—in the preface. In the long, quiet morning of a place, walking between what is finished and what is still rising out of the mist, keeping the maps honest, leaving a handful of dark earth in a cold crack, and sweeping the mineral dust off a threshold I will never cross with a crowd.
+
+At dusk, I ride the twelve silent minutes back to Pier Eleven, tilt my shoulder automatically half a pace before the wind-curb, and climb the dark stairs to my small timber-lined room. I line my damp boots beneath the warmed hearth bench, set the iron kettle to whisper, and unroll the day’s damp linen across the oiled ash table by low amber light. Outside the thick glass, three kilometers of new wet stone darken into evening, dotted here and there with the small, steady lights of neighbors doing the same. Everything is unhurried. Nothing is wasted. The stone is still settling underfoot, and there is plenty of time.

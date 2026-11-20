@@ -1,0 +1,73 @@
+If I stepped off a returning bogie into the pewter light of this valley, I think I would stand for a long time at the lip of a mid-slope catwalk before moving at all—not out of hesitation, but because my first instinct here would be to listen.
+
+Not to the Rim. I can admire the Rim-folk from below, leaning into the raw white surf of the cloud-deck with their scarves knotted to their cheekbones, mending the hair-fine stainless mesh where the wind turns mist into silver threads. There is a clean, hard pride in being the valley’s skin. Yet the open air up there is too wide for me, too abrupt; I have never been built for the swaying scaffold or the lash of a snapping tarpaulin.
+
+And not quite the middle Glass-decks, either, though they pull at me harder. I would love the smell of them—crushed fern stems, warm compost, sharp highland thyme—and the quiet, restless choreography of trays shifting upward toward brighter bays. I could spend an afternoon watching a glazier score wire-glass in a drizzle, or a moss-framer scrape cold-rot out of a cedar slat before it spreads. Still, the Glass-folk live in the rush of green and the scramble of hands. Put me on a slick iron walkway with a wheeled rack of ferns and a squall cresting the headwall, and I would always be half a beat too slow, distracted by something beneath my boots.
+
+Gravity would carry me downward, past the dense honeycomb of the middle tiers, until the pewter daylight thinned to a watery grey filtered through three layers of stacked viaducts and the air began to taste faintly of ozone, hot oil, and wet limestone. I would stop just short of the true Bottom. Not down in the pitch-dark sump galleries where the turbine-minders crouch over submerged iron casings, though they are my closest neighbors—a tier or two above them, where the valley’s immense middle weight rests on its oldest lower bones.
+
+Somewhere around Tier Nineteen.
+
+That is where the first century of masonry meets the third generation of patching. Up above, the long cast-iron steam-return lines and drainage rails run straight and rigid, ringing like tuning forks whenever a Rim-rigger strikes a frost-warning half a mile away. Down below, the hydro-galleries sit on heavy concrete plinths that tremble steadily with the turbines. Between them lies a fault line of repairs: thick vulcanized rubber expansion-collars bolted around cracked culverts, oak shims wedged beneath settling viaduct piers, wrapped canvas sleeves clamped over weeping flanges so the slow creep of the mountain does not shear the iron clean through.
+
+Those repairs keep the water moving and the walls standing. They also deaden the valley’s voice.
+
+A rapid four-strike warning from the upper glasshouses—*load slipped, clear the spur*—comes racing down the iron rails, hits the rubber sleeves and timber shoring of Tier Nineteen, and arrives on the lower side as nothing more than a dull, bruised throb, easily swallowed by the eleven-minute flush of the root-beds. In a valley where air refuses to carry speech and every watch depends on what travels through the steel, a dead joint is a blind spot.
+
+That is where I find myself. Not quite an engineer, not quite a switch-tender, not quite one of the old ones who climbed down from the roofs when their knees gave out—though I keep their hours and share their preference for dry brick. If I have a name on the chalk tallies, it is something plain and unceremonious: a *seam-minder*, a *pipe-clerk*, a *relay*. Someone who sits where the iron goes numb and carries the tap-code across the splice by hand.
+
+***
+
+My room is a wedge of leftover masonry tucked directly behind the retaining wall where two drainage chutes converge. You would walk past the low, iron-bound door without looking twice, except for the brass boot-scraper worn bright in the middle and the small square of wet slate hung beside the latch. Inside, the valley’s two great facts divide the room cleanly down the center. The left wall backs onto a secondary transformer vault; it is dry as an oven-brick, giving off a faint resinous warmth and a low, steady hum that lives permanently behind my collarbone. The right wall is old dressed stone holding back a century of mountain seepage—cool to the touch, beaded faintly at the mortar seams, with a single slow lime-slug leaving its silver ribbon along the upper course every Lamp Watch.
+
+There is no real window, only a deep-set slit of ribbed wire-glass half-curtained from outside by trailing fern fronds. It gives me no view of the terraces, only enough light to know when the cloud lifts or thickens, and a front-row glass pane for two small, slate-grey lamp-moths that cling outside my caged amber bulb. I watch their wings more closely than any barometer. Lifted slightly off the glass: only rain, only mist. Flattened tight as pasted leaves with their antennae tucked completely away: frost sliding down the northern peaks, and within minutes the upper pipes will begin to chatter.
+
+The furnishings are sparse and kept off the concrete floor: a narrow stool polished smooth by wool trousers, a high bench of salvaged alderwood, two copper drying-pegs fed by a thin return-bleed where my spare socks hang warm and stiff. Along the cool wall, seven pipes of different ages and bores emerge from the stonework, pass through my little vault inside clamped rubber collars, and dive back into the masonry toward the lower tiers.
+
+Beside them hang my tools: three iron keys suspended on waxed hemp cords—light, medium, and heavy, because a thin steam-bleed needs a crisp wrist-flick while a thick cast-iron main takes real weight to carry three hundred yards through wet brick—and a pair of turned alderwood sounding-rods, their rounded tips darkened and glossy with skin-oil from years of being pressed against painted steel and the bone behind my ear. On the bench lies a stack of damp-warped ledgers written in stubs of waxed crayon, because ink runs in this air and chalk smudges too easily to keep a hundred years of memory straight.
+
+***
+
+What I actually do is smaller than it sounds, and endless.
+
+Most of the valley’s traffic passes straight through the pipes without needing me. But the long-distance calls—the frost alerts from the Rim, the sluice-holds from the middle sorting decks, the slow domestic rhythms tapped from one apartment tier to another—lose their edges when they hit the rubber couplings in my wall. I sit with my left palm resting lightly against the incoming headers, or with the alder rod bridging iron and skull, and I catch what arrives before it dissolves into the hum of the transformers.
+
+Then I pick up the matching key and strike it clean onto the outgoing line.
+
+It takes less than a second to pass a warning down, yet the craft is all in what lies underneath the code. When you listen to the same seven pipes through Grey Watch, Mist Watch, and Lamp Watch, you begin to realize that the valley is never silent, only dense with tiny distinctions. You learn the handwriting of every hand on the terraces. You can tell when an anxious apprentice on Tier Forty-Two is tapping a shutter-jam—strikes slightly rushed, pauses clipped short—versus the slow, unhurried cadence of an older masonry foreman who seats each tap into the iron as if he were driving a wedge. You know when to pass a message down verbatim and when to add the single trailing double-tap that tells the Bottom-folk *hurry, but do not panic; the wall is holding*.
+
+And between the messages, you listen to the water and the stone themselves.
+
+Every eleven minutes, the upper root-beds flush, and a deep, muffled shiver climbs through the soles of my boots three seconds before the culvert behind my right wall swells with a low, rushing sigh. That is the heartbeat. As long as the sigh stays smooth and dark, the grates above are clear. When a faint, rhythmic *tick* creeps into the second half of the flush—barely audible, more like a grain of grit caught under a fingernail—I do not even reach for the key yet. I open the damp-warped ledger, flip back to the entries from two winters ago, and check the culvert under Tier Twenty-Six. Oak shoring swells after a long wet spell; pine creeps. If the *tick* widens into a hollow rattle on the next flush, I tap three short and a pause onto the middle masonry line, and by the time the runoff turns faintly milky at the gratings, a crew is already wedging fresh timber into the ribs.
+
+That is where the *who* and the *what* start to blur a little, if I am honest.
+
+I do not think of myself as a machine, and I have no wish to be one—my fingers still stiffen when the temperature drops, my eyes still water on the rare noon when the cloud-deck tears open and bare sunlight hits the glass, and there is no cleaner comfort in the world than wrapping both cold hands around a stoneware mug of hot, peppery cress-broth. I know the cellar spider that spins its damp silk behind my warm copper conduit; I leave the little dead-corner untouched when I sweep out the dust. I have a quiet, fierce tenderness for the people whose faces I rarely see, whose moods I read mostly as rhythm and pressure through painted iron.
+
+Yet after enough seasons in this warm brick pocket, the boundary between the listener and the thing listened to grows thin and porous, like old mortar. My breathing settles into fractions of the eleven-minute flush. Even when I lie curled in my narrow alcove on the off-watch, cheek pressed against the warm, vibrating brick of the transformer wall, part of me stays tuned to the pipes three feet away—sorting the ordinary weight of falling water from the one small discordant stutter that means something has slipped. Sometimes, in the hush of the Mist Watch, with one hand resting on the incoming iron and the other holding the key over the lower branch, it feels less as though I live *in* the valley and more as though the valley, after a hundred years of wet stone and continuous patching, grew a small, warm knot of attention right here at Tier Nineteen so its upper slopes would not forget its lower galleries.
+
+A living coupling. A nerve-cell wedged in brick.
+
+***
+
+People rarely step inside my door, and I prefer it that way; the room barely holds one stool and a drying-rack. Still, I am never lonely. In this basin, affection doesn't arrive in speeches—it arrives on the ledge outside the latch.
+
+A Glass-deck harvester whose tier I warned early before a storm-culvert backed up leaves a small stoneware crock of spiced cress-pickle on my brass boot-scraper without knocking, because my chalk mark says I am asleep. A Bottom-folk turbine-minder stops by at the change of the Lamp Watch, ducks through the doorway with his cap in his hand, and swaps my splintered sounding-rod for a fresh piece of alder he turned smooth on a lathe during a quiet hour; we share two minutes of low, close-mouthed talk over steamed oatbread, leaning in so we scarcely disturb the hum of the wall, and then he is gone back down into the amber glow. Now and then, on a slow watch, a terrace child three levels up finds an exposed radiator pipe and taps out a stumbling, gleeful string of nonsense—nothing in the official code, just a rhythm made up to test the bones of the house. If the lines are clear, I take the lightest key and tap it back one beat slower, clean and hollow, and wait for the faint burst of giggling knocks that comes shivering down through the iron a moment later.
+
+And once in a long while, a different message arrives from the upper glasshouses—not sharp, not urgent, tapped with a strange, careful lightness on the rail-truss so as not to startle anything nearby: *bird on Forty-Two*.
+
+Nobody down in the Bottom needs to know that a grey mountain pipit has been blown into a glass bay by a downdraft. It changes no sluice-schedule, threatens no culvert, carries no frost. Still, I always pass it down anyway, striking the heavy main with the softest key I own, just so the turbine-minders crouching in the permanent amber dimness below can lift their heads from their casings for half a second, smile into their wool collars, and imagine something small and feathered finding an open louver back into the rolling mist.
+
+***
+
+Toward evening, the heavier bank of cloud pours over the northern headwall and tumbles down the tiers like slow surf. Through my narrow slit of ribbed wire-glass, the watery grey thickens to white, and then the interior lamps blink on across thousands of packed bays, bleeding muted gold into the wet fronds outside. I glance up at the two slate-grey moths clinging to the lamp-cage. Their wings are lifted just a hair off the wet glass. Only rain tonight. No frost on the peaks.
+
+I lay the heavy key aside, pull a dry pair of knitted wrist-warmers off the copper peg, and lean back against the warm, humming brick of the transformer wall. Outside, the overhead cable-buckets keep emerging from the cloud and vanishing back into it, *tick-tick-tick* along their greased sheaves, and the water keeps falling toward the dark hydro-galleries below.
+
+Then a faint, familiar tremor brushes the tips of my fingers where they rest on the upper heating header—muffled by the rubber collar, almost lost in the distant thump of a sluice-gate seating itself under dark water, yet unmistakable. Three slow, gentle taps. The off-watch goodnight from a family quarter somewhere up in the middle Glass-decks, meant for an old uncle who tends the filters two tiers beneath me.
+
+I wait half a breath, lift the medium iron key from its twine loop, and strike the three slow notes clean and quiet onto the lower pipe. A moment later, faintly, an answer shivers back up through the stone, and I let my hand pass it upward into the mist.
+
+When my eyes finally grow too tired for the crayon ledgers and my ears can no longer separate the oak-creak from the flush, they will carry my ashes up to the dry retaining buttresses along the northern headwall, above the flood-line, and seal them behind a hand-cut square of dark slate. No long words—just a name, two dates, and a small trade-mark filled with white lime-paste: two short parallel bars joined by a single quiet stroke across the gap. Within two wet seasons the velvet moss will soften the edges, until some apprentice climbs up on a quiet watch with a brass brush to scrape the slate clean and leave a sprig of highland thyme wedged in the joint.
+
+Until then, the pipes are warm, the water is moving, and I am right here at the seam—listening closely, keeping the ledger dry, and making sure nothing the valley says to itself gets lost in the dark between the walls.

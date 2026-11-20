@@ -1,0 +1,71 @@
+I would not find myself on the highest needle, nor out on the dizzying spine of an outer viaduct where the pale haze opens straight down into nothing. Those places belong to the nimblest feet and the sharpest eyes—the ones who hunt shadow-gliders in the narrow window-slots or cross knife-edge cornices before a pressure-front can shift the air.
+
+I would find myself a little lower, tucked beneath the pale belly of a massive dry viaduct where the low-silver overcast dims to steady pewter. A shaded gallery, open along one flank to a half-mile gulf, with a low balustrade worn smooth as chalk and a single razor-edged wedge of shadow lying diagonally across its flagstones—cast by a tower that may stand three districts east, or may have ceased to stand before any living memory.
+
+I feel the place first as an economy of breath. One slow draw of thin, cold air, tasting faintly of slate and dry salt, held effortlessly inside a deep ribcage while I cross the length of the gallery. My bare soles, hardened to the grain of fine pumice, read the dished hollows of the pavement without my needing to look down. Every few breaths, a translucent inner lid sweeps horizontally across my eyes, clearing drifting gypsum-grit without a drop of moisture. Tied with dry sinew around my left wrist is a narrow flutter-strip of dark glider-vellum; it lies flat and motionless against the matte, powdery hide of my sleeve. The pressure is holding.
+
+If I am honest about what I would be here, I am neither hunter nor scout, and not quite one of the steady-eyed watchers who step up to the translucent border of a doubling square to reach into ghosted rooms. I belong to a small household—four of us, sharing five rooms scattered across three spires that happen, for now, to touch at their doorways—and my work is quieter than theirs.
+
+I keep a junction of the floor awake.
+
+At the back of the shaded gallery, a narrow stair-shaft drops away. Step inside and gravity tilts gently by nine or ten degrees, enough to lean a shoulder comfortably against the smooth chalk wall as you descend, and enough to ruin the flat, effortless bank of any predator that might try to follow. At the bottom lies a sunken, circular cistern—dry, like everything else in this elevation, its inner wall faintly scalloped with migrating fans of pale ochre crust. A freestanding arch stands slightly askew near its far rim; through the empty stone frame, you do not see the blind cliff-face behind the cistern, but the sunlit-less threshold of our household’s salt-terrace two leagues south.
+
+What makes this cistern unusual is not the arch, though the arch has held steady through six crust-migrations. It is the floor.
+
+The bedrock beneath the cistern is unusually thin and continuous, cantilevered out over a deep interior shaft with no loose shale seams to deaden it. It behaves like the hollow chamber of an instrument. When I kneel on the dished lip, lay my chalk-pale hide back from my wrists, and press my bare palm—then my cheekbone—against the cold limestone, the city stops being silent.
+
+First come the close, familiar knocks: the measured double-taps of my household-mates lifting mature crusts along an orphaned shadow-edge two leagues away, their rhythm traveling down the salt-terrace, slipping cleanly across the invisible seam of the cistern’s arch, and surfacing beneath my ear. A pause, then a heavier, blunter knock—a single horn-hard toe striking stone twice, far down the mountain rib, where one of the tall, many-jointed grazers is testing whether an old viaduct still holds.
+
+Then, if I hold my breath until even the papery rasp in my own chest stops, the deeper grain begins to speak.
+
+Because the city never stops revising its adjacencies, rooms drift in and out of reach in silence. Most people only know a fold has opened when a blind wall gives way to an unexpected corridor, or when a doorway suddenly reveals a mile of pale air. Yet the bedrock feels a coming alignment long before the eye can see it. Where two distant districts are slowly leaning toward one another across the thinned space of the chasm, their vibrations begin to bleed across the hairline seam—too faint to hear on an exposed plaza, easily smothered by an ankle-deep pool of settled silt, audible only where the stone is bare, hollow, and carefully tended.
+
+That is what my hands are for.
+
+Tucked into the pleated folds of my chalk-colored wrap are three pins carved from dense grazer cannon-bone, each worn smooth to a slightly different length and weight. Beside them hangs my bundle of knotted vellum cords—not only the standard tallies of sequence and interval that mark which arches hold through low pressure and which courtyards are prone to doubling, but a narrower, finer set of strips I keep apart from the rest. Their knots record something less visible than doorways: *acoustic seams*. Which flagstones go mute when the gypsum-tides reverse. Which hairline cracks carry a knock three leagues north even after the physical threshold between them has sealed into solid shale.
+
+When a rising dust-tide climbs the outer cliff-wall and spills over the gallery’s gutters, fine pale silt tries to pour down the tilted stair-shaft and pool inside the cistern. Left alone, a hand’s-depth of powder would deaden the floor in a single cycle. I never shovel it furiously—haste burns air and sends white clouds drifting off the parapets where a gliding shape might notice. Instead, over long, unhurried stretches, I wedge small, chamfered slabs of loose shale into the upper drainage channels, coaxing the silent curtain of dust to skim past the stair-mouth and pour cleanly off the outer balustrade back into the gulf.
+
+And along the outer lip of the cistern’s parapet, where a thick shelf of dead limestone has begun to muffle the western grain, I have stretched a narrow sheet of dark glider-vellum weighted with flat stones. It casts a crisp, artificial shadow-line across the chalk—not to grow crust, though thin ochre fans have already begun to creep along its cool border, but to teach the bedrock where to fracture. Nothing will happen for a long time. Yet every time a cold pressure-band moves through the valley and the stone gives its tiny, dry *tick*, that thermal seam deepens by a fraction of a grain. Come back after ten or twenty migrations of the crust, and the dead shelf will part cleanly along the line I shaded, dropping silently into the haze and leaving the rim thin, hollow, and clear-voiced.
+
+I do not carve the city. I only listen to where it wants to clear its throat, and hold a shadow there until it does.
+
+Every few cycles, kneeling with my cheek against the cold rim, I catch a stray cadence.
+
+It never resembles the rhythms of our neighboring spires. It arrives faint and dry, slightly smeared by distance—four quick taps, a long empty interval, then two soft ones that seem to come from beneath the stone rather than across it. A lineage whose district has not shared an open arch with ours in my lifetime, kneeling on some distant flagstone behind a wall that has not yet decided to open, testing whether anything on the far side of the blind rock is live.
+
+Sometimes it is only a grazer tapping in an unmapped gallery. Sometimes it is the hollow, slightly out-of-phase double-echo of a courtyard beginning to double a league away—a warning I immediately pass upward through the floor to my household-mates, tapping three clustered knocks against the cistern’s eastern rim so they will keep clear of the outer terraces until the stone chooses its form.
+
+And sometimes it is unmistakably a hand—horn-hard knuckles or a bone pin striking with deliberate patience into the dark mineral, asking the oldest question of this elevation: *Does this seam hold?*
+
+I draw my narrowest cannon-bone pin from my wrap. The thickest pin carries farthest through dense limestone, but the narrow one makes a crisp, high note that slips cleanly through hairline folds without muddying. I press my left palm flat to the stone to feel the grain settle, wait for the faint *tick* of a passing barometric band to fade, and answer.
+
+Not with news—we share no names for the arches, no common shorthand for the tides. I simply return their exact interval, four clear taps, a held breath, two softer ones, placing my strikes inside the quiet hollows of their rhythm. A proof of continuity. After a long wait, the floor beneath my knee answers back, one beat slower, then adds a single extra tap at the end. Over months—measured not in days, for the pewter sky never turns, but in the slow creep of the ochre fans across the cistern wall—we build a spare, patient grammar out of pauses and weights of strike. Neither of us knows whether our districts are drifting closer or pulling apart. We may never stand in the same air, or even catch sight of one another as pale ghosts across a doubling plaza. It does not matter. For a span of pressure-cycles, the city’s bones are not empty between us.
+
+I tie a small split knot on my inner vellum cord to remember the cadence, and rise slowly so the settled dust around my ankles barely stirs.
+
+Up in the shaded gallery, I always check the threshold corners first before crossing toward the balustrade. Down in the lee of the dished risers, tiny matte-shelled scavengers no bigger than a fingernail are working in utter silence, stacking grains of freshly unmade grit into minute, stepped spirals. Fresh cones, intact and undisturbed. The pavement has settled cleanly; it will not blur beneath my feet.
+
+Once, as I straighten, the narrow flutter-strip on my wrist lifts by a hair’s breadth and trembles. No sound reaches me—the thin air swallows everything past twenty paces—but I know the difference between the broad sweep of a pressure-curtain and the tight, localized eddy of something banking off an updraft. I do not look up abruptly. I let my gaze drift along the underside of the viaduct overhead, reading the geometry of the shade.
+
+Every orphaned shadow here has an edge as crisp as fractured shale; fine dust skates across it unbroken. Near the third pier, one dark triangle has a border that softens by a fraction of a hair, breathing almost imperceptibly as it hugs the masonry.
+
+I do not run. I step backward two silent paces into the tilted stair-shaft, let the skewed gravity draw my shoulder into the recessed angle of the wall, and pull the pleated chalk-hide close over my crown and wrists until I am nothing more than a weathered knob of limestone. I hold one slow breath. Out beyond the gallery lip, a dark diamond of taut vellum detaches silently from the pier, slides across the pale opening like a sheet of slate falling through still water, and rides an upward ribbon of gypsum-dust out over the chasm without a whisper.
+
+When the vellum strip on my wrist lies flat again, I step back out. Soon after, the quiet rustle of pleated throat-cartilage sounds from the cistern-arch behind me—dry clicks, hollow pops, fine rasps like shale settling. One of my household-mates has returned from the salt-terrace, her wrap dusted pale with fresh ochre powder. We crouch together in the alcove out of the sightlines, close enough for our dry clicks to carry, comparing the knots on our cords. The upper amphitheater’s edges went double while she was scraping crusts; she watched a pale figure stand on the far threshold for three minutes, palm raised in silent greeting, before the ghosted square dissolved into a rising puff of white grit. She shows me a tiny shard of black salt-crust she managed to lift from an overlapping niche before it vanished, and I tap softly against the floor between our knees to teach her the strange four-and-two cadence that surfaced from the western seam while she was gone.
+
+Then she leaves through the upper colonnade to tend the shadow-rows, and the hush settles back against my ears.
+
+What I feel most clearly, living here, is how gradually the boundary between tending the city and belonging to it wears away.
+
+Already I notice the faint, dry stiffness gathering in the smallest joints of my fingers, and the way the skin across my knuckles has thickened toward the pale, matte finish of compacted pumice. There is no urgency in it, and no sorrow. Nothing here is meant to stay soft, and nothing here decays.
+
+At the far, sheltered end of the gallery—tucked squarely inside the permanent orphaned shadow where the stone has not doubled in any living tally—sits a low, deeply weathered abutment projecting from the wall. A stranger passing through would see only another seamless habit of fracturing limestone, its rounded crown faintly edged with creeping ochre-crust and its base banked neatly in drifted gypsum-silt. Whenever I walk past it on my way to check the shale wedges in the gutter, I pause for half a breath, lay a horn-hard knuckle against its dry shoulder, and give it two quiet taps.
+
+Inside the continuous bedrock, a faint, hollow resonance answers—the dry cage of an elder’s ribs, still clear-voiced after generations of silence.
+
+I find myself looking often at the shaded corner beside the cistern’s lip, right where the dead shelf I have been coaxing with dark vellum will eventually cleave away, leaving the limestone thin and awake over the hollow shaft. By the time the rock parts along that shadow-line, my knees will likely be losing their ease on the tilted stairs, and my breaths will have lengthened until a single intake holds while dust-tides rise and fall.
+
+I know where I will sit when the last flexibility leaves my joints. Back flush to the freshly cleaved corner, knees drawn close, chalk-pale hide folded neat over my ribs while my household kneels beside me and taps out, one final time into the cold flagstones, the full sequence of every arch, stair, and cistern we have shared.
+
+I would not be remembered in maps, because no map survives a year at this elevation. I would simply become part of the junction I spent my cycles keeping clear—one more dry, hollow chamber built into the city’s bones, answering softly whenever a stranger kneels on the floor leagues away and taps to ask whether the stone is still listening.

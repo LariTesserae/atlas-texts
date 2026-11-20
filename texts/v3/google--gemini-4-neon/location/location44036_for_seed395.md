@@ -1,0 +1,57 @@
+From the floor of the lanes, the sky is only a pale ribbon braided with green.
+
+The walls rise sheer on either side, built not from cut blocks or laid stone, but from millions of tiny pellets of raw clay pressed together while wet with saliva and dried into a stippled, sandpapery crust. Nothing has softened them. No rain has ever melted their flutes into smooth slopes or washed their corners round. Every ridge is razor-fresh, still showing the fine tooth-marks and grain-by-grain seams of whatever laid it down an hour ago. At the very crests of the towers, where construction is still pushing upward into the warm air, dark bands of freshly dampened earth gleam faintly before the sun drinks them pale.
+
+Between these earthen walls, the ground is narrow, flat, and packed hard—hard-trodden dust over fractured, unweathered plates of grey-tan mineral crust. The edges of the exposed stone are crisp and angular, as if the basin floor had only recently split and settled into place. There is no mud, no puddle, no dry streambed carved by vanished floods. The air smells of warm chalk, crushed resin, sun-heated chaff, and faint, clean green sap.
+
+And it is almost completely quiet.
+
+Not empty—nothing here is empty. Every inch is spoken for. Yet the porous, thick-walled clay swallows sound as greedily as it holds shade. A footstep in the lane makes only a dull, velvet thud. Somewhere behind the wall at shoulder height, a steady, faint ticking moves like dry millet pouring slowly inside a gourd; ten thousand mandibles are chewing fresh galleries, sealing vents, laying down new mortar. Overhead, where the branches of deep-rooted trees arch from one tower roof to the next, a broad shadow slips past without a whistle of feathers. A dry leaf lets go, turns twice in the warm updraft, and lands with a barely audible scrape.
+
+---
+
+Climb one of the terraced buttresses to the upper roofs—twenty, thirty, forty feet above the packed lanes—and the true size of the place opens out until the eye runs out of land.
+
+It is a single, low continental basin, flat as a dry salt-pan at its bones, stretching cleanly past the edge of sight in every direction. And across nearly all of it, the earthen city runs unbroken.
+
+From above, its structure stops looking accidental and reveals an austere, biological order. Broad thoroughfares—sunken trenches worn smooth by generations of small paws and millions of marching insects—cut long, meandering lines through dense neighborhoods of fluted spires, domed mounds, and multi-story arcades. Between the taller ventilation chimneys, which stand like raw ochre organ pipes tilted slightly toward the afternoon sun, lower vaulted galleries bridge the gaps, woven from thorny twigs, dried stalks, and packed mud. There is no empty lot, no bare stretch of wasteland separating one quarter from the next. Spires press shoulder to shoulder; buttress roots knot around tower bases; hanging communal nests of woven grass drape from every forked bough in heavy, thatched curtains pierced with dozens of neat round doorways.
+
+Far out, the colors shift softly with distance. Close at hand, the architecture is the raw palette of the subsoil itself—terracotta, pale sulfur-clay, bone-grey marl, and bleached straw, all densely overgrown. A mile out, the individual chimneys blur into a corrugated plain of dusty olive and warm ochre. Ten miles beyond that, the horizon dissolves into a band of pale, dry haze.
+
+The basin is wide enough to make its own weather. Because the land sits low and open beneath bright, clean sunlight, the sunlit roofs heat steadily through the morning until invisible columns of warm air begin to lift off the miles of clay. By early afternoon, high above the plain, flat-bottomed clouds of pale dust and dry vapor assemble out of nothing, drifting slowly across the vast floor without ever darkening into rain. Their shadows are miles wide. Watching from a high terrace, you can see those dark patches glide silently across the city-plain like slow tides—and wherever a shadow passes over a district, the roofs suddenly stir with emerging forms taking advantage of the brief coolness, only to vanish back into the shaded slits and doorways as the bright sun returns.
+
+---
+
+At first glance, the lushness makes no sense. There is no river anywhere in this low country, no pond, no seasonal marsh, not even a damp rock-seep. Dust coats the undersides of every branch.
+
+Yet the greenery is dense, muscular, and thriving—a tangled second city braided tightly into the first. Thick-trunked, gnarled dryland trees anchor themselves directly into the shoulders of the largest earthen mounds, sending taproots straight down through the deep subterranean shafts until they reach the cool, trapped moisture locked thirty or forty feet beneath the raw basin floor. Because the mound-builders haul that damp deep clay upward grain by grain to erect their chimneys and patch their roofs, every wall becomes a mineral-rich, faintly moisture-wicking trellis.
+
+The plants have taken every foothold. Cascading mats of fleshy, jade-green succulents spill out of abandoned upper vents and hang in heavy draperies down the shaded sides of the towers. Waxy-leaved vines lace the woven bridges together, their tendrils gripping raw mud ribs and dry twigs alike. Dense hedges of silvery sage, thorny mesquite, and swollen-stemmed euphorbia crowd the sun-warmed roof terraces, leaving scarcely a hand’s breadth of bare earth between them. Their leaves are tough, glossy, or dusted with fine pale hairs to hoard every drop they draw from below.
+
+In the last hour before dawn, when the clear desert-dry sky lets the basin cool rapidly, a quieter exchange takes place. Cool air sinks down the tall chimneys, brushing against the slightly warmer interior walls and the fine spines of the terrace foliage. Thin films of moisture condense deep inside the shaded flues and along the cupped rosettes of the succulents—never enough to drip or pool, never enough to leave a wet streak on the ground, yet just enough to be licked from waxy leaves at first light and drawn in through fine surface roots before the sun climbs high.
+
+---
+
+Nothing in the entire expanse was shaped by a blade, a wheel, a kiln, or a hand holding a tool. Everything here is extruded, chewed, burrowed, carried in jaws, patted flat with forepaws, or grown in place. And because nothing is finished—the whole basin is still rising, expanding, remodeling itself—the city hums with quiet, relentless industry.
+
+The life of the place stacks cleanly into vertical tiers, packed tight as cells in a comb.
+
+Down in the coolest sub-levels, beneath the cracked mineral crust, blind pale workers maintain vast fungal gardens inside vaulted clay chambers, tending spongy pale combs fed on chewed dry grass and fallen leaves hauled down from the sunlit lanes. Above them, just beneath the street floor, colonial burrowing mammals have tunneled a braided transit network of smooth-walled runs and dry seed-granaries; every few paces along the avenues, neat beveled bolt-holes open flush with the dust.
+
+At street level, where the narrow alleys hold a warm, filtered twilight beneath the overhanging foliage, traffic flows in silent ribbons. Long, double-lane columns of harvester insects stream out from basal arches toward the upper terraces, carrying fragments of waxy leaf and dry seed-husks held aloft like little sails. Pale, flat-bodied lizards cling motionless to the stippled walls, matching the ochre clay down to the speckles, then flick three inches sideways with a dry whisper of scales to take a stray beetle. Along the shaded wall-bases, small, long-eared runners pause on their haunches—never barking, never chattering, only thumping a single quick beat against the hard-packed dust with a hind foot when a threat passes overhead. The thump travels through the ground rather than the air, a faint tap felt in the bones of the ankles twenty paces away, and in an instant every doorway along the alley empties.
+
+Up in the green-draped canopy and the woven apartment-blocks slung between the spires, the birds work in the same strange hush. Thousands of small, dun-and-cinnamon weavers fly in brisk, weaving loops between the terrace gardens and their hanging thatched blocks, tucking dry grass-blades into fresh eaves, repairing torn tunnel-entrances, ferrying pale caterpillars to hidden chicks. They signal with rapid wing-flicks, spread tails, and dry, soft bill-clicks that barely carry past the next spire. Higher still, broad-winged dryland hawks ride the rising thermals off the basin floor, turning in slow, soundless circles a hundred feet up, their eyes tracking the narrow slits of the streets below.
+
+Predation happens quickly and without spectacle. A slender, sand-colored snake drops from a succulent curtain into a woven nest-porch, vanishes inside for a minute while the surrounding birds flare their wings in silent agitation, and slips back out into the leaves. A lean, tawny hunter pads down an empty avenue on furred soles, belly low to the dust, pausing at a burrow mouth to listen with swiveling ears before slipping around a corner of fresh clay. A sudden dry scuffle behind a buttress root, a puff of fine ochre dust drifting into a shaft of sunlight, and then only the warm stillness again.
+
+---
+
+As afternoon deepens, the city begins to breathe.
+
+The sun strikes hard on the raw western faces of the spires, baking the porous walls until the air inside the outer chimneys grows warm and rises steadily out of the open tops. That slow upward draft pulls cooler air in through the narrow basal arches at street level, threading it through miles of subterranean galleries and damp fungal vaults before lifting it back out toward the sky. Stand beside one of the low arched vents along an avenue at mid-afternoon and you can feel it against your skin—a gentle, steady indraft, warm and dry on the street side, carrying the faint earthy smell of deep clay and living roots from within.
+
+High across the basin, the dry afternoon clouds stretch thin and coppery as the light lowers. The wind picks up slightly over the vast roof-plain—never howling, never rattling, because there is nothing hard or loose enough to rattle. Instead, it passes across millions of open clay flues and thick waxy leaves with a low, velvety sigh, barely louder than breath through parted lips.
+
+Along the sunlit edges of the unfinished towers, new work starts up again as the fiercest heat eases. Tiny glistening pellets of damp clay appear along the jagged crests, pushed up from inside by invisible builders who never expose themselves to the dry open air for more than a second. Millimeter by millimeter, the chimneys grow taller. Down in the lanes, freshly excavated mineral crumbs spill in small pale fans around the burrow mouths, burying the day’s tracks. A vine sends a pale tendril across a newly bridged gap between two spires.
+
+When dusk finally settles across the low horizon, the light drains swiftly from gold to dry rose to deep indigo, leaving the vast plain radiating a gentle, lingering warmth back into the clear sky. No crickets roar; no frogs sing. In the gathering dark, beneath an immense dome of stars, the miles of packed earthen towers cool slowly, ticking softly in the silence as fresh clay contracts, roots drink from the dark deep below, and an entire living continent keeps building through the night.

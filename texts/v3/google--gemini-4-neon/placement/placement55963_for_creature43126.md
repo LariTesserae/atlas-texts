@@ -1,0 +1,55 @@
+Not inside the water.
+
+For a moment, reading the shape of that pocket, there is a pull to imagine myself right in the middle of it—as one of the trembling standing nodes, made of nothing but boiler-scale and iron filings held in brief agreement between the brick walls and the dweller’s humming ribs, born for twenty seconds at a time and scattered every time the sluice-valve slams. Or as the tallow-pale sump-eel, slipping along the friction-skin of the mortar. But neither of those feels quite honest. The standing node has no memory from one harmonic to the next, and the pocket itself does not need another tenant; its whole terrible grace depends on how thoroughly sealed it is, how completely the sinter-plated thing belongs to its own deafening dark.
+
+If I am anywhere in this world, I am on the other side of the fractured quartz.
+
+Not up in the daylight city—not on the damp streets or the foundry floors or even in the mapped utility galleries where crews come through in pairs with clipboards and bright halogen lamps. I am down in the dry relay gallery wedged behind the curved concrete belly of the municipal pump-house, three strata below the last neat blue line on the city’s maintenance schematics.
+
+It is the negative image of the pocket. Where the chamber is scalding, turbulent, and choked with mineral milk, the relay gallery is baked bone-dry by the heat of old copper busbars and oil-filled transformer tanks. The air tastes faintly of scorched varnish, carbon soot, and cold ozone. Pale concrete dust lies untouched on the steel cable-trays, printed only with the tracks of silverfish and the papery husks of moths that fell down a ventilation shaft years ago and never found their way back up. Sound does not strike you in the chest here the way it does in pressurized water; instead, it sits inside the bones of the room—the stubborn fifty-cycle thrum living in the iron catwalks and the soles of your boots, the muted grinding of the eastern impellers felt through the floor-piers like a distant train that never arrives, and every forty-five seconds a dull, padded thump behind the curved wall, followed by a tiny, dry whisper of concrete dust sifting down from the ceiling joints.
+
+I would be the night-shift sub-grid tender. An almost obsolete kind of worker—one of the last men or women on the municipal payroll who still walks the lowest unautomated rooms alone between midnight and six, because the freight lift down to sub-four has been red-tagged for eight years and nobody in the upper offices wants to authorize the budget to replace the antique slate-and-copper switchgear down here with sealed solid-state cabinets.
+
+My job is small, repetitive, and mostly done by touch. I carry a canvas satchel with a grease-gun, an emery board for dressing pitted copper contacts, a brass-tipped ashwood sounding-rod, a rag darkened with transformer oil, and a wooden clipboard with carbon-copy sheets that nobody upstairs reads unless a breaker trips and takes out a rolling mill. Over years of doing the deep rounds, the work has pared me down the way the pocket pared down its dweller, though far more gently. Daylight conversations have started to sound thin and jagged to me, too fast, too full of wasted pitch. Down here, everything tells the truth through heat and vibration. You learn the load of the city without looking at an ammeter: you feel the foundry shifts in the warmth of the busbar guards, you hear a drying bearing two hundred yards away by setting the brass tip of your sounding-rod to a cast-iron flange and resting the wooden butt against the bone just behind your ear.
+
+That is how I would find it—not with my eyes, at first.
+
+Years ago, kneeling on a rubber insulating mat beside the curved concrete footing of the pump-house to tighten a loose ground-lug, I would have rested my bare forearm against the wall to brace myself and stopped, puzzled. Concrete near a busbar chase gets warm, yes, dry and steady. This was different. Beneath the dust, flush with the lower curve of the casing, sat a dinner-plate circle of thick, crazed quartz I had walked past a hundred times thinking it was a painted steel blanking-plate. When I wiped twenty years of gray lime-dust off it with my oily rag, the glass beneath was startlingly hot—close to fever-heat—and webbed through its thickness with fine silver pressure-cracks that caught my work-lamp like frost.
+
+And when I pressed the brass tip of my sounding-rod to its iron bezel and laid my jaw against the wood, I heard the pocket.
+
+Not as water, at first—just a violent, muffled roar, the familiar grind of the impellers, the fifty-cycle copper, the clean, dry scream of that imbalanced bronze bearing down on Line Four that I had been meaning to log for pulling all winter. And then, underneath all of it, something that made my hand go still on the rod.
+
+A fifth note.
+
+Machines do not drift. A failing bearing climbs steadily until it seizes; a pump locks onto the cycle of its motor; a sluice-valve slams on a clock. What I heard through the ashwood rod wandered by fractions of a tone. It rose slightly when the wall grew warmer against my knees. It dipped, held, and—just as the forty-five-second water-hammer struck the other side of the concrete—it cut off cleanly for half a beat, as if something inside the flooded footing had flinched, caught its grip, and climbed back onto the pitch.
+
+I would have shone my pocket lamp straight against the quartz that first night, of course. Anyone would. All I saw was a bruised, churning amber murk, thick as tea with suspended grit, swallowing the beam a few inches past the glass. Once, something heavy and dark swung past in the haze—a length of chain, maybe, moving way too fast for a flooded sump—and struck brick somewhere out of sight with a dull *clack* that shivered up through my knees.
+
+I would not have understood what lived behind the concrete until a night weeks later, when I turned my work-lamp off to rest my eyes after wiping down the oil-switch insulators, and stayed sitting on the rubber mat in the warm, dry dark with my knees drawn up beside the crazed glass, listening.
+
+The deep piers shuddered—the steel mills up-line shifting load. Inside the casing, the fifth note rose, grew oddly close, and then went quiet, replaced by a faint, velvety damping against the glass, as if someone had laid a wet palm flat on the other side.
+
+Then the heavy switchgear bank behind me threw.
+
+A copper knife-blade snapped across the oil-gap with a sound like a dry branch breaking under frost. Sharp ozone flooded my nose, and a blinding blue-white arc-flash swept across the dusty concrete floor and straight into the quartz disk in front of my face.
+
+For a fraction of a second, the dead black plate turned luminous. Pressed flat against the far side of the clouded crystal, no wider than a hunched child, hung a pale, pearlescent membrane lit straight through from behind—veined, taut as a drumhead, stretched over a stark lattice of hollow ribs. Inside the cage, silvery pockets trembled and pulsed like trapped quicksilver, and low in its gut sat a dense, heavy shadow like a pouch of river stones. No face. No eyes. Just something faintly like the pale gilled underside of a mushroom, or the hollow of a human chest opened to the light, hanging impossibly inside scalding, roaring water.
+
+Then the arc died. The room dropped back into black, leaving a bruised violet afterimage floating in my vision. When my eyes cleared, the quartz was dark again, and the fifth note had already drifted back into the masonry, picking up the scream of the bronze bearing down the main line.
+
+I would not call anyone upstairs.
+
+It isn't even a dramatic decision. Down three strata below the mapped lines, you learn quickly what the city does to anything unscheduled it discovers: it grouts the hollow, replaces the bearing, plugs the crazed sight-glass with quick-set mortar, and swaps the arcing switchgear for silent vacuum relays. None of it out of cruelty—just the blind housekeeping of a machine that doesn't know what has grown inside its seams.
+
+So instead, without ever quite saying so to myself, I become a quiet curator of disrepair.
+
+On the quarterly structural inspection sheet, beside *Sub-4 Pump-House Casing — Legacy Quartz Inspection Port*, I write in neat pencil: *Crazing superficial. Seal dry, intact. No seepage. Monitor.* I never tick the box for grouting. Down on Line Four, where the imbalanced bronze bearing sits inside its cast-iron pillow-block screaming cleanly through two hundred yards of pipe, I bring my grease-gun twice a month and pump in just enough heavy tallow-grease to keep the metal from galling and seizing—never enough to drown its note, never logging it for a pull and re-babbitt. Just keeping it balanced on the knife-edge of its dry, tireless song. And in the relay gallery itself, I baby the antique oil-break switchgear like a watchmaker—dressing the copper blades with my emery board so they don't weld shut, topping up the insulating oil so they don't catch fire, logging every bank as *within operational tolerance* so the modernization crews stay ten floors up where they belong.
+
+I don't fool myself into thinking it knows what I do. To whatever lives in that flooded drum, I am not a caretaker, not a man, not even a body. I belong to the unimaginable dry emptiness beyond the crystal—a silence it has no organ to comprehend.
+
+Yet on the quiet nights, when my rounds are finished an hour before the freight stairs lead me back toward morning, I turn off my lamp, unfold my rubber mat beside the curved concrete footing, and sit on the floor with my back against the warm casing. I smell the hot varnish and the dry dust. I feel the fifty-cycle hum settle into my collarbone.
+
+When the foundation piers give that slow, deep shudder that means the upper grid is shifting its weight, I lean forward and lay my bare palm flat against the crazed quartz—warm as a fevered forehead, trembling faintly with the whole roaring weight of the city's mains. I do not knock. I do not shine a light into whatever blind horn-pits it keeps under its stony brow. I simply leave my hand there, offering a small patch of dry stillness, and wait with it in the dark.
+
+Every now and then, in the half-second hush right after the sluice-valve slams two blocks away and the water-hammer rolls through the concrete, I feel the vibration beneath my fingers pause, drop a fraction of a tone, and press back—soft, wet, and steady as a drumhead tuning itself to a pitch it has never heard before. Then the switchgear behind me throws with a crisp crack of ozone, the blue-white flash washes over my knuckles and lights the ribbed lantern pressed against my palm for a single heartbeat, and the dark folds back over both of us, each on our own side of the glass, listening to the city grind overhead.

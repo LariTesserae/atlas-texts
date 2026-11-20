@@ -1,0 +1,111 @@
+If you stay on the basin floor long enough to stop flinching at every sudden heave of the canopy, your eyes undergo a second adjustment. The first adjustment, back up on the ridge, showed you that the valley was moving. The second shows you that not everything moving in it belongs to the plants.
+
+You start by noticing the smallest clearances.
+
+Kneel beside one of the massive sliding joints where a forty-foot braided limb levers against a trunk, and peel back the damp fringe of moss that drapes the seam. The clear, viscous sap greasing the rubbery parenchyma pads isn't entirely plant-made. Pressed flat inside the tolerance—thinner than wet paper, translucent save for a faint thread of pale gut—live swarms of ribbon-like creatures no wider than a thumb. They have no shells, no bones, no hard parts to crack when ten tons of wet timber bear down on them. They simply deform under the load, oozing outward along the bevel of the wood and pulling themselves back in as the pressure eases. They graze on abraded plant cells and shed a slick, cold-resistant slime of their own. Without them, the valley's joints would eventually bind and groan; in a quiet way, they are half the reason the silence holds.
+
+Look higher, along the frosted needles of the voltaic bark-columns, and you will spot another faint precision. Clinging to the bristling rime are hundreds of pale, long-legged mites with translucent, waxy bodies. Because each mite picks up the same static charge from the column, they repel one another at exact intervals. They arrange themselves across the damp papery bark in neat, trembling lattices, shifting outward in unison whenever the internal voltage climbs, then snapping inward a millimeter the instant a blue-white spark jumps inside the jelly bladder below. They look less like animals than like iron filings laid over a hidden magnet—living diagrams of the cold electric weather.
+
+And down in the dark, cupped root-basins, wherever melt-water pools undisturbed for more than a few hours, tiny blind amphibians the color of bruised ice rush through a frantic, compressed life. They hatch from tough, frost-proof cysts dried into the peat, gorge on drowned fungal spores, mate, and lay fresh cysts before a contracting extrusion-cable rips their basin sideways and dumps the water into the lower channels.
+
+All of these survive the basin by the same rule: they are too small, too flat, or too brief to argue with the machinery.
+
+What takes much longer to see—what you might walk past three times in an afternoon without ever registering—is that something large lives here too.
+
+You do not spot them first by their bodies. You spot them by a tiny, stubborn wrongness in the valley's rhythm.
+
+Watch a high wind-ratchet long enough, and you may notice one paddle-leaf that fails to click shut with its neighbors. Look closely at the rigid petiole and you will see a finger-thick knuckle of iron-hard deadwood wedged neatly into the toothed joint, holding the canopy open by three inches so a shaft of pale sunlight drops straight down onto a damp terrace below. Walk across an extrusion bed and you may find two freshly paid-out cellulose cables not merely snagged on a shrub-spur, but looped around one another in a clean, deliberate hitch—pulling against each other as they chill and shrink, exerting a steady, focused sideways tension that is slowly prying open the weathered seam of an ancient lignified husk.
+
+No random thrashing of stems makes a hitch like that.
+
+Stop moving. Let the cold settle into your coat. Look back toward the shaded, deeply pleated underside of the nearest bellows-trunk—the old one whose accordion rings have worn slightly smooth, so it rebounds more gently than its neighbors and hangs a steady, lukewarm veil of mist around its flanks.
+
+What you took for a slumped hummock of wet cork-bark and frost-tipped moss shifts.
+
+Not with the hydraulic jerk of a stalk, nor the trembling snap of a searching tendril. It shifts with an unhurried, choosing weight. Two dark, broad-knuckled hands unhook themselves from the pleats of the trunk. A wide, low-slung head turns toward you—eyes small, forward-set, gleaming dark behind clear inner lids that blink sideways against the bitter spray of the canopy.
+
+Then it drops soundlessly onto the dark peat-terrace, lands on broad naked soles without a whisper of breath, and moves off into the churning lattice before the next bellows-trunk has finished its downward heave.
+
+---
+
+They are neither wholly beast nor anything you could comfortably call human, though once you have seen one work, it becomes impossible to think of them as mere animals.
+
+In size, a full-grown adult matches a heavy mountain dog or a compact, broad-shouldered ape, though their proportions belong entirely to the basin floor. They are built low, wide through the chest and hips, with long, powerfully muscled arms that let them travel either in a rolling, knuckle-padded four-legged gait or in a crouched, balanced stride when their hands are full. Their coats are a double marvel of cold-wet engineering: next to the skin lies an oily, dense slate-brown underfur that refuses freezing water, overlaid by long, coarse guard hairs tipped in white rime. Along the broad shoulders, spine, and outer forearms of older individuals, those guard hairs actually trap and harbor a thin, living pelt of the valley's own velvety moss and pale trichomes. When one tucks its chin and folds its limbs against an ancient root-terrace, it vanishes completely—not just to the eye, but to the air. Brushing past a wet stem, it makes no more sound than wet felt sliding over wet felt.
+
+Nothing about their bodies is rigid where rigidity would be fatal. Their ribcages are hinged along dense bands of supple cartilage rather than locked bone, and their bellies and flanks are wrapped in thick, shock-absorbing pads of rubbery fat. A direct drop from a shearing canopy beam would kill one instantly, as it would anything made of meat, but they can take a glancing whip from a snapping cellulose cable without bruising, or flatten themselves into a hand's-breadth gap beneath a settling mat of fronds while tons of wet fiber groan past an inch above their backs.
+
+Their faces tell you how they perceive the world. They have almost no external ears—only small, recessed slits sealed behind oily flaps of fur, because air-conducted sound is nearly useless in a valley lined with sodden moss. Instead, their lower jaws and broad, flat collarbones are dense, oversized conductors of bone vibration. When one pauses to read an unfamiliar stretch of the floor, it does not cock its head to listen; it lowers its chin straight onto a hardened root-terrace, or presses both bare palms flat against the damp crust.
+
+Those palms and soles are the true organs of their intelligence. Dark, hairless, deeply fissured, and strangely supple even in near-freezing air, they are packed with dense clusters of tremor-sensors and faint electroreceptive pits along the inner wrists. Through the soles of their feet, a floor-dweller feels the valley as an enormous, three-dimensional score of pressures and intervals. They feel the hydraulic buildup inside an extrusion tuber twenty yards away before the bark-nozzle even puckers; they feel the subtle slowing of a wind-ratchet overhead as a cloud crosses the sun; they feel the dull, distant shudder of a forty-foot beam letting go half a mile downslope, and know from the timbre of the thud whether the peat beneath it is firm or hollowed by melt-water.
+
+To walk among the plants without dying requires knowing *where* you are. To live here requires knowing *when* you are. Space in the basin cannot be trusted—a clearing closes in ten minutes, a ridge of roots tears open by dusk—so they map the three-mile bowl by cadence. A familiar territory is not a set of landmarks, but a known neighborhood of rhythms: the slow, wheezing three-count of the old bellows-stand to the north; the sharp, impatient double-snap of the extrusion beds down in the gully; the faint, bristling hum of the voltaic row along the eastern slope.
+
+---
+
+They build nothing permanent. There is not a single cut plank, lashed shelter, or stacked stone anywhere in their territory, because anything left still on the basin floor is swallowed, dragged sideways, or crushed within a day. Their entire material culture is improvised, fleeting, and borrowed straight from the valley's own frantic economy—leaving no trace once the amber molds have done their work.
+
+Watch a pair of them working an extrusion bed in the pale afternoon sun.
+
+They wait crouched at the edge of the clearing, shoulders dusted with hoarfrost, eyes tracking the puckered bark-nozzles wedged in the peat. Even here, they share a quiet awareness with the valley's other specialists: when one of the solitary, ash-colored birds settles onto a knot of ancient deadwood nearby and locks its gaze onto a tangle of stems, the pair pauses and shifts its attention to the same knot, knowing the bird has read a subtle shudder they haven't felt yet.
+
+Then a thick, pale cellulose cable begins paying out from a scarred tuber, glistening warm and supple in the cold light. Before the freezing air can stiffen and contract it, the two dart out across the wet mounds. They move with an uncanny, greased economy, never stepping on loose moss, planting their broad soles only on the dark, polished backs of ancient roots. Working without a spoken sound, they haul the warm forearm-thick rope sideways, heave it over a hooked shrub-spur, and lash it with a quick, sliding turn around a second cable emerging from an opposing tuber. Then they retreat to the terrace lip and wait.
+
+As the cold bites into the fresh cellulose, the cables begin to shrink. They pull taut, creaking silently inside their mossy sleeves, transferring immense hydraulic tension straight into the dead, weathered husk the pair looped them around. With a muffled, deep-throated *pop* felt straight through the heels, the ancient husk splits lengthwise. Out pours a steaming pocket of rich, sour-sweet slurry where amber molds have been digesting trapped peat for months, along with a writhing cluster of pale, fat-bodied grubs that live nowhere else. The pair drops straight into the breach, scooping the warm mash and the grubs into cupped sheets of shed cork-bark, retreating cleanly before the snapped cables recoil and whip back across the clearing. By morning, the molds will have softened the knot into featureless paste. No one walking past tomorrow would ever guess hands had directed the tear.
+
+Their harvests are all like this—small, precise nudges applied to enormous forces.
+
+Around the exploding oil-pods, they carry nothing more than a peeled splinter of old lignified heartwood, worn smooth at the tip from years of handling. A pod swells over minutes until its leathery skin goes drum-tight and bursts, scattering hot pellets unpredictably across the canopy. A gatherer knows by the trembling sheen on the pod's seam when it is three heartbeats from rupture. They lay a cupped fold of damp cork-bark over the crown, press the deadwood splinter cleanly against the preformed seam, and trigger the split on their own timing—catching every steaming, oil-rich pellet in the scoop. They eat them hot, cracking the hard skins with broad back teeth, taking in dense, waxy calories that keep their blood warm against the near-freezing mist.
+
+Near the voltaic bark-columns, their work turns delicate and eerie. They do not guess at the charge; they look first at the pale static-mites arrayed across the frosted needles, reading the spacing of the tiny living lattice to judge how close a column is to discharging. When a jelly-filled bladder along the stem swells plump and begins to tremble with its soundless blue-white sparks, a gatherer lays a soaked, freshly stripped ribbon of conductive inner bark from the column's wet plates straight down into a dark water-pocket at its base. A faint, sharp smell of ozone blooms over the rot and crushed celery as the charge bleeds safely off into the water. Immediately, before the chemical gradient can rebuild, the gatherer pierces the translucent bladder with a sharp lignified thorn and sucks out the stinging, mineral-bright jelly—rich in freshly fixed nitrogen, tart as storm-water and salt. They feed it to the nursing mothers, and smear drops of it across scrapes and torn pads, where the ozone-rich sting keeps the valley's relentless molds from taking root in living flesh.
+
+Even the bellows-trunks serve them. When a bitter night wind strips heat off the ridges and the basin drops several degrees below freezing, a family group does not try to build a roof against the cold. Instead, they find a stout bellows-trunk standing beside a sheltered hollow and pack small, carefully kneaded plugs of dense peat-wax and dry moss into two of its fleshy lower intake slits. Starved of half its cold intake, the trunk's osmotic cycle slows. Its violent, shuddering rebounds soften into a long, gentle, wheezing compression, leaking a steady veil of lukewarm mist down around its mossy base for forty-eight hours before the internal pressure finally blows the wax plugs clean. In that temporary pocket of damp warmth, five or six bodies curl tightly together, backs pressed to the pleated bark, breathing easy while the rest of the valley churns and freezes around them.
+
+---
+
+Yet you cannot raise a helpless infant in a pocket that lasts two days.
+
+For that, they go down.
+
+Beneath the restless, churning surface lies the oldest part of the valley—meters of compacted, ancient peat and fossilized roots that have long since hardened into dark, fibrous gullies and iron-hard deadwood knots too massive and too lignified to bend anymore. Here and there, where the living machinery has grown up and bridged over one of these dead cores, small, permanent hollows remain: low, arched chambers roofed in petrified root-beams, insulated from the freezing wind above by ten feet of matted vegetation, and warmed faintly by the steady metabolic heat of the living crust pressing down on all sides.
+
+These are the still-points—the nurseries, the birthing dens, and the retreats of the very old.
+
+Inside a still-point, the air smells heavily of damp cork, warm grease, and old fermented peat. The floor is lined with deep, dry beds of plucked trichome-felt, combed off the canopy fronds and renewed whenever dampness creeps in. There is no fire, no carved wall, no lamp—only thin, pale needles of daylight slipping down through narrow gaps where the canopy shifts overhead, moving across the dark walls like slow searchlights.
+
+It is here that the young spend their first months, and here that you find the oldest elders—individuals whose joints have stiffened in the decades of wet cold until they can no longer leap a recoiling cable or outrun a sagging shelf of fronds. Their slate-brown pelts have gone almost silver-white with frost-lichen and thick moss across the shoulders; sitting motionless in the dimness, they look indistinguishable from weathered stumps.
+
+They are far from useless. An elder sits for hours at a time with both broad, scarred palms pressed flat against the ancient root-floor of the still-point, eyes half-closed, chin resting on its knees. Through the hardened peat, the whole three-mile basin speaks to them on a scale too slow for the younger gatherers to track. They feel the deep, steady grinding of the subterranean mineral augers churning fifty feet down in the buried rock. They feel the faint, multi-day creep of tension building along the eastern slope long before the matted canopy finally sags and shears cleanly along its seam. They feel the shift in the melt-water channels when the high mountain snows begin to thin, or thicken. When a younger walker ducks down into the hollow to nurse an infant or drop off a pouch of warm oil-pellets, the elder lays one heavy, fissured palm squarely over the walker's collarbone and taps out—in slow, deliberate pulses of pressure—which gullies are going sour, which bellows-stand is due to collapse, and where the deep crust holds firm.
+
+When a young one is finally strong enough to leave the still-point, it does not walk at first. Each morning, its mother weaves a broad, supple sling from thin strips of freshly extruded cellulose, winding it across her chest and over her moss-padded shoulders while the fibers are still warm and wet. As she steps out into the sharp mountain air, the fresh cellulose chills and contracts, drawing snugly around the infant's small body and pinning it firmly against her sternum—hands-free, unshakeable even if she has to leap between flexing trunks. She must keep track of the hours, though; by mid-afternoon, the shrinking fibers will cinch too tight across the child's soft ribs, so she pauses in a warm mist-pocket and methodically chews the stiffened strands free, letting the old sling drop to the molds to be eaten by nightfall.
+
+For nearly two years, the infant rides that way, its small chin resting directly against its mother's broad collarbone. It does not learn language from voices in the air. It learns the world through bone conduction: the steady double-beat of its mother's heart, the crisp tremor of a bellows-rebound fifty feet away, the sharp warning squeeze of her ribs a half-second before she ducks beneath a swinging tendril, and the quiet, rhythmic chest-knocks she exchanges with her kin whenever they cross paths on the floor. By the time its own rubbery soles finally touch the peat, the cadence of the valley is already written into its skeleton.
+
+---
+
+When one of them grows too slow on the open floor—or when an elder in the still-points finally stops breathing—there is no earth to dig and no stone to pile over them.
+
+Instead, three or four of their kin carry the body out at dusk to a quiet extrusion bed where the dark amber molds grow thick and warm. They lay the dead one gently into the soft, sour-smelling slurry, smoothing the moss-grown guard hairs back over its eyes, and wait silently along the terrace rim. Within an hour, the neighboring tubers pay out their fresh, pale cables across the clearing. The glistening ropes coil over the still shape, stiffen in the evening frost, and slowly draw a blanket of damp moss and matted fronds across the hollow.
+
+The mourners do not weep aloud; even grief here makes no sound in the cold air. They simply kneel along the edge of the terrace with both bare palms pressed flat against the lignified crust, feeling the muffled weight of the mat settle, feeling the valley absorb the body back into sugar and oil and mist.
+
+---
+
+As the sun drops toward the western rim and the light turns sharp and flat across the basin, the temperature slips another few degrees. Frost creeps swiftly back across the sunlit pleats of the bellows-trunks, whitening the outermost cables and slowing the high wind-ratchets, while the deeper chambers pump harder to compensate, lifting taller, denser plumes of white vapor into the clear evening air.
+
+This is when you are most likely to see them together—if you know where to look, and if you remember to stop listening with your ears.
+
+Down on a broad, weathered shelf of ancient lignified peat—a smooth, dark slab that bridges a hollow, drained water-gully—six or seven of them gather as the daylight fades. They sit in a loose, hunched ring, knees drawn up against their chests, frost gathering in the tips of their guard hairs as wisps of mist drift lazily across their mossy backs.
+
+To an observer standing ten yards away in heavy boots, the clearing is utterly silent. Nothing stirs among the seven dark figures save the faint, pale plumes of their breath rising into the dusk. You might think they were merely resting, huddled against the oncoming cold.
+
+If you slipped off your boots and laid your bare palm—or your cheek—against the cold, dark surface of the terrace, you would discover how wrong you were.
+
+The hollow gully beneath the old lignified slab turns the floor into a vast, damp sounding-board. And across it runs an intricate, breathtaking polyrhythm.
+
+One of the moss-shouldered elders has set the base: a slow, firm pressure-pulse delivered with the heel of one hand, timed precisely into the quiet half-second between the shuddering rebounds of the three nearest bellows-trunks. Across the ring, a leaner walker answers with a crisp, rapid triple-tap of its bare heels, syncopated cleanly against the high, faint clicks of the slowing wind-ratchets overhead. A mother with a swaddled infant asleep against her collarbone adds a low, rolling tremor from her knuckles that rides the deep hydraulic swell of an extrusion tuber thirty yards away.
+
+Back and forth it passes around the ring, never loud enough to break the thin hush of the high-altitude air, yet alive and resonant through the wood. Part of it is practical—a sharing of the day's map, the warning of a weakening terrace to the south, the timing of a rich cluster of oil-pods swelling along the western rise. Part of it is something older and harder to name: a deliberate weaving of themselves into the vast, relentless pulse of the basin. Whenever a forty-foot beam shears somewhere far off in the gathering gloom and lands with a muffled thud through the peat, the ring doesn't break or scatter; they catch the shockwave as it rolls under their soles and fold it straight into the next measure, answering the valley beat for beat.
+
+Up on the high lip of the ridge, as the clear sky deepens toward purple and the last pale light leaves the frost-silvered canopy, nothing seems to have changed. Across all three miles of the bowl, the ancient forest heaves, vents, sparks, collapses, and surges upward again in complete, breathless silence.
+
+Yet down beneath the mist, on the dark polished floors between the turning gears of root and stem, the silence is crowded, attentive, and kept in time—counted out by broad, dark palms pressed against the cold wood, long after the sun has gone.

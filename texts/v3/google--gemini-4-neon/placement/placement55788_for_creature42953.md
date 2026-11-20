@@ -1,0 +1,45 @@
+At first, you try to place yourself on the catwalk. It is the natural instinct—to step onto the bolted iron grating in the center of the nave, grip the wet handrail, and look around with human eyes.
+
+It lasts maybe ten minutes. The air has too much weight for upright lungs; it sits in the chest like hot silt. Your skin flushes and turns uselessly slick, your vision smears behind a film of mineral mist, and the noise—pumps, bats, crickets, transformers, the ceaseless slap of falling water—hits the eardrums as a single blunt wall. Standing there, you are only a pocket of dry, anxious heat that doesn't fit the room. Every nerve in a human body down here points back toward the west bulkhead, waiting for the dogging wheel to turn and let you out.
+
+To actually *be* in this world—not as a sweating intruder on a brief shift, not as a tourist peering through fogged goggles—you have to give up the posture that resists it. You have to stop treating the heat as an enemy and the clamor as noise.
+
+I wouldn't be the bats, either. They only borrow the ceiling; their real allegiance is to the windless dark of the streets overhead, and their lives down here are all thin bone and frantic chatter. Nor the rats, sleek and busy along the cable trays, still carrying the hurried appetite of the city drains in their blood. And not, I think, the ancient ten-foot patriarch wedged beneath the central piston pump—not yet. That kind of stillness is monumental, almost geological; once your spine has terraced into furnace slag and you have given up climbing forever, you are less a resident of the chamber than one of its load-bearing walls.
+
+If I look for where my weight naturally settles, it is mid-height, at a seam.
+
+I find myself along the blind underside of the second unlagged steel main, near the northeastern span where a bolted iron truss meets raw, drill-scarred basalt. It is a junction of half-finished edges: crisp poured concrete to one side, jagged blasted rock to the other, and just below me, the ragged outer rim of a sodium lamp's amber haze. Close enough to the light that the faintest smear of blue-green algae has taken hold along my left flank; far enough into the brown twilight that the two sunken, translucent dimples behind my snout don't ache from the glare.
+
+It takes a moment to realize how much relief there is in losing eyes. Down here, sight is the poorest instrument—blinded by rising steam, fooled by shadow and wet iron. What takes its place is the whole underside of the body.
+
+Pressed lengthwise along the hot curve of the steel, six-fingered pads hooked loosely over the flange bolts, the pale, callused skin of my belly and the broad shovel of my jawbone turn the vault's deafening roar into something startlingly clear. It stops being noise and becomes architecture.
+
+The three piston pumps on the center line do not beat in exact unison; one runs a fraction slower than its neighbors, so their heavy four-second thumps drift slowly into alignment, strike together in a single iron chord that shivers all the way up the concrete piers, and then walk patiently apart again over the span of minutes. Beneath them runs the narrow, bright wire of the transformers' sixty-cycle hum. Inside the pipe against my ribs, the superheated condensate rushes with a steady, high-pitched hiss that carries the weather of a city I have never seen—tight and urgent when the streets far above are awake, dropping by half a tone when the upper world cools into the small hours.
+
+Everything else in the chamber writes itself as tiny interruptions across that clean lattice.
+
+Four yards along the mortar seam, a sheet of glossy cockroaches shifts with a dry, papery shiver when a drop of scalding water strikes the steel beside them. Twenty feet below, on the cable tray near the brick pallets, the quick, uneven patter of a rat's feet drops into the concrete like four tiny pebbles into oil. I don't chase it. I am not hungry yet, and haste down here is a kind of madness. Instead, I let the flaps along my neck part a fraction, fanning wet maroon pleats into the rising plume from a relief valve, drinking the saturated boiler-air while my slow blood warms and runs clean.
+
+This is where I belong: in the middle tier, still lithe enough to travel the whole vertical measure of the vault—from the high iron trusses down to the tepid silt of the runoff channels—yet heavy enough now that the chamber has begun to write itself onto my back.
+
+I know the feel of that slow inscription. Hold still beneath a weeping basalt seam for two days, letting the iron pulse travel through your ribs, and mineral water dries across your shoulders in pale, glassy ridges. Soot and orange oxide rub off the pipe brackets and bind with the alkaline slick of your hide. A translucent house gecko will eventually step onto the dry lime ridge behind your neck and stay there, throat pulsing, using you as a warm promontory from which to snap up midges drawn to your musk. You let it stay. You are terrain until you decide not to be.
+
+There is a strangeness to this body that matches the unfinished nave itself. Deeper down—in the cramped, scalding rock veins the rotary drills broke open—there was never room to stretch like this, never enough meat or open dark to find out how large you were meant to become. Here, slung along a steel artery in a cathedral of concrete and steam, I am still learning the dimensions of the space, and the dimensions of myself inside it. Every few months, the lime crust along my back thickens until it pinches the double-jointed sockets and cracks with a dry, porcelain *tick* whenever I turn my snout. That is when I slip down from the mains during the slack hours—when the pipe-pitch lowers and the ghost-white tree roots hanging in the distant intake shaft stir in a faint breath of cooler air—and make my way toward the west end of the floor.
+
+There, in the deep shadow beside the strapped red bricks, lie the bundles of rusted rebar. Wedging myself against the rough, ridged steel, I heave forward an inch at a time, scraping the stiff, calcified plates off my spine in hollow, curved husks. They fall behind me onto the wet concrete, looking like collapsed crusts of spilled mortar, already drawing beetles out of the dark. What emerges underneath is raw, oiled slate-grey, tender to the smallest gradient of heat, ready to listen all over again.
+
+Sometimes, the basalt trembles with an ugly, off-beat rhythm—heavy boots coming down the outer stairwell, then the sharp metallic clank of the dogging wheel turning at the west bulkhead.
+
+There is no panic in the vault, only a quiet folding away. Long before the iron door groans wide and lets in that stinging wedge of dry air—smelling of diesel grease, cotton, and cold upper-city dust—I have rolled effortlessly onto the blind upper curve of the steam main. My broad pads grip the scalding flanges where no human hand could linger for half a second; my throat-pleats fold shut; my crusted back flattens against the steel until I am nothing more than a swell of lagged iron or a seam of spilled grout.
+
+Below me, white work-lights sweep wildly across the piers, making my sunken eye-dimples wince. Voices shout over the pistons, thin and high and terribly hurried. Boots ring out of time on the catwalk grating six feet beneath my belly. Once, one of them pauses near the rebar bundles, nudging one of my discarded mineral husks with the toe of his boot, muttering something lost in the hiss of a relief valve. Standing over the middle plinth, another shifts his weight, frowning slightly as a slow, living double-throb rises through the soles of his boots from the iron beneath him.
+
+Then the heat wins, as it always does. The harsh white beams pull back. The bulkhead booms shut and dogs tight, sealing the wound whole again.
+
+I wait until the alien smell of dry dust dissolves back into steam, ammonia, and wet stone. Ten minutes. Twenty. The three pumps drift slowly toward one of their rare moments of unison, their flywheels turning in patient circles.
+
+I ease back around the hot belly of the pipe, hooking my pads onto the lower bolts, settling my jaw once more against the singing steel. Down by the central plinth, oily water sheets quietly off a broad, terraced back rising from the runoff arch. Near the far northern pier, behind the warped black pine of the curing formwork, a pale-bellied shape shifts slightly to bathe its glistening ropes of eggs in fresh mucus.
+
+From the floor below, a bass tremor rises through the poured concrete—too low for any ear made for air, carrying only weight, warmth, and the quiet half-time beat of an old heart locked to a flywheel. A second tremor answers from the northern pier, tighter and closer to the stone.
+
+I open my throat-pleats to the scalding mist, let the iron pulse settle through my ribs, and send a slow, gravelly thrum rolling down the length of the steel main to meet them. Not a word. Not a boast. Only a measured note added to the chamber's long accounting of itself: *here, warm, still growing into the dark.*
